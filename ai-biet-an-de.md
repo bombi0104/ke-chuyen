@@ -1,0 +1,41 @@
+## Ai Biết Ăn Dè?
+
+Một hôm, các con vật nhỏ trong rừng tổ chức cuộc thi vui. Thi ăn. Không phải ăn nhanh, ăn nhiều mà là.. ăn dè. Thỏ, Nhím và Sóc đã dự thi. Ban giám khảo phát cho mỗi con mười hạt đậu. Ai ăn được lâu nhất sẽ đoạt giải thưởng.
+
+Thỏ ăn mỗi ngày một hạt, được 10 ngày.
+
+Nhím ăn mỗi ngày nửa hạt, được 20 hôm.
+
+Sóc tuy nhỏ thế mà chỉ trong bốn ngày đã chén sạch. Phải đứng hạng bét là cái chắc.
+
+Ban giám khảo đợi Nhím ăn xong nửa hạt đậu cuối cùng mới vui vẻ mời bác Khướu có giọng hót vang xa thông báo:
+
+- Vô địch ăn dè là.. Nh..í...m!
+
+Tất cả đều hoan hô Nhím.
+
+Ðúng lúc ấy, Sóc bước ra nói:
+
+- Thưa Ban giám khảo, cháu còn hai hạt đậu nữa chưa ăn.
+
+Bác Khướu hỏi:
+
+- Hai hạt đậu ấy đâu?
+
+Sóc thưa:
+
+- Xin Ban giám khảo đi cùng cháu.
+
+Nói rồi, Sóc dẫn cả bầy đàn đông đảo tới vạt đất nhỏ, ngoài bìa rừng và đứng lại. Bác Khướu thấy Sóc không đưa hai hạt đậu ra, mới giục:
+
+- Hai hạt đậu của cháu đâu?
+
+Sóc liền trỏ vào hai cây đậu nhỏ đã có lá, có ngọn, đáp:
+
+- Thưa bác, đây ạ! Cháu đã trồng đúng 20 hôm.
+
+Tất cả bấy giờ mới à lên, trầm trồ:
+
+- Giỏi quá! Sóc mới là nhất!
+
+Với hai cây đậu ấy, Sóc sẽ có hàng trăm hạt đậu nữa...
