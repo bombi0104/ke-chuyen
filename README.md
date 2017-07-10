@@ -1,5 +1,7 @@
 # ke-chuyen
 
+[Part 01](https://github.com/bombi0104/ke-chuyen/blob/master/part-01.md)
+
 
 ## Con Chim Vô Duyên
 
