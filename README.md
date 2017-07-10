@@ -1,5 +1,3 @@
-# ke-chuyen
-
 * [Con Chim Vô Duyên](https://github.com/bombi0104/ke-chuyen/blob/master/con-chim-vo-duyen.md)
 * [Chú Chồn Lười Học](https://github.com/bombi0104/ke-chuyen/blob/master/chu-chon-luoi-hoc.md)
 * [Chuyện Của Dê Con](https://github.com/bombi0104/ke-chuyen/blob/master/chuyen-cua-de-con.md)
