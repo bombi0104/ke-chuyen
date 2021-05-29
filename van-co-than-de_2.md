@@ -1,4203 +1,5360 @@
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1275
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1370
 
-Chương 1272: Lửa giận
+Chương 1367: Địa Ngục Chi Môn
 
-Thời điểm Trương Nhược Trần từ Thủy Tinh Hồ Lô đi ra, Tửu Phong Tử đã khống chế lấy băng sơn, đi vào một mảnh hải vực tương đương xa lạ.
+Tửu Phong Tử nhìn ra Cổ Tùng Tử dụng ý, trong lòng thầm khen, quả nhiên là kế sách thần kỳ.
 
-"Hô hô."
+Thế là, Tửu Phong Tử bước nhanh tới, duỗi ra một bàn tay gầy còm sờ lên đầu Khổng Lan Du, tựa như là một vị trưởng bối tại trấn an vãn bối cảm xúc, ý vị thâm trường nói ra: "Lan Du, ta là ngươi Nhị gia."
 
-Bầu trời Huyền Âm Cương Phong, càng thêm hung liệt, trong đó một chút ngưng kết thành hình người, đụng vào mặt biển, khiến cho Di Khí Thâm Hải nhấc lên thao thiên cự lãng.
+"Ngươi nói cái gì?"
 
-Trong không khí nhiệt độ, thấp đủ cho dọa người , dựa theo Trương Nhược Trần đánh giá, cho dù là Bán Thánh đều có thể bị đông cứng chết.
+Khổng Lan Du ánh mắt trầm xuống, liếc xéo Tửu Phong Tử một chút.
 
-Bán Thánh cùng Thánh Giả sinh mệnh cấp độ đã cực cao, tại Côn Lôn giới, có thể khai sơn liệt địa, uy chấn một phương, đến chỗ này lại trở nên tương đương yếu ớt, giống như nhân loại bình thường một dạng chịu đựng không được giá lạnh khảo nghiệm.
+"Ta là ngươi Nhị. . . gia. . . A. . ."
 
-"Đây là người đợi địa phương sao? Liền xem như Thánh Giả không cẩn thận rơi vào trong biển, cũng sẽ bị chết cóng, thật sự là thật đáng sợ."
+Tửu Phong Tử cái tay kia, bị Khổng Lan Du chế trụ, gãy đến uốn lượn, lấy hắn Thánh Vương cảnh giới tu vi, nhục thân cường đại cỡ nào, xương cốt cỡ nào cứng rắn, nhưng vẫn là bị gãy đến vang lên kèn kẹt.
 
-Trương Nhược Trần có được Tịnh Diệt Thần Hỏa, không sợ rét lạnh, có thể, hay là cảm giác được rung động.
+Tửu Phong Tử đau đến toàn thân kinh mạch đều xông ra, mặt mo trở nên vặn vẹo, phát ra tiếng gào thảm như mổ heo.
 
-Tửu Phong Tử trên tóc cùng sợi râu tất cả đều là hạt băng màu trắng, uống vào Long Diễm Tửu , nói: "Chúng ta đã nhanh muốn tiếp cận Di Khí Thâm Hải khu vực trung tâm, nơi này được xưng là Âm Dương Hải Âm Nhãn, có thể xưng Côn Lôn giới rét lạnh nhất địa phương một trong."
+Thấy cảnh này, Cổ Tùng Tử trong lòng thầm mắng một câu, cảm thấy Tửu Phong Tử thành sự không có bại sự có dư, vội vàng chạy tới khuyên can Khổng Lan Du, nói ra: "Hắn thật là ngươi Nhị gia, không có lừa ngươi."
 
-Trương Nhược Trần hỏi: "Hoàng Yên Trần cùng Ngao Tâm Nhan các nàng có tin tức sao?"
+Khổng Lan Du hướng Cổ Tùng Tử liếc qua, nhãn thần trở nên càng thêm trầm lãnh, bộp một tiếng, bẻ gãy Tửu Phong Tử cánh tay, một chưởng đánh vào Tửu Phong Tử trên lưng, đem hắn đánh cho nằm rạp trên mặt đất, thân thể cơ hồ chìm vào tiến lòng đất.
 
-"Trước đây không lâu, lão phu cầm đến triều đình một vị Thánh Giả, theo như hắn nói, tận mắt thấy mấy nha đầu kia cùng con mèo kia, tiến vào Di Khí Thâm Hải trung tâm." Tửu Phong Tử nói ra.
+Nhìn thấy Khổng Lan Du ánh mắt, Cổ Tùng Tử trong lòng lộp bộp một tiếng, thầm kêu một tiếng không ổn, vị này Minh Đường Thánh Tổ, sợ là thật đã tinh thần rối loạn, tính cách âm tình bất định, hay là không chọc giận nàng cho thỏa đáng.
 
-Chỗ xa xa, xuất hiện một đầu đường ven biển màu bạc trắng, một chút không nhìn thấy cuối cùng, giống như một khối đại lục biên giới.
+Cổ Tùng Tử quay đầu liền đi.
 
-Trương Nhược Trần đi vào băng sơn đỉnh chóp, nhìn ra xa đường ven biển phương hướng, hơi kinh ngạc , nói: "Di Khí Thâm Hải khu vực trung tâm, tại sao có thể có một tòa bị băng phong đại lục? Nơi này nước biển, căn bản liền sẽ không tự nhiên kết băng, đến cùng là chuyện gì xảy ra?"
+Chỉ bất quá, Cổ Tùng Tử vừa mới quay người, Khổng Lan Du một cái băng lãnh bàn tay, chính là đặt tại phía trên đỉnh đầu hắn, từ lòng bàn tay tuôn ra hàn khí, cóng đến Cổ Tùng Tử tê cả da đầu.
 
-Tửu Phong Tử cũng lộ ra một đạo thần sắc khác thường, lập tức, ánh mắt lộ ra kinh hãi quang mang , nói: "Đây không phải là đại lục gì, mà là một tòa băng sơn. Chỉ bất quá, băng sơn quá mức khổng lồ, cho nên, nhìn qua mới giống một tòa đại lục bị băng phong."
+"Bành."
 
-"Căn bản cũng không có lục địa?"
+Chưởng lực hạ xuống, Cổ Tùng Tử cũng bị đánh cho nằm rạp trên mặt đất, nửa người đều vùi vào trong đất.
 
-"Không sai." Trương Nhược Trần hít vào một ngụm khí lạnh, lầu bầu nói: "Tại sao có thể như vậy?"
+Khổng Lan Du không có lấy tính mệnh của bọn hắn, cũng lười để ý tới bọn hắn, lần nữa đi đến Trương Nhược Trần trước người, bắt lấy Trương Nhược Trần một cái tay lạnh như băng chưởng, ôn nhu nói: "Biểu ca, cùng ta đi Minh Đường, chỉ cần ta còn sống, không có người có thể tổn thương ngươi."
 
-Tửu Phong Tử nói: "Chỉ có hai loại khả năng. Thứ nhất, nơi này đã từng chết vô số sinh linh, mỗi một vị sinh linh, đều là một tòa băng sơn, tất cả băng sơn nối liền cùng một chỗ, biến thành một tòa Băng Xuyên đại lục."
+Ăn vào ba viên thánh đan đằng sau, Trương Nhược Trần trên mặt, đã khôi phục một chút huyết sắc, vị trí trái tim vết thương cũng đã khép lại hơn phân nửa.
 
-Trương Nhược Trần có chút động dung , nói: "Vậy phải chết bao nhiêu sinh linh, mới có thể ngưng kết thành một tòa Băng Xuyên đại lục khổng lồ như thế?"
+"Không đi."
 
-"Loại thứ hai khả năng, càng thêm đáng sợ."
+Tại trong miệng của hắn, phun ra như thế hai chữ.
 
-"Khả năng nào?"
+Khổng Lan Du có thể cảm nhận được Trương Nhược Trần trong lòng kháng cự, giống như là muốn tránh ra tay của nàng, thế là, nàng buông lỏng tay ra, không muốn bức bách Trương Nhược Trần.
 
-Tửu Phong Tử thần sắc trở nên tương đương ngưng trọng, trầm mặc thật lâu, mới nói: "Sinh linh càng là mạnh mẽ, sau khi chết ngưng kết thành băng sơn thì càng to lớn. Nếu là, dưới tòa Băng Xuyên đại lục này, chỉ có một bộ thi hài đâu? Đây mới là sự kiện càng khủng bố hơn."
+Càng là bức bách, chỉ sợ ngược lại hoàn toàn ngược lại.
 
-Trương Nhược Trần há mồm trợn mắt , nói: "Một bộ thi hài, hình thành một tòa Băng Xuyên đại lục. . ."
+Trương Nhược Trần ánh mắt, vẫn như cũ ảm đạm vô quang , nói: "Thiên hạ chỗ nào còn có thể đi? Ta chỗ nào cũng không đi, chỉ muốn đi một chút."
 — QUẢNG CÁO —
 
 
-Tửu Phong Tử nhẹ gật đầu , nói: "Hai loại khả năng, vô luận loại nào đều thuyết minh nơi này tương đối nguy hiểm, không thể xông loạn. Căn cứ lão phu nhiều năm chạy trốn kinh nghiệm, tuyệt đối không nên bước vào tòa Băng Xuyên đại lục này, dù sao ta là tuyệt đối sẽ không đi vào."
+Nói xong lời này, Trương Nhược Trần chính là phóng ra bước chân, tựa như là con rối đồng dạng, từng bước một đi về phía trước.
 
-Băng sơn, đến đại lục biên giới, ngừng lại.
+"Ta cùng ngươi."
 
-Tửu Phong Tử sợ, chết sống cũng không chịu bước vào Băng Xuyên đại lục, còn khuyên Trương Nhược Trần cũng cùng hắn cùng một chỗ trở về trở về.
+Khổng Lan Du hết sức rõ ràng Trương Nhược Trần đau thương trong lòng, chỉ có chính hắn nghĩ thông suốt, mới có thể chân chính đi ra thống khổ. Đương nhiên, tại trong nghịch cảnh cùng thung lũng như vậy, luôn luôn cần phải có một người hầu ở bên cạnh hắn.
 
-"Tốt a! Ngươi không đi, ta cũng không còn ép buộc ngươi, nhưng, ta là nhất định phải đi vào."
+Cổ Tùng Tử cùng Tửu Phong Tử bò lên, mặt mũi tràn đầy đều là bùn đất, tóc rối tung, giống như là hai cái ăn mày. Bọn hắn khom người, ngừng thở, thu liễm khí tức trên thân, ngã tay ngã chân, chuẩn bị thần không biết quỷ không hay đào tẩu.
 
-Trương Nhược Trần mũi chân tại trên băng sơn giẫm mạnh, như là một con chim lớn đồng dạng bay ra đứng lên, bình ổn rơi xuống trên Băng Xuyên đại lục.
+"Biểu ca bị thương rất nặng, cần hai cái người hầu chiếu cố, các ngươi có bằng lòng hay không?" Khổng Lan Du cõng thân, nói một câu.
 
-Tửu Phong Tử đứng tại trên băng sơn, kêu một tiếng: "Trương Nhược Trần, dù sao ngươi đều phải chết ở bên trong, không bằng đem Thủy Tinh Hồ Lô giao cho lão phu, cũng coi là vì Nhân tộc quật khởi, làm sau cùng cống hiến."
+Cổ Tùng Tử cùng Tửu Phong Tử lập tức dừng bước lại, liếc nhau một cái, đều là nhìn ra trong mắt đối phương lửa giận, một vị Thánh Vương cùng một vị Đan Đạo Thánh Sư, lại bị người chinh tới làm người hầu?
 
-"Miệng quạ đen."
+Có thể nhẫn nại, không thể nhẫn nhục.
 
-Trương Nhược Trần rất muốn rút Tửu Phong Tử miệng, còn không có chân chính xâm nhập Băng Xuyên đại lục, thế mà liền phán quyết hắn tử hình.
+"Đương nhiên, các ngươi cũng có thể lựa chọn chết." Khổng Lan Du lại bổ sung một câu.
 
-Tửu Phong Tử rất không cam tâm, nhìn chằm chằm Trương Nhược Trần bóng lưng, lần nữa kêu lên: "Đem Thủy Tinh Hồ Lô giao cho lão phu đảm bảo, chờ ngươi từ bên trong sống mà đi ra, lão phu lại đem nó trả lại cho ngươi. Một kiện tuyệt thế trọng bảo như vậy, vạn nhất tùy ngươi cùng một chỗ thất lạc ở Băng Xuyên đại lục, đó là một sự kiện cỡ nào tiếc nuối."
+Tửu Phong Tử hít sâu một hơi, vội vàng thu hồi trong mắt lửa giận, cười lớn một tiếng: "Lão phu cùng Trương Nhược Trần chính là sinh tử chi giao, hắn bị ách nạn này, há có thể khoanh tay đứng nhìn?"
 
-Trương Nhược Trần không để ý tới hắn, tăng tốc bước chân, biến mất tại lăng lệ trong gió lạnh.
+"Trương Nhược Trần gãy mất ba mạch, hay là lão phu giúp hắn tục tiếp, giữa chúng ta giao tình, so sinh tử chi giao đều muốn càng sâu." Cổ Tùng Tử nói ra.
 
-Trên Băng Xuyên đại lục, đều là một mảnh mênh mông bát ngát vùng quê, không nhìn thấy vật sống, chỉ là thỉnh thoảng sẽ xuất hiện một chút kỳ tuyệt sơn phong, ở trong Huyền Âm Cương Phong cũng có thể sừng sững không ngã, để cho người ta cảm thấy sợ hãi thán phục.
+"Ít nói lời vô ích, đi phía trước mở đường." Khổng Lan Du nói.
 
-Trương Nhược Trần hoài nghi Tiểu Hắc cùng Hoàng Yên Trần bọn người, thật sự có khả năng tiến vào tòa Băng Xuyên đại lục này, Tiểu Hắc nhục thân, nói không chắc liền bị phong ấn tại nơi đây.
+Tửu Phong Tử cùng Cổ Tùng Tử lập tức suy sụp một mảng lớn, thành thành thật thật đi về phía trước, thanh lý Trương Nhược Trần con đường phía trước phía trên bụi gai cùng hòn đá, để tránh trượt chân vị này ta.
 
-Tiến vào Băng Xuyên đại lục, Trương Nhược Trần tinh thần lực nhận tiến một bước áp chế, còn không bằng con mắt cùng lỗ tai dễ dùng.
+. . .
 
-Trương Nhược Trần thi triển ra thân pháp, vọt tới một tòa băng sơn đỉnh chóp, sử dụng ra Thánh Nhãn, tìm kiếm Tiểu Hắc cùng Hoàng Yên Trần đám người vết tích.
+. . .
+
+Ra Bắc Vực, chính là bao la vô biên Bắc Hải.
+
+Bắc Hải chi thủy, sâu không lường được, trong Bắc Hải Thủy tộc Man thú càng là nhiều không kể xiết, trong đó không thiếu có thân thể khổng lồ Thánh Thú cùng thực lực sâu không lường được Thái Cổ di chủng.
+
+Bắc Hải trình độ hung hiểm, không chút nào thấp hơn Man Hoang bí cảnh.
+
+Thế nhưng là, giờ phút này Bắc Hải nước biển, đã bị máu tươi nhiễm đỏ. Đó là Bất Tử Huyết tộc mấy vị Huyết Đế máu tươi, bởi vì trong máu ẩn chứa vô cùng to lớn năng lượng, khi huyết dịch cùng nước biển hòa làm một thể thời điểm, nước biển lại là trở nên vô cùng nóng hổi, sôi trào lên.
+
+Trong Bắc Hải Thánh Thú cùng hung thú, toàn bộ đều run lẩy bẩy, dọa đến không cách nào động đậy, thẳng hướng đáy nước lặn xuống.
+
+Mười vị Huyết Đế, đã chết chín vị, chỉ còn tu vi mạnh nhất Tề Thiên Huyết Đế cùng Bất Tử Thần Điện điện chủ còn tại bỏ chạy.
+
+Hai người bọn họ tu vi, thế nhưng là vượt xa mặt khác chín vị Huyết Đế, là chân chính đạt đến Đại Thánh cảnh giới, cũng là chân chính có tư cách Phong Đế, Phong Hoàng.
+
+Mặt khác chín vị Huyết Đế, bất quá chỉ là chỉ nửa bước bước vào tiến Đại Thánh cảnh giới, có thể xưng là Chuẩn Đại Thánh, đồng thời, bọn hắn cũng chỉ có thể ngắn ngủi bộc phát ra Đại Thánh cấp bậc lực lượng, căn bản là không có cách bền bỉ.
+
+Tề Thiên Huyết Đế cùng Bất Tử Thần Điện điện chủ lại khác, bọn hắn ở trong Đại Thánh, cũng đều thuộc về đứng đầu nhất cường giả.
+
+Đại Thánh chi lộ cực kỳ gian nan, một chủng tộc, có thể sinh ra một vị Đại Thánh, tại Côn Lôn giới, cũng đều thuộc về đứng đầu nhất cường tộc. Bất Tử Huyết tộc có thể đản sinh ra hai vị Đại Thánh cùng chín vị Chuẩn Đại Thánh, tại trong Côn Lôn giới vạn tộc, đủ để xếp vào tiến năm vị trí đầu.
+
+Đương nhiên, không hề nghi ngờ, Nhân tộc là Côn Lôn giới đệ nhất đại tộc.
+
+Chỉ bất quá, Nhân tộc địch nhân quá nhiều, không chỉ có chỉ là muốn đối phó Bất Tử Huyết tộc, còn có ứng phó trong Man Hoang bí cảnh lục địa Man thú cùng trong tứ phương hải vực Thủy tộc Man thú.
+
+Nữ Hoàng mất tích đoạn thời gian kia, Nhân tộc đứng đầu nhất cường giả, cơ hồ toàn bộ đều xuất động, có tiến vào Man Hoang bí cảnh, kích động Man thú các tộc mâu thuẫn, chế tạo nội loạn. Có tiến về Hỗn Độn Vạn Giới Sơn, trấn áp các đại Khư Giới. Còn có một số tiến vào tứ phương hải vực, kiềm chế Thủy tộc trong Man thú Thú Hoàng.
+
+Có thể nói, Nhân tộc có thể lấy bộ tộc chi lực, tiếp tục chống đỡ, đã là tương đương không dễ dàng.
+
+Thanh Tiêu câu kia "Triều đình nước rất sâu", chỉ chính là trong triều đình cường giả chân chính, toàn bộ đều rời đi Đệ Nhất Trung Ương đế quốc, tiến đến ổn định thế lực khắp nơi, yên lặng chờ Nữ Hoàng trở về.
+
+Nữ Hoàng trở về về sau, ai còn dám đối kháng Nhân tộc? Rục rịch các đại chủng tộc, tự nhiên đều muốn an giấc xuống tới, thế cục cũng liền sáng tỏ.
+
+Nữ Hoàng về không được, Trung Ương Hoàng Thành sẽ bị công hãm, Nhân tộc sẽ bị vạn tộc tiêu diệt, như vậy thế cục cũng sẽ sáng tỏ.
+
+Man Ki Đảo, ở vào Bắc Hải chỗ sâu, cũng không phải là một hòn đảo nhỏ, ngược lại là tương đương to lớn, tung hoành trăm vạn dặm, chỉ bất quá cùng Côn Lôn đại lục so ra, mới lộ ra như là một hòn đảo.
+
+Đã từng, Bất Tử Huyết tộc bị Minh Đế cùng Nhân tộc các đại thế lực, khu trục ra Côn Lôn đại lục, chính là bị phong ấn ở trên mảnh đại lục cỡ nhỏ cằn cỗi này.
+
+Đến Man Ki Đảo, Tề Thiên Huyết Đế cùng Bất Tử Thần Điện điện chủ, đều là mừng rỡ, hướng về hòn đảo trung tâm tiến đến.
+
+Bỗng dưng, phía trên đỉnh đầu bọn họ, xuất hiện một mảnh thất thải sắc thần quang, một đạo tuyệt sắc động lòng người bóng người, từ trong thần quang đi ra, cúi nhìn xem bọn hắn , nói: "Các ngươi còn muốn trốn nơi nào, lại trốn về Địa Ngục giới?"
+
+Trì Dao Nữ Hoàng người mặc một bộ màu xanh nhạt thần bào, đứng tại thiên khung, ánh mắt lăng lệ, từng đạo thần quang từ trên người nàng rủ xuống đi, trấn áp đến Tề Thiên Huyết Đế cùng Bất Tử Thần Điện điện chủ toàn thân không cách nào động đậy.
+
+"Nàng mới vừa vặn thành thần, cảnh giới còn không có vững chắc, bản đế đủ để ngăn cản nàng một lát. Ngươi nhanh đi Địa Ngục giới cùng Côn Lôn giới lối vào, chỉ cần đi vào khu vực này, cũng liền an toàn."
+
+"Oanh!"
+
+Tề Thiên Huyết Đế thể nội đế huyết bắt đầu cháy rừng rực, lập tức trùng trùng điệp điệp huyết khí, hướng ra phía ngoài tràn ngập ra đi, bao trùm phương viên mấy vạn dặm đại địa.
+
+Thông qua thiêu đốt đế huyết, trên người hắn lực lượng, không ngừng kéo lên, đúng là xông phá thần uy áp chế.
+— QUẢNG CÁO —
+
+
+Bất Tử Thần Điện điện chủ đạt được cơ hội thở dốc, lập tức lao ra, tiến đến Man Ki Đảo trung tâm.
+
+"Coi như ngươi đem đế huyết hiến cho Bất Tử Huyết tộc Thần Linh, mượn tới Thần Linh lực lượng, bằng tu vi của ngươi, cũng ngăn không được Chân Thần tiện tay một kích."
+
+Trì Dao Nữ Hoàng lộ ra rất lạnh nhạt, duỗi ra một cây ngón tay ngọc nhẹ nhàng vung lên, một đạo thất thải sắc thần quang bay ra ngoài, đem mấy vạn dặm huyết khí đều chia cắt thành hai nửa.
+
+Tề Thiên Huyết Đế thân thể, tự nhiên cũng là một phân thành hai, trực tiếp chính là vẫn lạc, căn bản ngăn không được Trì Dao Nữ Hoàng dù là một cái sát na.
+
+Cùng lúc đó, Trì Dao Nữ Hoàng một ánh mắt, nhìn chăm chú về phía Bất Tử Thần Điện điện chủ, sau một khắc, Bất Tử Thần Điện điện chủ hét thảm một tiếng, lập tức thân thể bạo liệt mà ra, tan thành mây khói.
+
+Trấn sát hai vị Đại Thánh đằng sau, Trì Dao Nữ Hoàng thân hình lóe lên, thoáng qua đằng sau, đã đứng tại Man Ki Đảo trung tâm.
+
+Man Ki Đảo trung tâm, là một mảnh mênh mông huyết thổ.
+
+Tại huyết thổ chỗ sâu, có một đạo dài tới mấy ngàn dặm vết nứt không gian, từ không trung một mực liên tiếp đến lòng đất, có từng sợi huyết vụ, từ trong vết nứt không gian dũng mãnh tiến ra.
+
+Đây là vô cùng kinh người cảnh tượng, chỉ là xa xa trông đi qua, cũng làm cho lòng người sinh kính sợ.
+
+"Đây chính là năm đó Địa Ngục giới mở ra Địa Ngục Chi Môn? Minh Vương dẫn đầu Bất Tử Huyết tộc, chính là từ nơi này đi vào Côn Lôn giới?"
+
+Trì Dao Nữ Hoàng hạ xuống mặt đất, từng bước một hướng đạo vết nứt không gian kia đi qua, mỗi một bước rơi xuống, đều có từng vòng từng vòng thất thải sắc thần quang lan tràn ra phía ngoài, xua tan hướng nàng vọt tới huyết khí.
+
+Khoảng cách Địa Ngục Chi Môn còn có ngàn dặm, thiên địa quy tắc liền phát sinh cải biến, một cỗ áp lực vô hình, rơi xuống trên người nàng. Liền ngay cả thần đều có thể cảm giác được áp bách, có thể nghĩ, cỗ lực lượng kia là bực nào đáng sợ.
 
 "Ầm ầm."
 
-Chân trời, một đạo màu bạc lưu quang bay qua, nội bộ bao vây lấy một bóng người, đụng xuyên một tòa băng sơn, rơi vào băng nguyên phía trên, phát ra một tiếng vang thật lớn, một mảng lớn băng tinh mảnh vỡ vẩy ra đứng lên, giống như một đám mây màu trắng.
+Bỗng dưng, Địa Ngục Chi Môn chấn động mạnh mẽ một chút, từ bên trong tuôn ra huyết khí trở nên càng lúc càng nồng nặc, cuối cùng phát sinh hoá lỏng, đúng là biến thành huyết thủy.
 
-"Cái đó là. . . Ngao Tâm Nhan khí tức. . ."
+Chỉ gặp, một cái bàn tay lớn màu đỏ ngòm, từ trong Địa Ngục Chi Môn duỗi ra, vô số quy tắc đường vân xen lẫn tại đại thủ phía trên, hướng về Trì Dao Nữ Hoàng đánh ra xuống dưới.
 
-Trương Nhược Trần lộ ra một đạo vui mừng, thi triển ra Không Gian Đại Na Di, cấp tốc chạy về màu bạc lưu quang rơi xuống địa phương.
+Trì Dao Nữ Hoàng hai mắt hơi run lên, toàn thân tản mát ra vạn trượng thần quang, bộc phát ra không có gì sánh kịp tật tốc, hướng về sau lùi lại, rời xa Địa Ngục Chi Môn.
 
-Trên băng nguyên, xuất hiện một đầu khe rãnh dài mấy dặm, tại khe rãnh cuối cùng, tức thì bị xô ra một cái lõm sâu hố to, bốn phía tầng băng toàn bộ đều vỡ vụn.
+Thế nhưng là, Trì Dao Nữ Hoàng lui đến càng nhanh, bàn tay lớn màu đỏ ngòm liền trở nên càng là to lớn, căn bản là không có cách chạy ra đại thủ bao phủ. Cuối cùng bàn tay lớn màu đỏ ngòm, hung hăng đánh vào đỉnh đầu của nàng, giống như một mảnh Chưởng Ấn Thiên Địa ép xuống, mang theo có không gì sánh nổi cường đại thần uy.
 
-Ngao Tâm Nhan từ hố to dưới đáy leo ra, toàn thân đều run rẩy, trong khe hở Thần Long Ngân Khải chảy ra huyết thủy, bởi vậy có thể thấy được, nàng bị thương là bực nào thảm trọng, đứng lên cũng không nổi.
-
-"Phốc!" Vừa mới leo ra hố to, thân thể của nàng mới đứng lên một nửa, trong miệng phun ra một ngụm máu tươi, nửa quỳ trên mặt đất.
-
-"Trốn a, nhìn ngươi còn trốn nơi nào! Ha ha!"
-
-Man Long Thiếu Quân nện bước to lớn bước chân, phát ra tiếng cười càn rỡ, vọt tới trước người Ngao Tâm Nhan, một bàn tay cực kỳ lớn đánh ra đi, rút ở trên thân nàng, đánh cho nàng lần nữa ném đi đến trong hố lớn.
-
-Một con Mãng Giao xích hồng sắc dài đến hơn tám trăm mét đuổi theo, toàn thân tràn ngập hỏa diễm, những nơi đi qua, sông băng hòa tan thành dòng sông.
-
-Nó là Tổ Long sơn một cái Thần Thú hậu duệ, danh xưng Mãng Giao Vương.
-
-Mãng Giao Vương nói: "Đừng đưa nàng đánh chết, nàng thế nhưng là đã đem Chân Long Chi Thể tu luyện tới đại thành, thể nội long huyết tương đương quý giá."
-
-"Chúng ta nhiều cường giả như vậy cùng một chỗ vây công, lại kém một chút để nàng đào tẩu, trên người nàng áo giáp bạc tựa hồ là một kiện bảo vật khá là ghê gớm, một khi thôi động, bạo phát đi ra tốc độ, thật sự là nhanh đến mức dọa người."
-
-Man Long Thiếu Quân đem Ngao Tâm Nhan từ hố to dưới đáy đẩy ra ngoài, bịch một tiếng, ném xuống đất, sau đó, một cái đại thủ ngay tại trên khải giáp mặt tìm tòi, muốn đưa nó cởi ra.
-
-"Khoan hãy nói, nàng thật đúng là không hổ là Thần Long Bán Nhân tộc đệ nhất mỹ nhân, không chỉ có gương mặt mọc đến đẹp, liền liền thân tài cũng là dáng vẻ thướt tha mềm mại, tại Tổ Long sơn cũng không có mấy vị Long Nữ so ra mà vượt nàng . Chờ đến thu lấy áo giáp, bản thánh trước làm nàng."
-
-Man Long Thiếu Quân khoảng cách gần quan sát Ngao Tâm Nhan, sắc tâm đại động, càng thêm bức thiết giải khai áo giáp bạc.
-
-Ngao Tâm Nhan sắc mặt tái nhợt, trong lòng mười phần bi thương , nói: "Ngươi là đang buộc ta tự bạo khí hải cùng Thánh Nguyên, mọi người đồng quy vu tận."
-
-Man Long Thiếu Quân cười một tiếng: "Ngươi cho rằng bản thánh không nghĩ tới điểm này? Hiện tại, đứng ở trước mặt ngươi, chỉ là bản thánh một đạo thánh hồn phân thân. Coi như ngươi tự bạo khí hải cùng Thánh Nguyên, cũng không đả thương được bản thánh chân thân."
-
-Ngao Tâm Nhan mười ngón nắm chặt, muốn chống lên thân thể, tiếp tục cùng Man Long Thiếu Quân chém giết. Thế nhưng là, nàng lúc trước lọt vào vây công, bị thương quá nặng, toàn thân đều giống như tán rách ra một dạng, căn bản đứng không dậy nổi.
-
-"Các ngươi chết không yên lành, Trương Nhược Trần nhất định sẽ đem bọn ngươi. . . Toàn bộ đều giết hết. . ." Ngao Tâm Nhan hung ác tiếng nói.
-
-Man Long Thiếu Quân cười đến càng thêm lớn âm thanh , nói: "Trương Nhược Trần? Trương Nhược Trần mới vừa vặn đạt tới Thánh cảnh mà thôi, cho dù chạy đến, cũng chỉ là đi tìm cái chết, bản thánh một tay liền có thể đem hắn trấn áp."
-
-Nơi xa, Mãng Giao Vương hóa thành nhân hình, giọng mỉa mai cười một tiếng: "Trương Nhược Trần vị hôn thê kia, rất có thể đã bị tóm, Thôn Thiên Ma Long điện hạ điểm danh muốn cưới nàng làm vợ, dùng để nhục nhã Trương Nhược Trần. Bản thánh ngược lại là mười phần chờ mong Trương Nhược Trần chạy đến, kẻ này quá mức cuồng vọng, vừa vặn cho hắn biết, cái gì gọi là đau đến không muốn sống."
-
-Trương Nhược Trần liên tiếp trải qua năm lần Không Gian Đại Na Di, rốt cục đi vào phụ cận, vừa vặn nghe được Man Long Thiếu Quân cùng Mãng Giao Vương lời nói, khi hắn nhìn thấy Ngao Tâm Nhan đổ vào trong huyết bào, lửa giận trong lòng bay lên.
-
-"Khẩu khí thật lớn, muốn để cho ta đau đến không muốn sống, chỉ bằng các ngươi, còn xa xa không đủ."
-
-Trương Nhược Trần lạnh giọng vừa quát, hóa thành một đạo quỷ mị bóng dáng, bộc phát ra tốc độ nhanh nhất, phóng tới Man Long Thiếu Quân.
-— QUẢNG CÁO —
-
-Man Long Thiếu Quân không kinh sợ mà còn lấy làm mừng, cười nói: "Trương Nhược Trần, ngươi rốt cục hiện thân!"
-
-"Chết."
-
-Trương Nhược Trần một chưởng đánh ra, một đầu màu vàng long ảnh từ lòng bàn tay bay ra, tản mát ra sáng chói quang hoa chói mắt.
-
-Man Long Thiếu Quân hai tay hóa thành vuốt rồng, hướng về phía trước nhấn một cái, cùng màu vàng long ảnh đụng vào nhau.
-
-"Cách cách."
-
-Man Long Thiếu Quân vuốt rồng cùng thân thể, trong nháy mắt chia năm xẻ bảy, hóa thành từng khối mảnh vỡ. Những mảnh vỡ kia, lại phân nứt mà ra, hóa thành từng đoàn từng đoàn hình rồng thánh khí.
-
-"Cũng chỉ là một đạo thánh hồn phân thân."
-
-Trương Nhược Trần ánh mắt ngưng tụ, vội vàng cúi người, xem xét Ngao Tâm Nhan thương thế.
-
-Ngao Tâm Nhan bị thương khá là nghiêm trọng, thân thể bị đánh đến rách tung toé, may mắn hay là Chân Long khí kết nối với phá toái nhục thân, tăng thêm trong Thần Long Ngân Khải có sức mạnh thần bí chảy ra đến, truyền cho nàng sinh mệnh chi khí, cho nên mới không có chết đi.
-
-Ngao Tâm Nhan trông thấy Trương Nhược Trần đuổi tới, không nói ra được mừng rỡ cùng cảm động, trong mắt chảy ra nước mắt.
-
-Mỗi một lần nàng gặp được nguy hiểm, Trương Nhược Trần đều như cùng nàng sinh mệnh thủ hộ giả đồng dạng xuất hiện, giải cứu nàng ở trong cơn nguy khốn, trong bất tri bất giác, nàng đã đem Trương Nhược Trần xem như một loại dựa vào.
-
-Chỉ cần có Trương Nhược Trần tại, trong lòng của nàng liền sẽ có cảm giác an toàn.
-
-Đương nhiên, giờ phút này Ngao Tâm Nhan nhưng cũng tương đương lo lắng Trương Nhược Trần an nguy, nhịn xuống thương thế mang tới đau đớn , nói: "Mãng Giao Vương tu vi đạt tới Huyền Hoàng cảnh, mà lại là Thần Thú hậu duệ, chiến lực có thể so với nửa vị Triệt Địa cảnh Thánh Giả. Man Long Thiếu Quân chân thân cũng tại phụ cận. . . Tổ trưởng, ngươi nhất định phải cẩn thận."
-
-"Đừng nói chuyện, ngươi tốt nhất dưỡng thương. Nơi này liền giao cho ta, ta sẽ để cho bọn hắn gấp bội trả lại."
-
-Trương Nhược Trần lấy ra một viên Phùng Xuân Đan, đút vào trong miệng của nàng.
-
-Mãng Giao Vương nhìn thấy đột nhiên xuất hiện Trương Nhược Trần, không có rút đi, lộ ra thần sắc mừng rỡ, thầm nghĩ: "Trương Nhược Trần xem ra là đã lửa giận ngút trời, vừa vặn nhân cơ hội này, đem hắn phế bỏ."
-
-Mãng Giao Vương gặp qua Trương Nhược Trần xuất thủ, biết thực lực của hắn, chỉ là một cái hạ cảnh Thánh Giả mà thôi, không lật được trời, che không được địa, bởi vậy, tuyệt không sợ, cười nói: "Trương Nhược Trần, ngươi tới được vừa vặn, hôm nay, bản thánh liền đem ngươi trấn áp, làm một món lễ lớn, hiến cho Thôn Thiên Ma Long điện hạ."
-
-Trương Nhược Trần con mắt liếc một cái, đứng dậy, âm thanh lạnh lùng nói: "Vừa vặn, ta cũng muốn đưa ngươi chém, làm một món lễ lớn, hiến cho Thôn Thiên Ma Long."
+Man Ki Đảo trung tâm, xuất hiện từng vết nứt, một mực lan tràn đến bên ngoài mười vạn dặm.
 
 Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
 Phong Lưu Chân Tiên Vô địch lưu đã full.
 ---------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1276
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1371
 
-Chương 1273: Oanh sát
+Chương 1368: Thủng trăm ngàn lỗ
 
-Chỉ thấy được Ngao Tâm Nhan, lại không nhìn thấy Hoàng Yên Trần, Trương Nhược Trần mười phần lo lắng, trong lòng vội vàng, sát ý thịnh vượng, bởi vậy, không có một tơ một hào dừng lại, hướng Mãng Giao Vương tiến lên, hai tay bóp thành chưởng ấn, toàn thân huyết khí đều hướng ra phía ngoài tiêu tán, hóa thành một mảnh huyết vân.
+"Hoa —— "
 
-Một chưởng đánh đi ra, lòng bàn tay thất khiếu, giống như bảy ngôi sao một dạng sáng tỏ.
+Ngay tại thủ ấn màu đỏ như máu hạ xuống xong, một đạo chói lọi kiếm quang đánh xuyên thủ ấn, hóa thành một đạo chùm sáng, phóng lên tận trời.
 
-Chưởng kình hóa thành một cơn lốc, trùng kích ở trên thân Mãng Giao Vương, khiến cho thân thể của nó đứng không vững, hướng về sau đổ trượt.
+Chờ đến chùm sáng dừng lại thời điểm, chính là một lần nữa ngưng tụ thành Trì Dao Nữ Hoàng thần ảnh phong hoa tuyệt đại kia.
 
-"Chỉ là chưởng phong, vậy mà liền mạnh mẽ như thế, Trương Nhược Trần thật vẫn chỉ là hạ cảnh Thánh Giả cảnh giới sao?"
+Trì Dao Nữ Hoàng đứng tại hư không, tóc dài màu đen nhánh trong gió bay lên, trong tay Tích Huyết Kiếm có đếm mãi không hết Minh Văn ở phía trên xen lẫn, trong một đôi mắt mỹ lệ mà băng lãnh, thì là phóng xuất ra một cỗ vô địch chi thế.
 
-Mãng Giao Vương không còn dám khinh thị Trương Nhược Trần, thể nội thánh khí mãnh liệt vận chuyển, phóng tới hai chân cùng hai tay, lập tức, hai chân cùng hai tay đều hóa thành to lớn giao trảo, toát ra xích hồng sắc hỏa diễm.
+Phía dưới thủ ấn màu đỏ như máu, đánh vào mặt đất đằng sau, chính là vỡ nát mà ra, một lần nữa hóa thành nóng hổi huyết thủy.
 
-Bốn mảnh hỏa vân, hòa tan hàn băng, hình thành một tòa hồ nước hơn mười dặm dài rộng, nước hồ đang sôi trào.
-
-Trương Nhược Trần đánh ra chưởng lực, xé nát hỏa vân, kích ở trên thân Mãng Giao Vương, lập tức, một đạo xương vỡ tiếng vang lên, Mãng Giao Vương một cái vuốt phải bị đánh đến đứt gãy, rũ xuống.
-
-"Làm sao lại mạnh như vậy, ngay cả hắn một chưởng đều không tiếp nổi?"
-
-Mãng Giao Vương cảm nhận được Trương Nhược Trần lực lượng tương đương đáng sợ, một đạo chưởng ấn mà thôi, lại giống như là năm ngọn núi lớn nện ở trên người hắn, căn bản ngăn cản không nổi.
-
-Không còn liều mạng, Mãng Giao Vương xoay người bỏ chạy.
-
-"Chạy đi đâu, lưu lại cho ta."
-
-Trương Nhược Trần vận dụng không gian na di, hướng về phía trước bước ra một bước, trong nháy mắt tiếp theo, xuất hiện tại hướng trên đỉnh đầu Mãng Giao Vương, lại là một chưởng nén xuống dưới.
-
-Mãng Giao Vương sắc mặt biến đổi, phát ra hét dài một tiếng, trong miệng phun ra sóng âm, hóa thành tầng tầng lớp lớp công kích sóng lớn. Đồng thời, trong lỗ chân lông của hắn, tuôn ra Huyền Hoàng chi khí, mang theo cuồng bạo Man Hoang khí kình, biến thành bản thể.
-
-Mãng Giao Vương bản thể, chừng hơn tám trăm mét dài, mọc ra bốn trảo, giống như rồng lại như rắn, cái đuôi cong queo, giống như một cây hỏa diễm quang trụ rút đánh về phía Trương Nhược Trần.
-
-Trương Nhược Trần không nhìn âm ba công kích, từ trong từng tầng từng tầng gợn sóng đi xuyên qua đi, bàn tay nghiêng bổ, đánh vào phần đuôi Mãng Giao Vương, chém ra một đạo vết thương mười mấy mét dáng dấp, cơ hồ đem giao vĩ chặt đứt.
-
-Mãng Giao Vương bị đau, kêu thảm một tiếng, lấy tốc độ nhanh hơn đào vong.
-
-"Man Long Thiếu Quân, ngươi còn không xuất thủ sao?" Mãng Giao Vương trầm hống một tiếng.
-
-Nếu là, Man Long Thiếu Quân lại không hiện thân, Mãng Giao Vương liền muốn vận dụng chạy trốn bí thuật bỏ chạy, không dám tiếp tục đơn độc cùng Trương Nhược Trần tác chiến.
-
-"Ngươi thật đúng là vô dụng, như thế liền bị đả thương, khó trách không có cách nào tiến thêm một bước lột xác thành Giao Long."
-
-Man Long Thiếu Quân thân thể cao tới hơn hai mươi mét, giống như một tôn cự nhân, dẫn theo một thanh chiến phủ màu đen, ở trên băng nguyên phi nước đại, mỗi một bước đều bước ra mấy trăm trượng khoảng cách, dẫm đến đất rung núi chuyển.
-
-Man Long Thiếu Quân đã từng thanh chiến phủ kia, bị Thanh Mặc hủy đi, hiện tại thanh chiến phủ này là tại Di Khí Thâm Hải trong một tòa băng sơn đào ra, so lấy trước kia chuôi phẩm cấp cao hơn, vì một kiện uy lực vô tận Cổ Thánh Khí.
-
-Đoạn thời gian gần nhất, Man Long Thiếu Quân cũng có kỳ ngộ, tu vi so trước kia tiến thêm một bước, chiến lực đến gần vô hạn Triệt Địa cảnh Thánh Giả.
-
-Chạy đến khoảng cách Trương Nhược Trần đại khái còn có mười dặm vị trí, Man Long Thiếu Quân giống như một phát đạn pháo một dạng bắn ra đứng lên, hai tay cầm búa, hướng phía dưới một bổ.
-
-Mười mấy mét dáng dấp chiến phủ, trong nháy mắt, hiện ra mấy ngàn đạo Minh Văn, phóng xuất ra từng đạo Thiên Văn Hủy Diệt Kình. Những hủy diệt kình khí kia, xen lẫn thành một đám mây.
-
-Phủ phong trở nên vô cùng to lớn, từ trong đám mây xông ra, bổ về phía phía dưới Trương Nhược Trần.
-— QUẢNG CÁO —
-
-
-Man Long Thiếu Quân bộc phát ra chiến lực quá kinh người, Ngao Tâm Nhan tương đương lo lắng, kêu: "Tổ trưởng, cẩn thận. . ."
-
-Mảnh băng nguyên này, phát ra thanh âm ầm ầm, vậy mà tại chìm xuống.
-
-"Trương Nhược Trần, ngươi nhất định phải chết! Ha ha!"
-
-Mãng Giao Vương một bên chạy trốn, một bên cười to.
-
-Trương Nhược Trần hừ lạnh một tiếng, bàn tay hướng hư không duỗi ra, lập tức, tiếng kiếm reo vang lên, Trầm Uyên cổ kiếm xuất hiện tại lòng bàn tay của hắn, huy kiếm hướng lên không một chém.
-
-Một đạo vài trăm mét dáng dấp màu đen kiếm ảnh, từ trên mặt đất dâng lên.
-
-Giữa thiên địa, ngàn vạn đạo kiếm khí bén nhọn, quay chung quanh kiếm ảnh phi hành.
-
-"Ầm ầm."
-
-Thiên Văn Hủy Diệt Kình hình thành đám mây bị kiếm khí xé rách, Trầm Uyên cổ kiếm cùng chiến phủ đụng vào nhau.
-
-"Đùng" một tiếng, chiến phủ vỡ ra một cái khe, từng đạo tinh khí từ khe hở từ dũng mãnh tiến ra, xông vào tiến Trầm Uyên cổ kiếm kiếm thể.
-
-"Làm sao có thể."
-
-Man Long Thiếu Quân sắc mặt biến đổi lớn, giống như nhìn thấy thế gian hình ảnh hoảng sợ nhất.
-
-Thanh chiến phủ này, chính là Cổ Thánh Khí tương đương lợi hại, là từ trong tay một bộ Chân Thánh cổ thi lấy xuống. Lúc đầu, Man Long Thiếu Quân còn chuẩn bị dùng nó đấu chiến bát phương, lại không nghĩ rằng, trận chiến đầu tiên đã bị đánh vỡ ra. Lấy Trầm Uyên cổ kiếm hiện tại uy năng, thật đúng là không phải Cổ Thánh Khí bình thường chống đỡ được.
-
-"Bành."
-
-Chiến phủ triệt để bạo liệt, hóa thành mảnh kim loại cùng một đoàn tinh khí màu đen.
-
-Trầm Uyên cổ kiếm đem mảnh kim loại cùng tinh khí màu đen toàn bộ hấp thu, tản mát ra càng thêm mãnh liệt kiếm mang, hướng Man Long Thiếu Quân vung chém tới.
-
-Mãng Giao Vương bị dọa đến ngốc trệ, Trương Nhược Trần cũng quá nghịch thiên, đơn giản không có gì có thể chống đỡ được hắn.
-
-Không có chút gì do dự, Mãng Giao Vương vận dụng một loại bí thuật, thể nội huyết dịch bốc cháy lên, bộc phát ra mấy lần tật tốc, toàn lực đào vong.
-
-Thi triển ra bí thuật, liền xem như Chân Thánh, cũng đuổi không kịp nó.
-
-Tại tiền phương của nó, xuất hiện một đạo không gian ba động, Trương Nhược Trần từ trong từng vòng từng vòng gợn sóng đi tới , nói: "Đều nói ngươi đi không nổi, còn càng muốn nếm thử, cần gì chứ?"
-
-Trương Nhược Trần thân hình lóe lên, rơi xuống Mãng Giao Vương đỉnh đầu, liên tiếp hướng phía dưới đánh ra 17 đạo chưởng ấn, đập nát nó hộ thể lồng ánh sáng, đưa nó đầu lâu đánh cho chia năm xẻ bảy.
-
-"Bành" một tiếng, Mãng Giao Vương ngã trên mặt đất, khí tuyệt bỏ mình.
-
-Một phương hướng khác, Man Long Thiếu Quân bị Trầm Uyên cổ kiếm chém bị thương, phần lưng vị trí, lưu lại một đạo vết kiếm đẫm máu.
-
-"Trương Nhược Trần, vị hôn thê của ngươi, cũng đã bị Thôn Thiên Ma Long điện hạ bắt, lại còn dám chém giết Tổ Long sơn Thánh Thú, ngươi biết tiếp xuống phải đối mặt là cái gì không?" Man Long Thiếu Quân nói.
-
-Trương Nhược Trần không nói một lời, thu hồi Trầm Uyên cổ kiếm, nắm ở trong tay, lập tức, Nhân Kiếm Hợp Nhất, hóa thành một đạo hắc quang thẳng hướng Man Long Thiếu Quân.
+Giống như từng đầu màu đỏ như máu giang hà, hiện ra ở trên mặt đất, lộ ra nhìn thấy mà giật mình.
 
 "Rầm rầm."
 
-Hắc quang bay qua, lưu lại một đầu khe rãnh 10 trượng sâu, một mực kéo dài đến trước mặt Man Long Thiếu Quân.
+Trong Địa Ngục Chi Môn, huyết thủy vẫn tại trào ra ngoài.
 
-"Bản thánh không phải Mãng Giao Vương, ngươi giết không được ta."
+Cùng lúc đó, một đạo mênh mông mà thâm trầm thanh âm, từ một thế giới khác truyền đến, xuất hiện tại Trì Dao trên đỉnh đầu, "Mười vạn năm trước, Côn Lôn giới Chư Thần không phải toàn bộ đều đã vẫn lạc, liền ngay cả Thiên Địa Linh Căn đều bị chém đứt, tại sao lại có tân thần sinh ra?"
 
-Man Long Thiếu Quân trên thân, hiện ra từng cái sáng tỏ long văn, trên mỗi một khối lân phiến đều có.
+Trì Dao Nữ Hoàng lông mi nhẹ nhàng vừa nhấc, đặc biệt lạnh nhạt, cùng đối thoại , nói: "Bản hoàng nếu thành thần, cũng liền nói rõ Côn Lôn giới sắp khôi phục."
 
-Những long văn kia , liên tiếp thành một thiên chú ngữ.
+"Khôi phục?"
 
-Trên người nó long văn, chính là Man Long bộ tộc một vị Thánh Vương khắc lục thượng đi, tên là "Cố Long Chú", có siêu cường lực phòng ngự, một khi kích phát ra đến, liền xem như Chân Thánh cũng muốn đánh ra mấy kích mới có thể công phá.
+Một thế giới khác truyền đến thanh âm, mang theo ý cười , nói: "Sớm tại mười vạn năm trước, Côn Lôn giới liền đã thủng trăm ngàn lỗ, nếu không phải Tu Di con lừa trọc hao hết một thân thần lực, phong bế những thế giới lỗ thủng kia, Côn Lôn giới sớm đã biến thành Địa Ngục giới một bộ phận, trở thành Bất Tử Huyết tộc một khối quyền sở hữu, há có thể dung các ngươi một mực kéo dài hơi tàn đến bây giờ?"
 
-Chỉ có thuần huyết trong Long tộc Hoàng tộc thành viên, mới có đãi ngộ như vậy.
+"Nói thực ra, các ngươi căn bản không có bất cứ hy vọng nào, làm gì còn muốn giãy dụa?"
 
-Dực Long Thiếu Quân trên thân, cũng có Cố Long Chú, chỉ tiếc, nó còn chưa kịp kích phát ra đến, liền bị Trương Nhược Trần sử dụng Thời Gian Kiếm Pháp xuất kỳ bất ý chém giết, đã chết rất oan.
+"Bất quá, tại dưới tình huống Côn Lôn giới khô kiệt như vậy, ngươi cũng có thể tu luyện tới Thần cảnh, bởi vậy có thể thấy được, thiên tư cùng tâm tính của ngươi vẫn là có thể, không bằng quy thuận bản tôn, thay Bất Tử Huyết tộc làm việc, chí ít có thể lấy bảo trụ một cái mạng."
 
-"Bành."
+Trì Dao Nữ Hoàng trên thân thần quang lấp lóe, kiếm khí tung hoành, mỉa mai mà nói: "Ngươi ngay cả Tu Di Thánh Tăng tàn lực đều không đánh tan được, còn muốn để bản hoàng quy thuận ngươi?"
 
-Trương Nhược Trần một kiếm này, không thể công phá Cố Long Chú, bị ngăn cản được.
+"Ngươi cho rằng tu luyện thành thần, liền có thể khinh thường giữa thiên địa hết thảy? Chỉ có thể nói, ngươi bất quá chỉ là một cái bị vây ở Côn Lôn giới ếch ngồi đáy giếng. Bản tôn tu luyện 134,000 năm, trong lòng còn có lòng kính sợ, ngươi mới tu luyện bao nhiêu năm?"
 
-Cấu thành Cố Long Chú long văn, mỗi một cái đều giống như một đầu Cầu Long, tràn ra kim mang, giống như là một tầng Kim Chung Tráo một dạng, khiến cho Man Long Thiếu Quân thân thể đều trở nên kim quang chói mắt.
+Trì Dao Nữ Hoàng sắc mặt không thay đổi, không hề sợ hãi, chỉ là ngón tay nhẹ nhàng vuốt vuốt tóc dài , nói: "Tu luyện được càng lâu, chưa hẳn liền càng mạnh."
 
-"Vô dụng, bản thánh có Cố Long Chú hộ thể, dưới Chân Thánh, đứng ở thế bất bại. Chỉ có ta giết người, không có người có thể giết ta."
+Một thế giới khác truyền ra thanh âm, trở nên lăng lệ lên, hừ lạnh một tiếng: "Ngươi thật sự cho rằng bản tôn không cách nào giáng lâm đến Côn Lôn giới? Đã qua 10 vạn năm, Tu Di con lừa trọc sức mạnh còn sót lại đã tiêu tán chín thành, cũng sớm đã trở nên vô cùng yếu ớt. Hôm nay, bản tôn liền giáng lâm Côn Lôn giới, trước chém ngươi, lại diệt Côn Lôn."
 
-Man Long Thiếu Quân vận đủ lực lượng toàn thân, một quyền đánh ra ngoài, kích ở trên Trầm Uyên cổ kiếm.
+"Ầm ầm."
 
-Kim thạch va chạm thanh âm vang lên, Trương Nhược Trần bị chấn động đến bay ra về phía sau đi, rơi xuống bên ngoài mấy dặm.
+Địa Ngục Chi Môn lần nữa chấn động mãnh liệt lên, từng vòng từng vòng thần lực gợn sóng tuôn ra, ngay sau đó, một bàn tay lớn màu đỏ ngòm, từ bên trong vươn ra.
 
-Man Long bộ tộc vốn là lấy lực lượng văn danh thiên hạ, tại cùng cảnh giới, cơ hồ không có chủng tộc nào có thể cùng chúng nó so lực lượng. Vừa rồi hắn đánh ra một quyền kia, sức mạnh bùng lên, đã có thể so với một chút Triệt Địa cảnh tu sĩ một kích.
+Khác với lúc đầu chính là, đại thủ này, cũng không phải là do huyết thủy ngưng tụ mà thành, mà là một cái chân chính tay.
 
-"Ta thế nhưng là nhớ kỹ, trước đây không lâu, ngươi bị một tiểu nữ hài giết đến ngao ngao thét lên, khi đó, ngươi Cố Long Chú tựa hồ cũng không có cái gì dùng." Trương Nhược Trần nói.
+Đó là Bất Tử Huyết tộc một vị Thần Linh thần thủ, từ Địa Ngục giới một mực tìm được Côn Lôn giới.
 
-Nghe được câu này, Man Long Thiếu Quân tức giận hai mắt xích hồng.
+Vẻn vẹn chỉ là thần thủ phía trên phát ra thần lực, chính là chấn động đến Man Ki Đảo mãnh liệt lay động, đại địa oanh minh, toàn bộ Bắc Hải càng là nhấc lên cao mấy chục trượng sóng nước.
 
-Cùng Thanh Mặc trận chiến kia, là nó cả đời sỉ nhục, bị ngược quá thảm, không hề có lực hoàn thủ.
-
-"Đó là một tiểu nữ hài sao? Rõ ràng là một gốc tu hành vài vạn năm hung tính thực vật, trong tay nàng dao phay màu bạc tuyệt đối là Thần Di Cổ Khí, Cố Long Chú cũng ngăn không được." Man Long Thiếu Quân nổi giận gầm lên một tiếng.
-
-"Ta muốn phá ngươi Cố Long Chú, cũng không phải việc khó gì." Trương Nhược Trần nói.
-
-"Khẩu xuất cuồng ngôn, đi chết đi."
-
-Man Long Thiếu Quân bàn tay hóa thành vuốt rồng, hướng phía dưới đánh ra.
+"Tu Di Thánh Tăng sức mạnh còn sót lại, chung quy là không cách nào lại thủ hộ Côn Lôn giới, ngày này là không phải tới quá sớm một chút?"
 — QUẢNG CÁO —
 
-Vuốt rồng kia, bị màu vàng chú văn bao khỏa, so Trương Nhược Trần thân thể còn muốn khổng lồ mấy chục lần.
 
-Trương Nhược Trần không tránh không né, thể nội vang lên long ngâm tượng khiếu thanh âm, một chưởng hướng lên đánh ra đi, cùng vuốt rồng đụng vào nhau.
+Trì Dao Nữ Hoàng môi đỏ có chút mở ra, thở dài một cái, sau đó, nhãn thần trở nên vô cùng lăng lệ, dẫn theo Tích Huyết Kiếm, dứt khoát quyết nhiên đi hướng Địa Ngục Chi Môn, huy kiếm chém đi qua.
+
+Tích Huyết Kiếm vừa ra, huyết khí tung hoành ba ngàn dặm, kiếm phong xuyên thấu Thiên Ngoại Thiên, bạo phát đi ra uy thế, không kém chút nào thần thủ kia.
+
+"Ngu xuẩn, chỉ bằng tu vi của ngươi, cùng bản tôn đấu pháp, bất quá chỉ là châu chấu đá xe."
+
+Trong Địa Ngục Chi Môn, bàn tay lớn màu đỏ ngòm kia, bộc phát ra một cỗ ngập trời thần lực, nghênh hướng Tích Huyết Kiếm, muốn đem vị Nhân tộc tân thần kia trấn sát.
+
+"Ầm ầm."
+
+Trì Dao Nữ Hoàng trên thân có một cỗ thần lực dâng lên mà ra, cùng Tích Huyết Kiếm hòa làm một thể, chém ra lực lượng, đúng là ngăn trở huyết sắc đại thủ kia.
+
+Hai cỗ thần lực đang kịch liệt va chạm, ai cũng không có nhượng bộ.
+
+"Tu luyện 134,000 năm thì như thế nào? Chỉ là một tay mà thôi, ngả vào không nên duỗi địa phương, liền nên chém rụng."
+
+Trì Dao Nữ Hoàng thướt tha thần khu, tựa như là dùng Thất Thải Thần Ngọc điêu khắc thành, kéo lấy lấy Tích Huyết Kiếm, tại huyết sắc đại thủ phía trên xé rách ra một đạo thật dài miệng máu, có đại lượng thần huyết chảy ra tới.
+
+Mặc dù không thể chặt đứt thần thủ, nhưng cũng là đem thần thủ kích thương.
+
+"Cuồng vọng, hôm nay liền để ngươi mở mang kiến thức một chút, cái gì mới thật sự là thần lực, ngươi còn kém rất xa."
+
+Địa Ngục Chi Môn lần nữa chấn động lên, từng vòng từng vòng thần lực gợn sóng tựa như phong bạo một dạng, khiến cho Bắc Hải chi thủy trở nên càng thêm sôi trào.
+
+Sau một khắc, cái thứ hai màu đỏ như máu cự thủ, từ trong Địa Ngục Chi Môn đưa ra ngoài.
+
+Hai cái huyết thủ đồng thời duỗi ra, sức mạnh bùng lên, lập tức tăng lên gấp đôi.
+
+Từ Man Ki Đảo tuôn ra thần lực, làm cho toàn bộ Bắc Hải bầu trời đều biến thành màu đỏ như máu, trong biển sinh linh, càng thêm thấp thỏm lo âu.
+
+"Đôm đốp."
+
+"Đùng."
+
+. . .
+
+Địa Ngục Chi Môn phụ cận không gian tại vỡ vụn, Tu Di Thánh Tăng còn sót lại thần lực, cũng đang nhanh chóng tiêu tán.
+
+"Mười vạn năm trước trận chinh chiến kia, cho đến ngày nay, cũng nên có một cái chấm dứt."
+
+Chủ nhân hai cái đại thủ màu đỏ như máu, có to lớn hơn thần lực, từ trong môn dũng mãnh tiến ra, rất hiển nhiên, chẳng mấy chốc sẽ hoàn toàn giáng lâm đến Côn Lôn giới.
+
+Cùng lúc đó, Côn Lôn giới khác vài chỗ, cũng đang phát sinh kinh thiên động địa biến cố lớn.
+
+Bắc Vực.
+
+Tiên Cơ sơn chỗ sâu, Tu Di Thánh Tăng còn sót lại thần lực cũng là vỡ nát, có Tử Vong Tà Khí tuôn ra, bao trùm lấy phiến thiên địa kia.
+
+Đông Vực.
+
+Trong Vẫn Thần mộ lâm, nằm ngang ở Âm Dương hai giới ở giữa đầu Thi Hà kia, đột nhiên, rung động dữ dội.
+
+Vốn là có Thiên Cốt Nữ Đế lưu lại thạch phù, lập ở trong Thi Hà, phong bế Âm gian cùng Dương gian thông đạo. Thế nhưng là, ở trong Âm gian, lại có một cỗ thần lực, phun trào đi ra, đúng là đánh cho thạch phù nứt ra từng đạo đường vân.
+
+Từng sợi quỷ khí tuôn ra, hướng về toàn bộ Đông Vực lan tràn.
+
+Ngoại trừ Bắc Hải, Bắc Vực, Đông Vực, tại Nam Vực, Tây Vực, Trung Vực, Man Hoang bí cảnh. . . , thậm chí, tại Côn Lôn giới xung quanh một chút Khư Giới, cũng đều xuất hiện giống nhau hiện tượng.
+
+Huyết khí, Tử Vong Tà Khí, quỷ khí, Tu La sát khí. . . Một cỗ đến từ Địa Ngục giới lực lượng, từ thế giới trong lỗ thủng chảy vào, tựa như là muốn đem toàn bộ Côn Lôn giới đều xé nát.
+
+"Tộc ta tộc nhân, tại Địa Ngục giới, đã là đói khát khó nhịn, Côn Lôn giới chính là một tòa kho lúa, nuôi nhốt đều là súc vật cùng lương thực. Lục Tử Minh Vương, ngươi ở đâu, còn không ra theo Phụ Thần cùng một chỗ chinh chiến?"
+
+Trong Địa Ngục Chi Môn, vang lên Bất Tử Huyết tộc vị Thần Linh kia thần âm, giống như là muốn tỉnh lại trong ngủ say Minh Vương.
+
+Hai cái màu đỏ như máu thần thủ lòng bàn tay, ngưng tụ ra hai cái đường kính vạn trượng Huyết Khí Ma Luân, hướng về Trì Dao Nữ Hoàng oanh kích tới, toàn bộ thiên địa phảng phất đều muốn bị ma luân xé mở.
+
+Trì Dao Nữ Hoàng lần nữa huy kiếm, một đạo dài vạn dặm kiếm khí bay ra ngoài, đánh nát bên trong một cái Huyết Khí Ma Luân.
+
+Nhưng là, một cái khác Huyết Khí Ma Luân lại là va chạm trên thân nàng, thất thải sắc Thần Thể, lại là xuất hiện lít nha lít nhít vết rạn, phảng phất là muốn vỡ vụn.
+
+Trì Dao Nữ Hoàng quỳ một chân trên đất, hướng về sau đổ trượt mấy ngàn dặm, khóe miệng chảy ra thần huyết.
+
+"Làm gì còn muốn giãy dụa, không ngăn nổi, quy thuận bản tôn, bản tôn đồng ý với ngươi tiếp tục làm Côn Lôn giới Chúa Tể, thay bản tôn nhìn xem toà chăn nuôi gia súc chi địa. này" Vị Thần Linh kia thanh âm, trở nên thêm gần.
+
+"Ngươi nói. . . Ai là súc?"
+
+Trì Dao Nữ Hoàng một lần nữa đứng dậy, trên người chiến ý không có một tơ một hào tiêu giảm, ánh mắt lại là càng hung hiểm hơn, thân thể tự động cách mặt đất bay lên, đọc lên bốn chữ , nói: "Quy Nguyên Nhất Kiếm."
+
+Trong tay nàng Tích Huyết Kiếm, vẽ ra hơi quét một vòng.
+
+Lập tức, toàn bộ thiên địa đều trở nên đen kịt mà ảm đạm, tại trên đỉnh đầu nàng không, đầy trời tinh thần hiện ra.
+
+"Hoa —— "
+
+Một kiếm này, hội tụ nàng toàn thân thần lực, toàn lực ứng phó vung chém ra ngoài.
+
+Hai cái màu đỏ như máu thần thủ, toàn lực bộc phát, ngưng kết ra một cái càng thêm to lớn Huyết Khí Ma Luân, oanh kích đi lên.
+
+"Ầm ầm."
+
+"Phốc phốc."
+— QUẢNG CÁO —
+
+
+Trì Dao Nữ Hoàng lần nữa bị Huyết Khí Ma Luân đánh trúng, toàn thân đều là máu thịt be bét, Thần Thể đều bị đánh đến rách tung toé, rơi ở trên mặt đất, ném ra một cái cự đại hố trời.
+
+Bất quá, Tích Huyết Kiếm vung ra đi đằng sau, cũng là chặt đứt hai cái thần thủ.
+
+Địa Ngục Chi Môn một đầu khác, vang lên một tiếng tức giận gào thét , nói: "Ngươi không ngăn nổi, hôm nay, Côn Lôn giới tất vong."
+
+"Vong không được!"
+
+Trì Dao Nữ Hoàng một lần nữa đứng dậy, hai tay giơ lên Tích Huyết Kiếm, thể nội thần huyết liên tục không ngừng bay ra ngoài, hóa thành từng đầu huyết khí dòng sông, phóng tới Côn Lôn giới từng cái phương vị.
+
+"Chuẩn bị nhiều năm như vậy, Thiên Địa Tế Đàn cũng nên khởi động."
+
+Trong đó một đầu huyết hà, bay đến Lưỡng Nghi tông, xông vào tiến trong toà Thiên Địa Tế Đàn kia.
+
+Một cái khác đầu huyết hà, bay ra Côn Lôn giới, tiến vào Mộc Tinh Khư Giới, cũng là xông vào tiến một tòa Thiên Địa Tế Đàn.
+
+. . .
+
+Tất cả Thiên Địa Tế Đàn, toàn bộ đều vận chuyển.
+
+Trong tế đàn, riêng phần mình bay ra một vệt sáng, tất cả chùm sáng đan vào một chỗ, đem trọn cái Côn Lôn giới đều bắt đầu thủ hộ.
+
+Thi Hà, Tiên Cơ sơn, Man Ki Đảo. . . Những lỗ thủng kết nối Địa Ngục giới này, lần nữa bị phong bế.
+
+Trong Địa Ngục Chi Môn, vang lên một đạo âm trầm thanh âm: "Nguyên lai các ngươi đã sớm chuẩn bị, bất quá, chỉ là Thiên Địa Tế Đàn, cản không được bao lâu. Các ngươi tiếp tục kéo dài hơi tàn, lần sau bản tôn chân thân giáng lâm, cũng không phải là hôm nay kết quả như vậy. . ."
+
+Âm thanh kia, dần dần đi xa, cuối cùng hoàn toàn biến mất.
+
+Trì Dao Nữ Hoàng Thần Thể, nhẹ nhàng lay động một cái, không cách nào lại chèo chống, kém một chút ngã trên mặt đất.
+
+Bất quá, nàng chung quy là lấy trường kiếm chống được thân thể, không để cho mình ngã xuống, bởi vì còn có một cái càng trọng yếu hơn sự tình, cần nàng tự mình đi làm.
+
+"Triều đình Chư Thánh nghe lệnh, bản hoàng sắp rời đi Côn Lôn giới, tại trong lúc này, do Hoàng Yên Trần tạm thời chấp chưởng Đệ Nhất Trung Ương đế quốc hết thảy chính vụ, những người còn lại nhất định phải dốc sức phụ tá. Nếu có người không phục tùng điều khiển, bản hoàng trở về từng cái chém tận giết tuyệt."
+
+"Thứ hai, Thiên Địa Linh Căn Ngô Đồng Thần Thụ đã khôi phục, nếu là hắn có nhu cầu gì, triều đình cần cho ủng hộ lớn nhất."
+
+"Thứ ba. . ."
+
+. . .
+
+Liên tiếp hạ đạt mười mấy đạo mệnh lệnh, đều là lấy thần niệm truyền âm, sau đó, Trì Dao Nữ Hoàng mới là lại bắt đầu vuốt ve trong tay Tích Huyết Kiếm, ánh mắt có chút phức tạp , nói: "Thời gian a, thời gian, thời gian đúng là như vậy gấp gáp cùng quý giá! Giết người a, giết người, còn phải tiếp tục giết người! Muốn chân chính thống nhất, trước khi rời đi, còn phải lại đem Côn Lôn giới huyết tẩy một phen."
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1372
+
+Chương 1369: Một năm sau
+
+Converter: DarkHero
+
+Theo Thiên Địa Tế Đàn mở ra, tràn ngập đến Côn Lôn giới Tử Vong Tà Khí, huyết khí, tử khí. . . , thời gian dần trôi qua lui tán, rất nhanh liền khôi phục lại bình tĩnh cùng tường hòa.
+
+Đối với tuyệt đại đa số sinh linh tới nói, chỉ là coi là phát sinh thiên địa dị tượng, căn bản không biết đến cùng chuyện gì xảy ra.
+
+Chỉ có đứng tại đỉnh cao nhất những cường giả kia, phát giác được khí tức nguy hiểm.
+
+Tửu Phong Tử cùng Cổ Tùng Tử nhìn xem trên đỉnh đầu huyết khí, dần dần tiêu tán, đều là thật dài thở ra một hơi, chỉ cảm thấy toàn thân đều trở nên nhẹ nhõm.
+
+Vừa rồi, huyết khí bao phủ thiên địa thời điểm, cho dù là lấy hai người bọn họ tu vi, cũng đều cảm giác được thánh hồn đang run sợ, cỗ khí tức kia, tương đương đáng sợ.
+
+Cổ Tùng Tử hướng đứng tại đỉnh núi Khổng Lan Du nhìn thoáng qua, thả người nhảy lên, cũng là đến đỉnh núi, khom mình hành lễ, sau đó hỏi: "Thánh Tổ, tu vi của ngươi viễn siêu hai người chúng ta , có thể hay không biết vừa rồi đến cùng chuyện gì xảy ra?"
+
+Khổng Lan Du hai tay chắp sau lưng, tóc trắng trong gió bay lên, một đôi tròng mắt nhìn chằm chằm thiên khung, lộ ra một đạo trầm ngưng thần sắc. Nàng nói: "Rung chuyển lớn sắp đến, Côn Lôn giới sinh linh, không có người nào có thể may mắn thoát khỏi."
+
+Cổ Tùng Tử lộ ra không hiểu thần sắc , nói: "Trì Dao Nữ Hoàng đều đã thành thần, uy chấn thiên hạ, đương thời vô địch, ai còn dám cùng nàng đối nghịch? Tổ Long sơn, Cửu Lê cung, hay là trong tứ phương hải vực những Thú Hoàng kia? Bọn chúng có can đảm kia chế tạo rung chuyển lớn sao?"
+
+Khổng Lan Du khe khẽ lắc đầu, đột nhiên, song mi có chút vẩy một cái, đã nhận ra một người khí tức, trong mắt lóe lên một đạo dị dạng ba động.
+
+"Hai người các ngươi chiếu cố tốt Trương Nhược Trần, bản thánh rất nhanh liền trở về."
+
+Khổng Lan Du thân hình khẽ động, biến mất tại đỉnh núi.
+
+Sau một khắc, Khổng Lan Du đã tới bên ngoài tám ngàn dặm, rơi xuống tại bờ sông một đầu cổ hà, một lần nữa ngưng tụ ra thân hình. Hai mắt của nàng, nhìn chằm chằm phía trước.
+
+Chỉ gặp, Trì Dao Nữ Hoàng hai tay chắp sau lưng, đứng tại mép nước, nhìn qua trên mặt sông hơi nước.
+
+Tại Trì Dao Nữ Hoàng bên cạnh, có bốn cái tiểu thú, giống như bốn cái sủng vật đồng dạng, nằm trên đất. Một con hình thái như rồng, một con mèo trắng mọc ra chín cái đuôi, một con cá mọc ra cánh, còn có một con Ngạc Quy lớn chừng bàn tay.
+
+Khổng Lan Du ánh mắt, chỉ là hướng bốn cái tiểu thú liếc qua, sắc mặt chính là mãnh liệt biến đổi.
+
+Đó cũng không phải là bốn cái sủng vật, mà là Chúa Tể trong Man Hoang bí cảnh cùng tứ phương hải vực, không nghĩ tới, lấy bọn chúng kinh khủng tu vi, vậy mà rơi vào kết quả như vậy.
+
+Khổng Lan Du ánh mắt, khóa chặt trên người Trì Dao thời điểm, nhãn thần trở nên vô cùng trầm lãnh , nói: "Trì Dao, ngươi vì sao muốn một lần lại một lần thương hắn? Bị thương hắn, lại vì sao còn muốn xuất hiện?"
+
+Trì Dao Nữ Hoàng thần sắc đạm mạc, đưa lưng về phía Khổng Lan Du , nói: "Ngươi thế mà cùng bản hoàng đàm luận thương, ngươi biết cái gì là thương sao? Bản hoàng liền hỏi ngươi một vấn đề, để cho ngươi giết hắn, cùng để hắn giết ngươi, cái nào mới khiến cho ngươi càng thương?"
+
+Khổng Lan Du ánh mắt ngưng tụ, đúng là không cách nào trả lời nàng.
+— QUẢNG CÁO —
+
+
+Bởi vì, thật đến không cách nào lựa chọn thời điểm, nàng tình nguyện chính mình đi chết, cũng không muốn thương Trương Nhược Trần một ngón tay.
+
+Trì Dao trong ánh mắt, mang theo vài phần không nói rõ được cũng không tả rõ được cảm xúc , nói: "Ta 800 năm, là ròng rã 800 năm, mỗi một ngày trải qua đều giống như một năm. Hắn 800 năm, chỉ là một cái chớp mắt thoáng qua. Ngươi thế mà cùng ta đàm luận thương. . . Ngươi xứng sao?"
+
+Khổng Lan Du nói: "Thế nhưng là, ngươi ngay cả gặp hắn một lần cũng không dám, ngươi đang sợ hãi cái gì?"
+
+Trì Dao nhắm lại hai mắt, không nói gì.
+
+Khổng Lan Du nói: "Ngươi đến cùng đang làm cái gì? Năm đó, các ngươi lại đang mưu đồ cái gì? Biểu ca so ta thông minh được nhiều, rất nhanh là hắn có thể đoán được cùng nhìn thấu, đến lúc đó, hắn đến cùng có nên giết ngươi hay không? Ngươi vì sao muốn như thế tra tấn hắn?"
+
+"Chết, với ta mà nói, là một loại giải thoát, cũng là một loại nhân từ, ta một mực chờ đợi ngày đó. Còn sống, mới là một loại tàn nhẫn cùng tra tấn. Nếu quả như thật có ngày đó, ta nhất định sẽ cho hắn một lý do tất sát ta, sẽ không để cho hắn khó xử. Điều kiện tiên quyết là, hắn đến có năng lực giết được ta, bằng không hắn chính là một tên phế vật chính cống."
+
+Trì Dao lại nói: "Trước kia, bản hoàng không giết ngươi, là bởi vì lúc kia ngươi cũng chỉ là một tên phế vật, không đáng bản hoàng xuất thủ. Bây giờ, ngươi bước vào Đại Thánh cảnh giới, có thể Phong Hoàng xưng đế, tốt với ta không dễ dàng tạo dựng lên Đệ Nhất Trung Ương đế quốc uy hiếp càng lúc càng lớn, cũng sẽ không thể lại lưu ngươi."
+
+"Ngươi muốn giết ta?" Khổng Lan Du nói.
+
+Trên mặt đất, bốn cái tiểu thú cũng đều ngẩng đầu lên, hướng Khổng Lan Du nhìn thoáng qua, lộ ra thương hại thần sắc.
+
+Trì Dao nói: "Hiện tại, bày ở trước mặt ngươi, chỉ có hai con đường. Con đường thứ nhất, theo ta đi, cùng đi liều một cái tương lai không biết kết quả. Con đường thứ hai, ta giết ngươi, dù sao sớm muộn cũng phải chết, chết trong tay ta, chí ít có thể lấy cái chết vừa vặn mặt một chút."
+
+Khổng Lan Du không biết Trì Dao đến cùng đang làm cái gì, nhưng cũng có thể đoán được một chút.
+
+Cuối cùng, Khổng Lan Du lựa chọn cùng Trì Dao cùng rời đi, trước khi rời đi, không có trở về nhìn Trương Nhược Trần, rất sợ hãi nhìn thấy Trương Nhược Trần bộ dáng cô độc cùng bi thương kia, liền rốt cuộc đi không nổi.
+
+Một năm sau.
+
+Ròng rã thời gian một năm, Côn Lôn giới lần nữa khôi phục quá ôn hòa cường thịnh.
+
+Bắc Vực Bất Tử Huyết tộc, bị triều đình đại quân giết đến toàn quân bị diệt, chỉ còn lại có một chút cá lọt lưới, nhưng cũng đã không thành tài được.
+
+Nam Vực Tử Thiện giáo, rút lui đến vực ngoại, Tử Thiện lão tổ tự mình truyền ra pháp lệnh, chỉ cần Nữ Hoàng tại vị một ngày, Tử Thiện giáo giáo chúng liền không lại bước vào Côn Lôn giới một bước.
+
+Đông Vực Phong Đô Quỷ Thành bị công phá, hơn chín thành Vong Linh Quỷ Sát đều bị đánh đến hồn phi phách tán.
+
+Man Hoang bí cảnh Man thú cùng tứ phương Thủy tộc Man thú, các đại chủng tộc, toàn bộ đều tuyên thệ thần phục với Đệ Nhất Trung Ương đế quốc.
+
+Đây là một cái trước nay chưa có thịnh thế, vạn tộc triều bái, thiên hạ quy tâm.
+
+Đã từng những thiên tuấn kiệt tài kia, nhao nhao đều trưởng thành đứng lên, trở thành một mình đảm đương một phía bá chủ.
+
+Tuyết Vô Dạ trở thành Vạn Hương thành thành chủ, Lập Địa hòa thượng trở thành Phạm Thiên Đạo Đạo Chủ, Trì Vạn Tuế phong Thiên Vương, Âu Dương Hoàn trở thành Ma giáo phó giáo chủ, Tuế Hàn trở thành Cầm Tông tông chủ. . .
+
+Mỗi người đều tại viết chính mình truyền kỳ, đang cố gắng tu luyện, tại để cho mình tiếp tục thoát biến, trở nên càng thêm cường đại.
+
+Nhưng mà, đã từng vị Thời Không truyền nhân Trương Nhược Trần danh xưng trong cùng thế hệ vô địch kia, lại là ròng rã mất tích một năm, không còn có xuất hiện tại Côn Lôn giới, vô số người đều cho là hắn đã chết đi.
+
+Thời gian dần trôi qua, đám người đem hắn lãng quên, bắt đầu đàm luận truyền thuyết mới.
+
+"Phương nam Thiên Địa Linh Căn Ngô Đồng Thần Thụ khôi phục, ngay tại đền bù Côn Lôn giới thiếu thốn thiên địa quy tắc, nghe nói, rất nhiều tu sĩ đều tiến đến tìm nơi nương tựa."
+
+"Nói đùa, đó là Thiên Địa Linh Căn, một gốc Thần Thụ, theo hắn cùng một chỗ tu luyện, có vô tận chỗ tốt. Nghe nói, ngay cả rất nhiều đại nhân vật trong triều đình đều là đem tài nguyên tu luyện liên tục không ngừng đưa qua, hi vọng có thể cùng hắn kết giao. Chỉ bằng các ngươi dạng thiên phú cùng thực lực này, tiến đến tìm nơi nương tựa, đoán chừng người khác cũng sẽ không thu ngươi."
+
+. . .
+
+Côn Lôn giới trong tất cả Cổ tộc, cường đại nhất bộ tộc, không ai qua được Hỏa tộc.
+
+Hỏa tộc một mực tại thủ hộ Ngô Đồng Thần Thụ, vô cùng thần bí, cũng mười phần điệu thấp, cơ hồ khiến người cho là bọn họ đã diệt tộc . Bất quá, theo Ngô Đồng Thần Thụ khôi phục, Hỏa tộc xuất hiện lần nữa tại tất cả mọi người trong tầm mắt.
+
+Bọn hắn cường đại, cũng dần dần triển lộ ra.
+
+Phong Đô Quỷ Thành chính là do Ngô Đồng Thần Thụ dẫn đầu Hỏa tộc tu sĩ, đem hắn công phá, đồng thời đem Quỷ thành thành chủ "Thần Sơ Quỷ Vương" đều trấn áp, đem họa loạn Đông Vực Vong Linh Quỷ Sát diệt chín thành, chỉ có cực ít bộ phận đào tẩu.
+
+Hỏa tộc nhất chiến thành danh, uy chấn thiên hạ.
+
+Ngô Đồng Thần Thụ Thu Vũ cũng là bằng vào trận chiến này, trở thành cả thế gian đều chú ý hùng kiệt, nhận thiên hạ tu sĩ khen ngợi.
+
+Một ngày này, Thu Vũ cùng Hỏa tộc bốn vị trưởng lão, giá lâm Ma giáo tổng đàn Vô Đỉnh sơn, đạt được Ma giáo giáo chủ tự mình tiếp kiến.
+
+Tin tức sau khi truyền ra, oanh động toàn bộ Bái Nguyệt ma giáo, vô số tu sĩ đều muốn thấy Thu Vũ hình dáng, cũng đang thảo luận Thu Vũ giá lâm Vô Đỉnh sơn mục đích.
+
+"Thu Vũ đã từng thế nhưng là « Bán Thánh Bảng » xếp hạng thứ nhất cường giả, liền ngay cả Lập Địa đại sư cùng Tuyết Vô Dạ đều chỉ có thể xếp hạng thứ hai cùng thứ tư."
+
+"Nghe nói, Thu Vũ khuôn mặt vô cùng anh tuấn, không kém Tuyết Vô Dạ, đều là nhất đẳng mỹ nam tử."
+— QUẢNG CÁO —
+
+"Thu Vũ nếu là Ngô Đồng Thần Thụ, cũng chính là con trai của Thần, tương lai hơn phân nửa cũng có thể bước vào Thần cảnh. Nếu người nào có thể được đến hắn ưu ái, tương lai nhất định nhất phi trùng thiên."
+
+Lúc chạng vạng tối, tin tức truyền ra, Thu Vũ đúng là đến Vô Đỉnh sơn cầu hôn, hi vọng Ma giáo giáo chủ có thể đem Thánh Nữ Mộc Linh Hi gả cho hắn, làm đạo lữ của hắn.
+
+Tin tức này sau khi truyền ra, tự nhiên là dẫn tới vô số thiên tài thiếu nữ ghen ghét.
+
+"Mộc Linh Hi vận khí cũng quá tốt, vậy mà đạt được Thu Vũ công tử hâm mộ, sau này, chỉ sợ phó giáo chủ đều muốn mời nàng ba phần."
+
+"Thần giáo có thể cùng Thu Vũ công tử thông gia, cũng là một chuyện tốt, chúng ta đoán chừng cũng có thể được rất nhiều chỗ tốt."
+
+"Tiểu Thánh Nữ Băng Hoàng chi thể đã đại thành, cùng Thu Vũ công tử có thể xưng tuyệt phối."
+
+. . .
+
+Hôn sự đã định đằng sau, Hỏa tộc cùng Bái Nguyệt ma giáo một đoàn tu sĩ, chính là hướng Mộc Linh Hi nơi ở bước đi, chuẩn bị đem việc vui này nói cho nàng.
+
+Thu Vũ mặc một thân áo vàng, thân hình thẳng tắp, đích thật là anh tuấn thoải mái, trên người có một loại siêu nhiên khí chất, những nơi đi qua, dẫn tới vô số nữ tính tu sĩ chú mục cùng sợ hãi thán phục.
+
+Bỗng dưng, Thu Vũ dừng bước lại, hơi suy tư một phen , nói: "Hôn sự đã định mới về sau, mới đi thông tri nàng. Mộc cô nương, khẳng định sẽ rất tức giận, trước tiên cần phải chuẩn bị một phần bồi tội lễ vật mới được."
+
+Ma giáo phó giáo chủ Âu Dương Hoàn, nhẹ giọng cười một tiếng: "Thu Vũ công tử đã từng đã cứu Linh Hi tính mệnh, các ngươi vốn là có lấy rất sâu tình nghĩa, Linh Hi nếu là nghe nói việc này, khẳng định vô cùng mừng rỡ, làm sao có thể sinh khí? Vân thúc, đúng không?"
+
+Nghe được âm thanh "Vân thúc" này, Vân Tranh trong lòng chính là đại hỉ.
+
+Trước đó, lấy Vân Tranh trong giáo địa vị, Âu Dương Hoàn làm sao có thể gọi hắn là Vân thúc?
+
+Nhưng là bây giờ lại khác, Mộc Linh Hi sắp gả cho Thu Vũ, mà xem như phụ thân của Mộc Linh Hi, Vân Tranh địa vị cùng trước kia tự nhiên là có biến hóa nghiêng trời lệch đất.
+
+Liền ngay cả phó giáo chủ đều gọi hô hắn là Vân thúc, toàn bộ thần giáo tu sĩ, sau này đối với hắn chỉ sợ đều muốn tất cung tất kính.
+
+Vân Tranh cười một tiếng: "Tiểu nữ có thể có được Thu Vũ công tử ưu ái, vốn là nàng mười thế đã tu luyện phúc khí. Bất quá. . . Tiểu nữ tính cách, từ nhỏ đã rất phản nghịch, nếu như về sau đắc tội Thu Vũ công tử, công tử nên dạy huấn luyện hay là đến giáo huấn, nàng như thế tính cách đã sớm nên sửa lại."
+
+Đánh giá điểm 9-10 cuối chương để ủng hộ Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1373
+
+Chương 1370: Kiếm khách
+
+"Sí trưởng lão, đem Vạn Niên Minh Đông Băng Phách cho ta, ta muốn tặng cho Mộc cô nương làm bồi tội lễ vật." Thu Vũ nói ra.
+
+Sau lưng Thu Vũ, đứng tại một vị lão giả mi tâm có hỏa diễm ấn ký, toàn thân Thánh Đạo quy tắc xen lẫn, mi tâm hỏa diễm, càng là như là Thần Lô đang thiêu đốt.
+
+Lão giả hơi do dự một chút , nói: "Minh Đông Băng Phách trân quý bực nào, đối với công tử cũng có tác dụng lớn. . ."
+
+Thu Vũ nhàn nhạt cười một tiếng: "Cùng Mộc cô nương so ra, chỉ là Vạn Niên Minh Đông Băng Phách, không đáng giá nhắc tới."
+
+Chung quanh những tu sĩ Bái Nguyệt ma giáo kia, đều là hai mặt nhìn nhau, đều động dung.
+
+Vạn Niên Minh Đông Băng Phách tuyệt đối là vô cùng quý hiếm bảo vật, giá trị viễn siêu bình thường thánh dược, Thánh Giả có được hàn băng thể chất sẽ phi thường đỏ mắt, Thu Vũ vậy mà trong lúc đàm tiếu, liền đem hắn đưa cho Mộc Linh Hi.
+
+"Khí độ như thế, quả nhiên là thường nhân không cách nào so sánh, Tiểu Thánh Nữ gả cho hắn, ngược lại là có chút trèo cao." Bái Nguyệt ma giáo lão bối tu sĩ, trong lòng đều là như vậy thầm nghĩ.
+
+Vị lão giả mi tâm có hỏa diễm ấn ký kia, cuối cùng lấy ra một cái màu lam hộp ngọc băng, đưa tới Thu Vũ trong tay.
+
+Thu Vũ, Âu Dương Hoàn, Vân Tranh đi tại phía trước nhất, những người còn lại đều theo ở phía sau, một đoàn người tiến vào Thánh Nữ cung chỗ tu luyện linh sơn —— Thiên Thủy phong.
+
+Thánh Nữ cung chỉ lấy nữ đệ tử, trên đường đi, đều là có thể nhìn thấy một chút nữ tử khuôn mặt mỹ lệ trong núi phi hành, trong lúc các nàng nhìn thấy Thu Vũ cùng Âu Dương Hoàn thời điểm, toàn bộ đều mặt đỏ nhịp tim, tranh nhau chuyển cáo, tạo thành rất nhiều oanh động.
+
+Rất nhanh Thu Vũ cùng Âu Dương Hoàn đến Thiên Thủy phong tin tức, liền truyền khắp Thánh Nữ cung.
+
+Không chỉ có là nữ tính tu sĩ bình thường chạy tới, liền ngay cả mấy vị đang lúc bế quan tu luyện Thánh Nữ, cũng đều tiến đến bái kiến.
+
+Các nàng tự nhiên là biết, Thu Vũ cùng Âu Dương Hoàn đi vào Thiên Thủy phong mục đích, nhao nhao đều lộ ra thần sắc hâm mộ và ghen tỵ.
+
+Đám người xuyên qua một mảnh tĩnh mịch rừng cây, phía trước sáng tỏ thông suốt, xuất hiện một tòa tu luyện bí phủ, phía trước tu luyện bí phủ, thì là một mảnh màu bích lục linh hồ.
+
+"Bái kiến phó giáo chủ."
+
+Phụ trách phụng dưỡng Mộc Linh Hi thị nữ, toàn bộ đều quỳ rạp dưới đất, dập đầu hành lễ.
+
+Lấy Thu Vũ cầm đầu, một nhóm ba người, trực tiếp hướng tu luyện bí phủ đi tới. Những người còn lại thì là lưu tại nơi xa, không có bước vào phiến khu vực này.
+
+Lúc này, một cái thanh âm băng lãnh, từ linh hồ ven hồ vang lên , nói: "Không có bí phủ chủ nhân đồng ý , bất kỳ tu sĩ nào lại hướng đi về trước một bước, đều là tội chết."
+
+Rất thanh âm không hài hòa.
+
+Cho tới giờ khắc này, Thu Vũ mới phát hiện, linh hồ ven hồ lại có một người trong đó thả câu, thế mà không có quỳ xuống, lập tức, có chút ngạc nhiên.
+
+Thu Vũ hướng Âu Dương Hoàn nhìn chằm chằm một chút, cười nói: "Âu Dương huynh, Bái Nguyệt thần giáo không phải danh xưng chế độ đẳng cấp sâm nghiêm, làm sao còn có tu sĩ nhìn thấy ngươi, thế mà đều có thể không quỳ?"
+
+Ngồi tại linh hồ ven hồ, là một nam tử chừng 20 tuổi, trên người áo vải đều giặt đến hơi trắng bệch, cũng rất chỉnh tề, một tay nắm lấy cần câu, một cái tay khác lại là nắm lấy một thanh vết rỉ loang lổ thiết kiếm.
+
+Âu Dương Hoàn hướng nam tử áo vải kia nhìn chằm chằm một chút, ánh mắt lộ ra một đạo ánh mắt thâm trầm , nói: "A Nhạc, không được đối với Thu Vũ công tử vô lễ."
+
+A Nhạc nói: "Ta chỉ là đang giảng quy củ của nơi này , bất kỳ người nào đều được theo quy củ làm việc."
+
+Âu Dương Hoàn nhướng mày , nói: "Nơi này là Thánh Nữ cung, không phải ngươi nên đợi địa phương, còn không lập tức trở về đi."
+— QUẢNG CÁO —
+
+"Nơi này chính là ta nên đợi địa phương!" A Nhạc không nhanh không chậm nói ra: "Các ngươi mời trở về đi, Thánh Nữ điện hạ hôm nay không muốn gặp bất luận kẻ nào."
+
+"Ngươi nói coi như sao? Bản thánh chính là phụ thân của nàng, ai dám ngăn trở?"
+
+Vân Tranh có chút tức giận, nữ nhi của mình có thể có được Thu Vũ ưu ái, cỡ nào vinh hạnh, lại còn có người dám trở ngại chuyện này?
+
+Ai dám ngăn trở, ai liền phải chết.
+
+Vân Tranh sợ đắc tội Thu Vũ, dẫn đến thông gia thất bại, động sát tâm, thể nội thánh khí nhanh chóng vận chuyển lại, ngưng tụ ra một đạo bàn tay, hướng về A Nhạc đỉnh đầu đánh ra đi qua.
+
+Phải biết, Vân Tranh tu vi, cũng là bước vào Thánh cảnh, một khi xuất thủ, tự nhiên là long trời lở đất, từng đạo phong lôi âm thanh chấn động toàn bộ Thiên Thủy phong.
+
+A Nhạc ổn thỏa Điếu Ngư Đài, khuôn mặt vẫn như cũ rất đạm mạc, chỉ là cánh tay nhẹ nhàng lắc một cái.
+
+"Bá —— "
+
+Dây câu bắt đầu từ trong nước bay ra, vạch ra một đạo duyên dáng đường cong, so bất luận lưỡi dao gì đều muốn bén nhọn, phá vỡ Vân Tranh bàn tay, quấn quanh ở phần cổ của hắn.
+
+"Vậy mà trốn không thoát một cây dây câu."
+
+Vân Tranh trong lòng, tương đương giật mình.
+
+Sau một khắc, Vân Tranh trong mắt kinh hãi, lại biến thành vẻ sợ hãi.
+
+"Khanh khách."
+
+Quấn quanh ở hắn phần cổ dây câu, vậy mà tại co vào, xuyên thấu nhục thân phòng ngự, cắt ra một đạo màu đỏ như máu ấn ký, có giọt giọt thánh huyết thuận dây câu trượt xuống, tựa như là muốn đem đầu của hắn cắt bỏ.
+
+"A Nhạc, đừng giết hắn."
+
+Nơi xa, trong tu luyện bí phủ, vang lên Mộc Linh Hi thanh âm ôn nhu.
+
+Nghe được đạo thanh âm này, A Nhạc đem cần câu nhẹ nhàng vung vẩy một chút, lập tức, Vân Tranh cách mặt đất bay lên, phù phù một tiếng, đầu dưới chân trên rơi vào tiến trong linh hồ.
+
+"Ngươi. . ."
+
+Vân Tranh cảm giác được mặt mũi quét hết, nổi giận gầm lên một tiếng, thế nhưng là, khi hắn nhìn thấy A Nhạc đôi mắt lạnh nhạt đến không mang theo bất luận tình cảm gì kia, yết hầu tựa như là bị một bàn tay vô hình nắm đồng dạng, đúng là một chữ đều nói không ra.
+
+Thấy cảnh này, Thu Vũ trên mặt, ngược lại lộ ra một đạo nụ cười nhàn nhạt, nhẹ gật đầu , nói: "A Nhạc, không sai, một người rất có ý tứ, về sau ngươi theo bản công tử cùng một chỗ tu luyện đi!"
+
+"Ngươi, còn chưa xứng."
+
+A Nhạc tiếp tục thả câu, căn bản đều không có mắt nhìn thẳng Thu Vũ.
+
+Cho dù là lấy Thu Vũ hàm dưỡng, trong mắt cũng là xuất hiện một chút tức giận , nói: "Tu vi của ngươi cũng không tệ lắm, nhưng lại ngăn không được bản công tử. Ngươi hẳn phải biết, bản công tử từng tại « Bán Thánh Bảng » xếp hạng thứ nhất, trong cùng thế hệ, người có thể tiếp ta một chiêu, cũng là ít càng thêm ít. Đối địch với ta, không thể nghi ngờ là tìm chết. Tương phản, cùng ta là bạn, lại có thể được đến đếm mãi không hết chỗ tốt."
+
+Thu Vũ hiển nhiên là rất thưởng thức A Nhạc, muốn đem hắn thu đến dưới trướng, thậm chí là kết giao là bằng hữu.
+
+Không biết bao nhiêu tu sĩ cầu đều cầu không đến cơ hội như vậy.
+
+A Nhạc nói: "Ta cái mạng này, vốn chính là người khác cho ta, chết ở chỗ này, coi như là trả lại cho hắn."
+
+"Đáng tiếc a , đáng tiếc."
+
+Thu Vũ gặp A Nhạc ý chí vô cùng kiên định, trong lòng biết không cách nào đem hắn thu phục, chính là nhẹ nhàng thở dài, không còn đi khuyên, trực tiếp phóng ra bước chân, hướng về Mộc Linh Hi tu luyện bí phủ đi tới.
+
+"Chết."
+
+A Nhạc đọc lên một chữ như vậy.
+
+Cùng lúc đó, dây câu lần nữa từ trong nước bay ra, vạch ra mấy chục đạo đường vòng cung, có lăng lệ tiếng rít truyền đi, những đường vòng cung kia, phô thiên cái địa hướng về Thu Vũ ép tới.
+
+"Thật là lợi hại, mỗi một đường vòng cung đều là thật công kích, ẩn chứa có nhất là cực hạn Kiếm Đạo quy tắc."
+
+Âu Dương Hoàn đều là âm thầm giật mình, chỉ là một kích này, lấy tu vi của hắn, muốn ngăn lại, cũng không phải một chuyện dễ dàng.
+
+Âu Dương Hoàn thật sâu lườm A Nhạc một chút, hết sức tò mò tu vi của hắn đến cùng là đạt đến cấp độ gì?
+
+"Vậy mà thật dám đối bản công tử xuất thủ, ngươi có chút không biết lượng sức!"
+
+Thu Vũ nhàn nhạt cười một tiếng, mang theo vài phần thần sắc khinh thường, năm ngón tay hướng về phía trước nhấn một cái, lập tức một mảnh hỏa diễm dũng xuất ra ngoài, đem tất cả đường vòng cung toàn bộ đều đốt thành khói xanh, mười phần nhẹ nhõm hóa giải.
+
+A Nhạc ánh mắt ngưng tụ, có một cỗ sôi trào mãnh liệt sát khí, từ thể nội tuôn ra, nhấc lên thanh thiết kiếm này, trong nháy mắt liền xông ra ngoài.
+
+Một kiếm đâm ra, thẳng đến tim Thu Vũ.
 
 "Đùng đùng."
 
-Dưới chân hắn sông băng phá toái, thân thể bị vuốt rồng đè xuống chìm.
+Một kiếm này tốc độ, nhanh đến mức dọa người, vang lên liên tiếp tiếng nổ.
 
-"So lực lượng, ngươi còn kém rất xa." Man Long Thiếu Quân cười lớn một tiếng.
+Đương nhiên, âm thanh lan truyền tốc độ, còn kém rất rất xa A Nhạc tốc độ, cho nên Thu Vũ căn bản nghe không được tiếng nổ.
 
-"Phá cho ta."
+Bất quá, Thu Vũ lại là cảm giác được một loại đã lâu lạnh buốt khí tức, đối với Ngô Đồng Thụ sinh trưởng ở trong Hỏa Vực tới nói, đã thật lâu không có cảm giác được qua ý lạnh.
 
-Tịnh Diệt Thần Hỏa từ Trương Nhược Trần lòng bàn tay tuôn ra, nung khô chú văn màu vàng, chỉ là một lát, chú văn màu vàng liền biến thành từng sợi long khí màu vàng tiêu tán mà ra.
+Hai mắt của hắn co rụt lại, hướng về A Nhạc nhìn chằm chằm đi qua.
 
-"Điều đó không có khả năng. . . Đây là lửa gì, làm sao so Tiêu Linh Long Hỏa còn muốn đáng sợ?"
+Để Thu Vũ giật mình là, lấy tu vi của hắn, lấy thị lực của hắn, vậy mà cũng chỉ là nhìn thấy một đạo tàn ảnh, căn bản thấy không rõ kiếm chiêu của đối phương, bởi vậy có thể thấy được, A Nhạc một kiếm này là bực nào nhanh chóng.
 
-Man Long Thiếu Quân vuốt rồng dính vào Tịnh Diệt Thần Long, căn bản ngăn cản không nổi, móng vuốt bốc cháy lên, biến thành tro bụi.
+Bị bất đắc dĩ, Thu Vũ chỉ có thể toàn lực vận chuyển thể nội thánh khí, 72 tầng xích hồng sắc Thánh Hỏa sóng lửa, trào ra ngoài đi.
 
-Man Long Thiếu Quân rất quả quyết, tự đoạn cánh tay, để tránh ngọn lửa màu xanh lan tràn toàn thân.
-
-Sau đó, nó kích phát ra chạy trốn bí thuật, hướng nơi xa bỏ chạy.
-
-"Đi không nổi!"
-
-Trương Nhược Trần ngăn lại Man Long Thiếu Quân đường đi, huy kiếm chém ra đi, đem Man Long Thiếu Quân chém té xuống đất, phần bụng vị trí lôi ra một đạo thật dài vết máu, cơ hồ đưa nó thân thể cắt thành hai phần.
-
-"Đừng có giết ta, vị hôn thê của ngươi rất có thể đã bị Thôn Thiên Ma Long bắt, lưu ta một con đường sống, có thể trở thành ngươi cùng nó đàm phán thẻ đánh bạc."
-
-Man Long Thiếu Quân biết trốn không thoát, thế là cầu xin tha thứ.
-
-"Ta không cần đàm phán thẻ đánh bạc." Trương Nhược Trần nói.
-
-"Vậy liền đồng quy vu tận, đều chết ở chỗ này."
-
-Man Long Thiếu Quân thần sắc trở nên dữ tợn, dẫn động Long Châu trong khí hải, muốn tự bạo, đem Trương Nhược Trần giết chết ở chỗ này.
-
-Trương Nhược Trần làm sao cho nó cơ hội?
-
-"Phốc phốc."
-
-Trầm Uyên cổ kiếm từ trên trời giáng xuống, đâm vào Man Long Thiếu Quân thân thể, đưa nó đóng đinh ở trên băng nguyên, đồng thời cũng xuyên thấu nó khí hải, không có cho nó cơ hội tự bạo.
-
-Trương Nhược Trần bằng tốc độ nhanh nhất, đào ra Man Long Thiếu Quân thể nội Long Châu cùng Mãng Giao Vương thể nội Giao Châu, sau đó, đuổi tới Ngao Tâm Nhan bên cạnh, hỏi: "Yên Trần, Thanh Mặc, Tiểu Hắc, bọn hắn ở nơi nào? Lập tức mang ta đi tìm bọn hắn."
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1277
-
-Chương 1274: Ngũ Thải Băng Quật
-
-Trương Nhược Trần ôm lấy Ngao Tâm Nhan bị trọng thương, lấy sử dụng nhanh nhất độ đi đường, ánh mắt lạnh như đao, thân hình khi thì hiển hiện, khi thì biến mất, đang tiến hành Không Gian Đại Na Di.
-
-Căn cứ Ngao Tâm Nhan nói, bọn hắn lọt vào Bất Tử Huyết tộc, Cửu Lê cung, Tổ Long sơn số lớn Thánh cảnh sinh linh vây công, thời khắc mấu chốt, Hoàng Yên Trần cùng Thanh Mặc toàn lực thôi động Giới Tử Ấn lực lượng, vì nàng oanh ra một con đường sống, nàng mới trốn thoát.
-
-Đáng tiếc, Man Long Thiếu Quân cùng Mãng Giao Vương tu vi cao hơn nàng ra quá nhiều, đưa nàng đánh thành trọng thương, cuối cùng vẫn không thể chạy thoát.
-
-Nếu không phải, Trương Nhược Trần kịp thời đuổi tới, hậu quả khó mà lường được.
-
-Trương Nhược Trần lòng nóng như lửa đốt, độ bạo đến cực hạn.
-
-Thanh Mặc thực lực hoàn toàn chính xác rất mạnh, thế nhưng là, năng lực thực chiến lại cũng không lợi hại, tăng thêm đối phương người đông thế mạnh, chưa hẳn ngăn cản bao lâu.
-
-Cũng không lâu lắm, Ngao Tâm Nhan mang theo Trương Nhược Trần đi vào địa điểm lúc trước bọn hắn lọt vào vây công, mảnh băng nguyên này bị đánh đến phá toái, một chút vết nứt một mực lan tràn đến ngoài mấy trăm dặm, có chút lớn hố sâu đạt ngàn mét, giữa thiên địa tràn ngập từng đạo hỗn loạn lực lượng.
-
-Trong đó một chút vụn băng bị máu tươi nhiễm đỏ, đã có nhân loại máu tươi, cũng có Man thú, còn có mấy cỗ Thánh Thi bị hàn băng phong bế, có là bị vuốt mèo xé nát, có là bị dao phay chém giết.
-
-Trương Nhược Trần xem xét trong đó một bộ Huyết Thánh thi thể, cứng rắn nhất cột sống lại bị chỉnh chỉnh tề tề cắt đứt, thánh khu cắt thành hai đoạn, rất hiển nhiên, đó là lọt vào dao phay màu bạc chém vào.
-
-Liền ngay cả Thanh Mặc đều cuồng sao?
-
-Tại mảnh băng nguyên này, không có tìm được Hoàng Yên Trần cùng Thanh Mặc, Trương Nhược Trần sắc mặt trở nên vô cùng rét lạnh.
-
-"Ngươi trước tiến vào hồ lô dưỡng thương, ta tiếp tục đi tìm các nàng."
-
-Trương Nhược Trần đem Ngao Tâm Nhan đưa vào tiến Thủy Tinh Hồ Lô, tại băng nguyên một chỗ khu vực biên giới, tìm tới Hoàng Yên Trần lưu lại tới Thánh Đạo khí tức, lập tức đuổi theo.
-
-Trên đường, Trương Nhược Trần lại hiện rất nhiều máu dấu vết, tràn ra tới khí tức, chính là thuộc về Hoàng Yên Trần cùng Thanh Mặc.
-
-"Tuyệt đối không nên xảy ra chuyện, tuyệt đối không nên."
-
-Đại khái đuổi ba trăm dặm, trên băng nguyên, xuất hiện một cái hầm băng vô cùng to lớn thẳng đứng.
-
-Tại dưới đáy hầm băng, có từng sợi quang mang năm màu dũng mãnh tiến ra, như là cực quang một dạng, khiến cho bầu trời cũng đều biến thành năm màu, lộ ra đặc biệt mỹ lệ.
-
-Hai cái Thánh Thú canh giữ ở hầm băng biên giới, theo thứ tự là một con Long Lê Miêu mọc ra thật dày lân phiến cùng một con Thạch Quy to bằng cái thớt.
-
-Sinh linh có thể một mực xông đến Di Khí Thâm Hải khu vực trung tâm, thực lực của bọn nó, tự nhiên là khá cường đại. Người nhỏ yếu, đã chết trên đường.
-
-Long Lê Miêu kia thân thể bị một tầng Thánh Hồn lĩnh vực bao phủ, chống cự nơi đây đáng sợ hàn khí, trong lỗ mũi bốc khói trắng , nói: "Dưới hầm băng khẳng định có chí bảo, bằng không làm sao lại tràn ra ngũ thải hà quang?"
-
-"Phía dưới cũng có khả năng tràn ngập nguy hiểm, trong ngũ thải hà quang mang theo có Cực Âm Thiên Long Khí, không cẩn thận dính lên, bằng vào chúng ta tu vi, trong khoảnh khắc liền sẽ bị băng phong." Thạch Quy nói ra.
-— QUẢNG CÁO —
-
-Bị băng phong, chính là chết.
-
-Long Lê Miêu nói: "Chẳng phải là nói, hai nữ tử bị trọng thương kia cùng con mèo đen kia, bị Bất Tử Thần Điện yêu nữ cùng Tề Thiên thái tử đánh xuống đằng sau chết chắc?"
-
-"Dù sao Thôn Thiên Ma Long điện hạ cùng các ngươi Cửu Lê cung hai vị hoàng tử đều tiến vào hầm băng, cho dù các nàng không chết, cũng sẽ bị bắt. Hiện tại, chúng ta cũng chỉ chờ Trương Nhược Trần đến đây chịu chết, giải quyết hắn, lại chia đều bảo tàng dưới Băng Xuyên đại lục." Thạch Quy nói ra.
-
-Long Lê Miêu cười một tiếng: "Trương Nhược Trần chính là quá không biết trời cao đất rộng, cho là mình là Thời Không truyền nhân liền vô địch thiên hạ, cũng dám đồng thời đắc tội Tổ Long sơn, Cửu Lê cung, Bất Tử Huyết tộc. Tam đại thế lực này , bất kỳ một cái nào động một chút đầu ngón tay út, liền có thể đem hắn nghiền nát thành cặn bã."
-
-Thạch Quy nói: "Trương Nhược Trần cầm đi Bạch Lê công chúa, chính là phạm vào Thôn Thiên Ma Long điện hạ cấm kỵ, lần này, điện hạ đã buông lời muốn bắt sống Hoàng Yên Trần, thu nhập Thôn Thiên Long Cung, để Trương Nhược Trần đau đến không muốn sống."
-
-"Trương Nhược Trần đến cùng đi nơi nào, làm sao còn không có chạy đến, không phải là phát giác được nguy hiểm, đã chạy ra Âm Dương Hải đi? Ta thế nhưng là rất hi vọng hắn có thể mau mau lại tới đây, ngược một chút đệ nhất nhân trong Nhân tộc tuổi trẻ Thánh Giả, khẳng định là một kiện rất có ý tứ sự tình." Long Lê Miêu trêu tức cười một tiếng.
-
-"Thoát khỏi lần đầu tiên, chạy không khỏi 15, chỉ cần hắn còn tại Côn Lôn giới, Tổ Long sơn muốn giết hắn, tựa như giết chết một cái côn trùng như vậy. . . Đơn giản. . ."
-
-Thạch Quy tiếng nói còn không có hoàn toàn rơi xuống, chỉ thấy trước mắt xuất hiện một đạo bóng người trẻ tuổi, đứng ở trên băng nguyên, cầm trong tay trường kiếm, toàn thân tràn ra sát khí lăng lệ.
-
-"Ngươi là nói ta sao?"
-
-Đạo nhân ảnh kia dần dần trở nên rõ ràng, người mặc đạo bào màu trắng, dài bổ vào gương mặt hai bên, lộ ra một khuôn mặt tuấn mỹ.
-
-"Trương Nhược Trần."
-
-Thạch Quy trong miệng ra run giọng, cảm thấy tương đương ngoài ý muốn, vừa mới nói tới hắn, hắn vậy mà liền xuất hiện.
-
-Thạch Quy phần bụng vị trí, hiện ra một mảnh tử hồng sắc quang mang, quang mang thông qua phần cổ, từ trong miệng phun ra, hóa thành màu đỏ tím hỏa diễm. Nó độ phản ứng lâm chiến, hoàn toàn không giống như là một con rùa, quá nhanh, khi nhìn đến Trương Nhược Trần lần đầu tiên, liền phun ra hỏa diễm.
-
-Thạch Quy là một cái Thái Cổ di chủng, đã sống hơn ngàn năm, mặc dù độ tu luyện rất chậm, thế nhưng là, nó thọ nguyên đã lâu, chính là trường thọ nhất chủng tộc một trong. Mà lại, tu vi của nó, trải qua thời gian ngàn năm thiên chuy bách luyện, tại cùng cảnh giới, có thể xưng vô địch.
-
-Trương Nhược Trần không sợ Thạch Quy phun ra hỏa diễm, tại trong hỏa diễm chạy, nắm lấy Trầm Uyên cổ kiếm, lôi ra Thiên Văn Hủy Diệt Kình, một kiếm phách trảm xuống dưới.
-
-"Cái gì? Tử Tâm Địa Hỏa vậy mà hoàn toàn không gây thương tổn được hắn, thân thể của người này chẳng lẽ là do Thần Thiết đúc thành?"
-
-Thạch Quy đình chỉ phun lửa, thể nội thánh khí tuôn hướng phần lưng.
-
-Phần lưng da đá, hiện ra từng đạo màu đỏ tím hỏa văn, rất như là Thái Cổ thời kỳ văn tự, những văn tự kia, vậy mà chuyển động.
-
-"Ầm ầm."
-
-Trầm Uyên cổ kiếm lực lượng cường đại vô cùng, liên tiếp chém ra bảy tầng hỏa diễm văn tự, ra bảy đạo âm thanh lớn, ánh lửa vẩy ra, từng tấc từng tấc tới gần Thạch Quy.
-
-Thạch Quy giật nảy mình, lấy lực phòng ngự của nó, lại có chút ngăn cản không nổi Trương Nhược Trần công phạt, trong tay hắn chuôi kiếm này, đến cùng là cái thế Thần Binh gì?
-
-"Trương Nhược Trần, ngươi rốt cục chạy đến chịu chết, bản thánh diệt ngươi."
-
-Long Lê Miêu hét lớn một tiếng, duỗi ra một con mèo trảo, đập ngang đi qua.
-
-Vuốt mèo hình dạng rất giống vuốt rồng, càng duỗi càng dài, càng biến càng lớn, cuối cùng, trở nên so Long Lê Miêu thân thể còn muốn khổng lồ mấy lần.
-
-Long Lê Miêu tu vi, đạt tới Huyền Hoàng cảnh đỉnh phong, thực lực không kém. Huyền Hoàng chi khí mãnh liệt mà ra, trên vuốt mèo ra đinh tai nhức óc phong lôi âm thanh, mang theo lực lượng, đánh cho không gian đều tại có chút rung động.
-
-Trương Nhược Trần hướng Long Lê Miêu nghiêng liếc một chút, trở tay một kiếm chém tới.
-
-"Phốc phốc."
-
-Thánh huyết vẩy ra, Long Lê Miêu vuốt mèo bị kiếm khí quấy đến vỡ nát, hóa thành một mảnh huyết vụ.
-
-Long Lê Miêu kêu thảm một tiếng, gấp lui lại, chuẩn bị ngưng tụ thánh lực, làm gãy mất vuốt mèo một lần nữa mọc ra.
-
-Thạch Quy lực phòng ngự quá mạnh, đặc biệt là phần lưng đỏ tía cổ văn kích động ra đến đằng sau, vậy mà hình thành mười tầng văn tự màng ánh sáng, liền ngay cả Trầm Uyên cổ kiếm đều chém không ra.
-
-Trương Nhược Trần bỏ qua Thạch Quy, dẫn theo chiến kiếm màu đen, phóng tới Long Lê Miêu.
-
-Nhìn thấy chém giết tới Trương Nhược Trần, Long Lê Miêu sớm đã không có lúc trước tự tin, lui đến càng nhanh. Bây giờ Trương Nhược Trần, cùng tại Long Hỏa đảo thời điểm tưởng như hai người, đơn giản tựa như là một tôn Sát Thần, mà lại, chiến lực cũng cường đại đến không hợp thói thường.
-
-"Ngươi không phải muốn giết ta, vì sao phải trốn?" Trương Nhược Trần đuổi theo.
-
-Long Lê Miêu chỉ cảm thấy từ trên thân Trương Nhược Trần tràn ra tới hàn khí, so từ trong hầm băng toát ra hàn khí còn muốn băng lãnh, càng thêm không dám cùng Trương Nhược Trần giao thủ, thầm kêu một tiếng: "Liều mạng!"
-
-Nó vậy mà thả người nhảy lên, nhảy xuống hầm băng.
-
-Long Lê Miêu cũng không phải là thẳng đứng rơi xuống, mà là nhào về phía hầm băng phía bên phải ngũ thải băng bích, muốn tại trên băng bích mượn lực.
-
-"Chết."
-
-Trương Nhược Trần phất tay một chém, một khe hở không gian bay ra ngoài, kích ở trên thân Long Lê Miêu.
-
-"Phốc phốc."
-
-Long Lê Miêu bị xé nát, chỉ còn một chút tàn toái huyết nhục, từ vết nứt không gian biên giới bay ra ngoài, rơi vào tiến hầm băng.
-
-Những máu thịt kia, vừa mới cùng một đạo ngũ thải hà quang đụng vào, lập tức ra xoẹt xoẹt thanh âm, đông kết thành khối băng.
-— QUẢNG CÁO —
-
-Trương Nhược Trần vậy mà nhanh gọn đánh chết Long Lê Miêu Thánh cảnh cường giả như thế, ngắn ngủi mấy ngày đi qua, kẻ này thực lực, đã đạt tới một cái dọa người độ cao.
-
-Thạch Quy bị dọa đến không nhẹ, run rẩy nói ra: "Ngươi dám chém giết Cửu Lê cung Thánh Thú, đây là triệt để đắc tội Cửu Lê cung, tất nhiên sẽ gặp nghiêm khắc chế tài, trong Nhân tộc, không có bất kỳ người nào giữ được ngươi."
-
-"Ta không chỉ có muốn chém nó, còn muốn chém ngươi. Kiếm Thất."
-
-Trương Nhược Trần thể nội tuôn ra thao thiên kiếm ý, trong không khí, hiện ra hơn vạn đạo kiếm ảnh.
-
-Những kiếm ảnh kia ra lả tả thanh âm, xông vào tiến Trương Nhược Trần thể nội, sau đó, Trương Nhược Trần hóa thành một đạo quang toa, tại Thạch Quy còn không có kịp phản ứng thời điểm, chính là va chạm ở trên thân nó.
+Thế nhưng là, A Nhạc một kiếm này, lại là thẳng tiến không lùi, coi như sóng lửa lại như thế nào hung mãnh, cũng sẽ không lui.
 
 "Bành bành."
 
-Thạch Quy trên thân, hiện ra mười tầng màu đỏ tím cổ văn, lại đều bị kiếm khí đánh xuyên.
+72 tầng Thánh Hỏa sóng lửa toàn bộ đều bị đánh xuyên, A Nhạc một kiếm đánh vào ngực Thu Vũ.
 
-Một kiếm này, Trương Nhược Trần toàn lực bạo, tăng thêm Trầm Uyên cổ kiếm uy lực, coi như so ra kém Kiếm Thánh một kiếm, cũng đã không kém bao nhiêu.
-
-Thạch Quy bị đánh đến quăng lên, trên lưng xác đá cùng thân thể giải thể.
-
-Một cái không có xác rùa đen, lực phòng ngự giảm mạnh, giống như một cái da đá con cóc đồng dạng, bịch một tiếng, rơi xuống tại trên mặt băng. Thạch Quy sợ hãi tới cực điểm, hướng hầm băng phương hướng bỏ chạy.
-
-Trương Nhược Trần thân hình khẽ động, xuất hiện tại đỉnh đầu Thạch Quy, hai tay nắm vuốt chuôi kiếm, hướng phía dưới cắm xuống, trường kiếm đâm vào đi vào một thước sâu, ửng đỏ máu tươi thuận mũi kiếm trào ra ngoài tới.
-
-"Nói cho ta biết, Hoàng Yên Trần cùng Thanh Mặc còn sống không có?" Trương Nhược Trần âm thanh lạnh lùng nói.
-
-Thạch Quy một bên kêu thảm, một bên nói ra: "Ta không biết."
-
-"Không biết?"
-
-Trương Nhược Trần tiếp tục ra sức, Trầm Uyên cổ kiếm lại hướng phía dưới đâm một thước sâu, càng nhiều máu tươi tuôn ra, đem hắn trên người đạo bào màu trắng nhuộm thành màu đỏ như máu.
-
-Thạch Quy kêu thảm nói ra: "Thật không biết, lúc trước, Tề Thiên thái tử cùng Bất Tử Thần Điện yêu nữ kích động ra Diệt Thần Thập Tự Thuẫn bản nguyên lực lượng, đưa ngươi muốn tìm hai người cùng con mèo đen kia đều đánh vào hầm băng. Rơi xuống trước đó, thân thể của các nàng liền đã bị đánh đến sắp vỡ ra, hiện tại, hơn phân nửa đã chết ở phía dưới."
-
-"Phốc!"
-
-Trầm Uyên cổ kiếm hóa thành một đạo ô quang, xuyên thấu Thạch Quy đầu lâu, sau đó, lôi ra một đạo thật dài kiếm mang, lại đem đầu lâu Thạch Quy chém xuống.
-
-Trương Nhược Trần ánh mắt băng lãnh mà sắc bén, bắt lấy chuôi kiếm, không có một chút do dự, thả người nhảy lên, trực tiếp nhảy xuống hầm băng.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1278
-
-Chương 1275: Một đường nghiền áp xuống
-
-Hầm băng là thẳng đứng thông hướng lòng đất, giống như một cái hồ nước năm màu, đường kính có chừng trăm dặm, coi là tương đương rộng lớn.
-
-Nhìn xuống dưới, hầm băng phía dưới một mảnh mờ mịt, sâu không thấy đáy, chỉ có thể nhìn thấy năm màu hào quang đang cuộn trào, tựa như là thông hướng Băng Xuyên đại lục trung tâm.
-
-Trong đó một chút ngũ thải hà quang, từ dưới đáy tiêu tán đi ra, một sợi một sợi hướng lên dâng lên, như sương, như khói, như rồng, như rắn. . . , đồng thời, tản mát ra băng lãnh khí tức, cách xa nhau mấy trượng xa, làn da cũng bị cóng đến thấy đau.
-
-Trương Nhược Trần không có dán tại trên băng bích mượn lực, mà là rủ xuống nhảy xuống hầm băng, muốn bằng tốc độ nhanh nhất đuổi tiếp.
-
-"Ngũ thải hà quang đến cùng là cái gì?"
-
-Trương Nhược Trần cảm giác được hiếu kỳ, cảm thấy ngũ thải hà quang cùng Hỗn Độn chi khí có chút cùng loại, thế là, nắm lên Trầm Uyên cổ kiếm, cùng ngũ thải hà quang chạm đến một chút.
-
-"Xoẹt xoẹt!"
-
-Trong khoảnh khắc, trên thân kiếm kết xuất một tầng hàn băng năm màu, hàn khí từ kiếm thể tuôn hướng Trương Nhược Trần cánh tay, khiến cho trong lòng bàn tay tay phải hắn huyết dịch cùng thánh khí trong nháy mắt ngưng kết.
-
-Trương Nhược Trần vội vàng điều động Tịnh Diệt Thần Hỏa, vận chuyển đến cánh tay phải kinh mạch cùng Thánh Mạch, mới đưa cỗ hàn khí kia xua tan.
-
-"Trong ngũ thải hà quang, quả nhiên mang theo có Cực Âm Thiên Long Khí." Trương Nhược Trần sắc mặt biến đổi.
-
-Ở trong quá trình rơi xuống, Trương Nhược Trần không ngừng sử dụng không gian na di, tránh đi ngũ thải hà quang.
-
-Cực Âm Thiên Long Khí, được xưng là thiên hạ nhất băng hàn lực lượng một trong, cùng Tiêu Linh Long Hỏa một dạng đáng sợ, nhưng lại lẫn nhau đối lập, khắc chế lẫn nhau. Đối với Thánh Giả có được âm hàn thể chất mà nói, nó là bảo vật vô giá.
-
-Đó cũng là một cỗ trí mạng lực lượng, nếu là không cách nào thu phục, liền xem như Thánh Giả có âm hàn thể chất cũng là một con đường chết.
-
-Càng là hướng phía dưới, trong hầm băng ngũ thải hà quang càng là dày đặc, cho dù Trương Nhược Trần vận dụng lực lượng không gian trốn tránh đứng lên, cũng có chút cố hết sức, không thể không hơi chậm lại hạ xuống tốc độ.
-
-"Yên Trần cùng Thanh Mặc không cách nào điều động lực lượng không gian biến hóa phương vị, từ bên trên rơi xuống, một khi cùng ngũ thải hà quang đụng vào, chẳng phải là sẽ bị đông lạnh thành băng tinh hình người?" Trương Nhược Trần tâm, chìm đến đáy cốc.
-
-Hắn đã tận lực để cho mình hướng chỗ tốt nghĩ, nhưng, cho dù là nhanh nhất kết quả, chỉ sợ cũng cũng không khá hơn chút nào.
-
-So ra mà nói, Tiểu Hắc ngược lại càng thêm an toàn.
-
-Nó không có huyết nhục thân thể, chỉ là Càn Khôn Thần Mộc Đồ Khí Linh, chỉ cần Càn Khôn Thần Mộc Đồ không có bị phá hủy , bình thường Thánh cảnh sinh linh, căn bản không diệt được nó. Liền xem như Cực Âm Thiên Long Khí, chỉ sợ cũng đông lạnh không chết nó.
-
-Bỗng dưng, Trương Nhược Trần bên phải phía dưới băng bích, phát hiện Bất Tử Huyết tộc cùng Thánh Thú thân ảnh.
-
-Thân thể của bọn hắn dán tại trên băng bích, thận trọng hướng phía dưới bước đi.
-
-Rất hiển nhiên, bọn hắn không chỉ có chỉ là đi tìm Hoàng Yên Trần cùng Thanh Mặc, cũng là cảm thấy hầm băng phía dưới có Viễn Cổ để lại chí bảo, bằng không, sẽ không bốc lên bị Cực Âm Thiên Long Khí chết cóng nguy hiểm, tiến vào hầm băng chỗ sâu.
-
-Một vị Miêu Nữ tu vi đạt tới Huyền Hoàng cảnh, dựa sát tại trên băng bích, mặc trên người áo giáp màu xanh nước biển, bao vây lấy ngạo nghễ ưỡn lên ngực mông, lộ ra tuyết trắng bụng dưới cùng hai đầu thon dài chân ngọc.
-
-Nàng là Cửu Lê cung một cái Miêu tộc Thánh Thú, trên da thịt, tiêu tán ra từng hạt thánh quang màu trắng, mười ngón đầu ngón tay mọc ra lợi trảo, hướng phía dưới bò thời điểm, động tác ôn nhu tới cực điểm.
+Đương nhiên, Thu Vũ ứng biến tốc độ cũng là tương đương lợi hại, một chưởng đánh vào A Nhạc đỉnh đầu.
 — QUẢNG CÁO —
 
+"Phốc phốc."
 
-"Ngũ thải hà quang càng ngày càng dày đặc, tiếp tục hướng xuống, sợ rằng sẽ gặp bất trắc. Hai Nhân tộc nữ tử kia, bị thương nặng như vậy, khẳng định đã chết đi, căn bản không cần thiết xuống dưới tìm kiếm các nàng."
+Vết rỉ loang lổ thiết kiếm, đúng là công phá Thu Vũ phòng ngự, xuyên tim mà qua, mũi kiếm từ Thu Vũ phần lưng toát ra.
 
-Miêu Nữ leo rất chậm, sinh ra thoái ý, không dám tiếp tục hướng xuống.
+Cùng lúc đó, Thu Vũ bàn tay, cũng là đánh vào A Nhạc đỉnh đầu, trực tiếp đem A Nhạc đầu lâu đánh cho vỡ ra từng đạo khe hở.
 
-Ngay tại vừa rồi, có một đạo ngũ thải hà quang, từ bên cạnh của nàng thổi qua, chỉ kém một tấc khoảng cách liền rơi ở trên người nàng. Ngũ thải hà quang phát ra hàn khí, cóng đến nàng toàn thân cứng ngắc, kém một chút rơi xuống.
-
-Một con Thánh Miêu màu vàng mọc ra tam nhãn, đi tại Miêu Nữ phía trước, thân thể cùng lông dài giống như đúc bằng vàng ròng, thanh âm rất sâu dày: "Dưới hầm băng nói không chắc có Thần Long nhất tộc lưu lại chí bảo, không nhìn thấy Bạch Lê hoàng tử cùng Hắc Lê hoàng tử đều liều mạng hướng phía dưới xông, lấy thân phận của bọn nó, khẳng định biết một chút bí mật chúng ta không biết."
-
-"Có người."
-
-Miêu Nữ trên đầu một đôi lông xù lỗ tai giật giật, đã nhận ra cái gì, quay đầu hướng lên phía trên nhìn lại. Chỉ gặp, một cái huyết y nam tử, đứng cách nàng không xa trên không, vung ra một đạo kiếm khí, bổ vào ngũ thải trên băng bích mặt.
-
-"Cách cách."
-
-Ngũ thải băng bích bị kiếm khí bổ ra một đạo dài mấy chục thước vết rách, có từng khối băng tinh, rơi xuống dưới.
-
-Trương Nhược Trần một kiếm này, vốn là muốn đánh vụn băng vách tường, để những Bất Tử Huyết tộc cùng Thánh Thú kia mất đi điểm chống đỡ, rơi vào hầm băng vực sâu.
-
-Thế nhưng là, hắn nhưng không có nghĩ đến, ngũ thải băng bích cứng rắn kinh người, cho dù toàn lực chém ra một kiếm, cũng chỉ là vỡ ra một vết nứt, căn bản là không có cách để băng bích diện tích lớn sụp đổ.
-
-Đã như vậy, cũng chỉ có thể một đường oanh sát xuống dưới.
-
-Miêu Nữ sắc mặt hơi ngưng tụ, kinh hô một tiếng: "Trương Nhược Trần."
-
-"Mọi người cẩn thận, Trương Nhược Trần tiến vào hầm băng, chính hướng phía dưới đánh tới."
-
-Tam Nhãn Hoàng Kim Thánh Miêu dừng bước lại, xoay người, toàn thân lông dài đứng lên, giống như từng cây kim loại kim châm, có một cỗ khiếp người lệ khí, theo nó thể nội bạo phát đi ra.
-
-Tổ Long sơn cùng Cửu Lê cung Thánh Thú toàn bộ đều tận lực thu nhỏ thân thể, tránh né ngũ thải hà quang, Tam Nhãn Hoàng Kim Thánh Miêu cũng không ngoại lệ, thân thể thu nhỏ đến chỉ có dài một thước, hình thể cùng một con mèo phổ thông không hề khác gì nhau.
-
-Phía dưới, vô luận là Bất Tử Huyết tộc Huyết Thánh, hay là Thánh Thú, toàn bộ đều ngừng lại, hướng lên phía trên nhìn lại.
-
-"Đến hay lắm, vốn còn muốn bắt vị hôn thê của hắn, buộc hắn hiện thân, nếu hắn tự chui đầu vào lưới, ngược lại là giảm bớt chúng ta không ít phiền phức."
-
-"Trương Nhược Trần, vị hôn thê của ngươi, đã bị chúng ta trấn sát, ngươi là xuống tới cho nàng nhặt xác sao? Ha ha."
-
-"Mọi người cùng nhau xuất thủ, trước diệt Trương Nhược Trần, lại đi tìm kiếm Thần Long nhất tộc di bảo."
-
-. . .
-
-Trương Nhược Trần rơi xuống trên băng bích mặt, đáp xuống, ánh mắt tương đương sắc bén, không ngừng đem Trầm Uyên cổ kiếm vung chém ra đi, hình thành một mảnh xen lẫn thành lưới kiếm khí.
-
-Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu đứng mũi chịu sào, gặp kiếm khí công kích.
-
-Chỉ có tiếp xúc đến kiếm khí, mới có thể minh bạch Trương Nhược Trần Kiếm Đạo tạo nghệ là bực nào đáng sợ, chỉ là trong nháy mắt, trên thân Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu bị đánh ra mấy đạo vết kiếm đẫm máu.
-
-"Tình huống như thế nào, Trương Nhược Trần lực công kích làm sao cường hoành đến trình độ như vậy?"
-
-Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu phát ra liên tiếp mang theo thảm âm thanh mèo kêu, riêng phần mình lấy ra một kiện Tổ Khí, kích phát ra Man Hoang cổ kình trong Tổ Khí, ngăn cản kiếm khí công kích. Lập tức, bọn chúng bằng tốc độ nhanh nhất, hướng phía dưới chạy trốn.
-
-Nhìn thấy như là chó nhà có tang hai cái Miêu tộc Thánh Thú, Tổ Long sơn một cái thuần huyết Giao Long cười nhạo một tiếng: "Chỉ là một cái Trương Nhược Trần, liền đem các ngươi sợ đến như vậy, Cửu Lê cung mặt đều bị các ngươi mất hết! Bản thánh đi chém hắn."
-
-Thuần huyết Giao Long kia hóa thành nhân hình, mặc một bộ lân giáp, thân thể khôi ngô, cầm trong tay khiên tròn cùng chiến đao, toàn thân tản mát ra doạ người khí thế, giống như Chiến Thần phụ thể đồng dạng, từ bên cạnh Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu tiến lên, đón lấy Trương Nhược Trần.
-
-Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu đều lộ ra vẻ đồng tình, cảm thấy thuần huyết Giao Long kia quá mức tự phụ, không có hiểu rõ Trương Nhược Trần thực lực chân thật liền dám đi chiến, sợ rằng sẽ đã chết rất thảm.
-
-"Bành!"
-
-"Bành!"
-
-Liên tiếp hai tiếng bạo hưởng, khiên tròn cùng chiến đao trong tay thuần huyết Giao Long kia bị đánh thành mảnh vỡ.
-
-Ngay sau đó, một tiếng thê thảm Giao Long tru lên, truyền ra.
-
-Thuần huyết Giao Long kia bị Trương Nhược Trần đánh cho vết thương chằng chịt, thoát ly băng bích, hướng hầm băng vực sâu rơi xuống.
-
-"Hoa —— "
-
-Trương Nhược Trần huy kiếm một chém, một đạo kiếm khí màu đen quang hồ bay ra ngoài, theo nó phần eo lướt qua.
-
-Đầu thuần huyết Giao Long kia, hóa thành bản thể, dài đến hơn một ngàn mét, từ vị trí chính trung tâm tách ra, biến thành hai đoạn, chỗ đứt vẩy ra huyết dịch giống như thác nước một dạng, thế nhưng là rất nhanh nhưng lại đông kết thành băng tinh.
-
-"Vẻn vẹn chỉ là thời gian một hơi thở, Giao Long Thiếu Quân vậy mà liền bị Trương Nhược Trần đánh chết."
-
-Bọn hắn rốt cuộc minh bạch, Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu tại sao lại trốn, bây giờ Trương Nhược Trần thật là quá cường đại, đơn giản tựa như là một vị tuyệt đại Kiếm Thánh từ bên trên giết xuống tới.
-
-"Ầm ầm."
-
-Trương Nhược Trần thể nội thánh khí vận chuyển tới cực hạn, Trầm Uyên cổ kiếm cũng bộc phát ra lực lượng mạnh nhất, một đường hướng phía dưới nghiền ép, trong khoảnh khắc, lại có năm con Thánh cảnh sinh linh bị đánh giết, thân thể toàn bộ đều chia năm xẻ bảy, hóa thành tàn thi rơi xuống.
-
-Một kiếm nơi tay, không ai có thể ngăn cản.
-
-Những Thánh Thú cùng Huyết Thánh kia, toàn bộ đều bị hù sợ, đi theo Miêu Nữ cùng Tam Nhãn Hoàng Kim Thánh Miêu cùng một chỗ, liều mạng hướng phía dưới chạy trốn.
-
-Dưới hầm băng, truyền ra hai đạo kinh thiên động địa tiếng thét dài.
-
-Lập tức, hai mảnh huyết vân dán băng bích, từ phía dưới vọt lên.
-— QUẢNG CÁO —
-
-
-Trong huyết vân, đều có một vị Tử Thần kỵ sĩ, bọn hắn người mặc Thập Thánh Huyết Khải, cầm trong tay Tử Vong Chiến Mâu, nhanh chân xông lên phía trên đâm, nghênh chiến Trương Nhược Trần từ bên trên trùng sát xuống.
-
-Tử Thần kỵ sĩ chiến lực tương đương cường hoành, mỗi một vị đều có thực lực cùng Triệt Địa cảnh Thánh Giả một trận chiến.
-
-"Trương Nhược Trần, chúng ta phụng Thần Nữ chi lệnh, đến đây lấy tính mạng ngươi." Trong đó một vị Tử Thần kỵ sĩ, băng lãnh hô lên một tiếng.
-
-"Chỉ bằng các ngươi, cùng ta giao thủ, chỉ có một con đường chết. Giết các ngươi, lại đi chém nàng."
-
-Trương Nhược Trần sử dụng ra Ngự Kiếm Thuật, Trầm Uyên cổ kiếm rời tay bay ra đi, tản mát ra một mảnh đường kính trăm trượng ánh sáng màu đen, như là thiên thạch rơi xuống dưới, đánh về phía xông vào bên phải Tử Thần kỵ sĩ.
-
-Cùng lúc đó, Trương Nhược Trần thân hình lóe lên, xuất hiện đến trước người vị Tử Thần kỵ sĩ bên trái kia, hai tay đánh ra chưởng ấn, phân biệt bày biện ra một rồng một tượng hướng phía dưới nghiền ép.
-
-"Muốn chết."
-
-Vị Tử Thần kỵ sĩ kia đâm ra chiến mâu, bộc phát ra toàn lực, một cỗ hủy diệt kình khí phát ra, xé nát một rồng một tượng, đánh về phía tim Trương Nhược Trần.
-
-Trương Nhược Trần thân hình lần nữa chớp động một chút, biến hóa phương vị, xuất hiện tại bên người Tử Thần kỵ sĩ, một chưởng đánh ra.
-
-Tử Thần kỵ sĩ biết Trương Nhược Trần có thể không gian na di, trong lòng sớm có phòng bị, tay trái bóp quyền, đánh ra ngoài, đón lấy Trương Nhược Trần bàn tay.
-
-"Bành."
-
-Hai người đối kích, Tử Thần kỵ sĩ không có thể ngăn ở cỗ lực lượng kia, vậy mà bay tứ tung ra ngoài.
-
-Tử Thần kỵ sĩ cánh tay đau đớn muốn nứt, như là có cự chùy tại trên xương cốt cánh tay của hắn đập một cái, trong lòng thất kinh: "Thập Thánh chi lực cũng đỡ không nổi, làm sao lại mạnh như vậy? Không tốt, Trương Nhược Trần khẳng định đã đột phá đến trung cảnh Thánh Giả cảnh giới."
-
-Lăng lệ chưởng phong, lần nữa vọt tới.
-
-Trương Nhược Trần chưởng lực chí cương chí dương, lòng bàn tay toát ra vàng óng ánh quang mang, mỗi một chưởng hạ xuống, đều giống như một vòng liệt nhật nện ở trên thân Tử Thần kỵ sĩ.
-
-"Bành bành."
-
-Tử Thần kỵ sĩ bị đánh đến miệng phun máu tươi, nửa người đều bị đánh đến khảm vào trong băng bích. Thế nhưng là, hắn mặc có Thập Thánh Huyết Khải, lực phòng ngự cường đại, vậy mà không chết.
-
-Trương Nhược Trần cũng không có dừng tay, đánh ra Long Tượng Bàn Nhược Chưởng, liên tiếp đánh ra mười chưởng, mặc dù không có đánh xuyên Thập Thánh Huyết Khải, lại đem Tử Thần kỵ sĩ nhục thân chấn vỡ thành bùn máu, chết tại trong áo giáp.
-
-"Thật là đáng sợ, liền ngay cả Tử Thần kỵ sĩ đều bị oanh sát."
-
-Vị Miêu Nữ kia bị dọa đến sắc mặt trắng bệch, càng thêm không dám dừng lại, toàn lực ứng phó phóng tới hầm băng dưới đáy.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1279
-
-Chương 1276: Cầu đá
-
-Một vị Tử Thần kỵ sĩ bị Trương Nhược Trần sống sờ sờ đánh chết, coi như hắn mặc Thập Thánh Huyết Khải cũng không có tác dụng, căn bản ngăn không được Trương Nhược Trần chưởng ấn.
-
-Ở đây Thánh cảnh sinh linh, toàn bộ đều bị hù sợ, cảm thấy Trương Nhược Trần chính là dũng mãnh vô địch Sát Thần.
-
-Bọn hắn coi là tam đại thế lực liên thủ, đối phó một cái Trương Nhược Trần, cùng bóp chết một con kiến một dạng đơn giản, trên thực tế lại là mười phần sai, tam đại thế lực đều tổn thất nặng nề.
-
-Phải biết, Thánh cảnh sinh linh có thể một đường vượt quan còn sống đi vào Băng Xuyên đại lục vốn là không nhiều, bây giờ lại bị Trương Nhược Trần cường thế đánh chết một nhóm lớn, tam đại thế lực cộng lại Thánh cảnh sinh linh đều đã không đủ mười lăm vị.
-
-Mỗi một vị chết đi, đều không phải là một chuyện nhỏ.
-
-Còn lại mấy vị Thánh cảnh sinh linh chạy trối chết, hướng phía dưới phóng đi.
-
-Trương Nhược Trần thì là vận dụng không gian na di, phóng tới một vị Tử Thần kỵ sĩ khác.
-
-Vị Tử Thần kỵ sĩ kia đang cùng Trầm Uyên cổ kiếm giao phong, đánh cho khó khăn chia lìa.
-
-Trầm Uyên cổ kiếm Kiếm Linh nổi lên, lơ lửng tại chuôi kiếm vị trí, chính là một nam tử cao ba tấc, trên lưng mọc ra một đôi quang dực màu đen. Chính là Kiếm Linh tại khống chế chiến kiếm, cùng Tử Thần kỵ sĩ giao phong.
-
-Chờ đến Trầm Uyên cổ kiếm trưởng thành đến Vạn Văn Thánh Khí tình trạng, Kiếm Linh liền có thể ngưng tụ ra chân chính thân thể, thậm chí có thể tự chủ tu luyện, hấp thu thiên địa linh khí, căn bản không cần Trương Nhược Trần thánh khí chèo chống, chỉ cần Trương Nhược Trần kiếm ý bất diệt, Kiếm Linh liền có thể khống chế thân kiếm tiếp tục không ngừng chiến đấu, bay đến bên ngoài mười vạn dặm giết địch cũng là bình thường.
-
-Vị Tử Thần kỵ sĩ kia tận mắt nhìn thấy Trương Nhược Trần đem một vị Tử Thần kỵ sĩ khác chụp chết, trong lòng biết hắn không phải là đối thủ của Trương Nhược Trần, bởi vậy, nhìn thấy Trương Nhược Trần xuất hiện tại bên người của hắn, chính là hừ lạnh một tiếng: "Hôm nay, liền do ta đến đánh chết ngươi, vì Bất Tử Huyết tộc thanh trừ một tôn đại địch."
-
-"Ngươi từ đâu tới tự tin có thể giết ta?"
-
-Trương Nhược Trần cầm ra Trầm Uyên cổ kiếm chuôi kiếm, huy kiếm chém xuống đi, kiếm khí như là thác nước rơi xuống.
-
-"Muốn chém ngươi, cũng không phải là việc khó gì."
-
-Tử Thần kỵ sĩ trong mắt, lộ ra một đạo lạnh nhạt trầm xuống cùng quyết nhiên thần sắc, trong trái tim, một viên hạt châu màu đỏ ngòm xoay tròn cấp tốc, bộp một tiếng bạo liệt mà ra.
-
-Lập tức, một mảnh Tử Thần Chi Quang màu đỏ như máu, như là trời long đất nở một dạng, từ Tử Thần kỵ sĩ thể nội tuôn ra, hình thành một vòng lại một vòng huyết quang, khiến cho toàn bộ hầm băng đều biến thành màu đỏ như máu.
-
-Trương Nhược Trần toàn lực vỗ xuống một kiếm, nhận Tử Thần Chi Quang trùng kích, kiếm nhanh trở nên càng ngày càng chậm, liền ngay cả trên thân kiếm Thiên Văn Hủy Diệt Kình đều bị triệt tiêu.
-
-"Không tốt, Tử Thần kỵ sĩ vận dụng cấm kỵ lực lượng."
-
-Trương Nhược Trần đã sớm nghe Táng Nguyệt Kiếm Thánh nhấc lên, mỗi một vị Tử Thần kỵ sĩ thể nội đều có một kiện bảo vật, có thể bộc phát ra lực lượng đáng sợ không có gì sánh kịp, liền ngay cả hắn đều có chút kiêng kị.
-
-Chỉ bất quá, món bảo vật kia cùng Tử Thần kỵ sĩ huyết nhục dung hợp làm một thể, một khi kích phát ra đến, hắn chính mình cũng sẽ mất mạng.
-— QUẢNG CÁO —
-
-Cho nên, không phải tình huống vạn bất đắc dĩ, Tử Thần kỵ sĩ tuyệt sẽ không vận dụng cỗ lực lượng kia.
-
-Để một vị Kiếm Thánh đều kiêng kỵ lực lượng, đến đáng sợ đến cỡ nào?
-
-Không có một chút do dự, Trương Nhược Trần kích phát ra Thập Thánh Huyết Khải, bảo vệ toàn thân, đồng thời sử dụng ra không gian na di, xông vào tiến Thủy Tinh Hồ Lô.
-
-"Ầm ầm."
-
-Tử Thần kỵ sĩ đánh ra chiến mâu, kích ở trên Thủy Tinh Hồ Lô.
-
-Nhìn như chỉ là một cái chất gỗ hồ lô, chiến mâu đánh vào phía trên, lại là một cái ấn ký đều không có lưu lại. Thủy Tinh Hồ Lô xoay tròn một vòng, bịch một tiếng, đụng vào tiến ngũ thải băng bích, khiến cho băng bích sụp đổ một mảng lớn.
-
-Trương Nhược Trần rơi xuống trên ngọc thạch đảo nhỏ trong Thủy Tinh Hồ Lô, phần lưng chảy ra một mảng lớn thánh huyết, cho dù hắn trốn được đầy đủ nhanh, lại có mặc Thập Thánh Huyết Khải tiến hành ngăn cản, thế nhưng là, chiến mâu một đạo khí kình hay là trùng kích tại phần lưng của hắn, kém một chút đem hắn thân thể xuyên thủng.
-
-"Thật là đáng sợ cấm kỵ lực lượng, chỉ là tiêu tán đi ra một đạo khí kình mà thôi, cũng không phải ta hiện tại có thể ngăn cản, khó trách không ai có thể đào thoát Tử Thần kỵ sĩ truy sát."
-
-Nếu như không phải Trương Nhược Trần, đổi lại một vị Triệt Địa cảnh, thậm chí Thông Thiên cảnh Thánh cảnh bá chủ, khẳng định đã bị Tử Thần kỵ sĩ sát khí.
-
-Cỗ lực lượng kia, có thể uy hiếp được Chân Thánh.
-
-Đương nhiên, sức mạnh bùng lên càng mạnh, trả ra đại giới cũng liền càng lớn.
-
-Trương Nhược Trần tin tưởng, Tử Thần kỵ sĩ tuyệt đối không có cách nào lấy loại trạng thái này tiếp tục chiến đấu, nhiều nhất đánh ra mấy kích, lực lượng liền sẽ cấp tốc trượt, thậm chí so trước kia càng yếu, hơn cuối cùng, dầu hết đèn tắt.
-
-"Ầm ầm."
-
-Tử Thần kỵ sĩ bộc phát ra công kích mạnh nhất, liên tục không ngừng oanh kích Thủy Tinh Hồ Lô, muốn đưa nó đập ra.
-
-Hắn thấy, chỉ là một cái hồ lô mà thôi, không gánh nổi Trương Nhược Trần tính mệnh.
-
-Trương Nhược Trần nhắm hai mắt, vận chuyển công pháp, không có phục dụng bất luận đan dược chữa thương gì, phần lưng vết thương lấy tốc độ mà mắt thường cũng có thể thấy được khép lại, rất nhanh liền khôi phục như lúc ban đầu.
-
-Tử Thần kỵ sĩ công kích ngay tại biến yếu, Trương Nhược Trần không còn tiếp tục chờ đợi, xông ra Thủy Tinh Hồ Lô, xuất hiện đến Tử Thần kỵ sĩ hướng trên đỉnh đầu, trầm giọng nói: "Hiện tại, đến phiên ta!"
-
-"Hoa ——
-
-Một đạo ánh kiếm màu đen, từ phía trên Tử Thần kỵ sĩ rơi xuống.
-
-Tử Thần kỵ sĩ lực lượng đã tiêu hao chín thành, căn bản ngăn không được Trầm Uyên cổ kiếm, mũi kiếm xuyên thấu Thập Thánh Huyết Khải, từ Tử Thần kỵ sĩ đầu đâm vào xuống dưới.
-
-Phốc thử một tiếng, Tử Thần kỵ sĩ thân thể như là phá toái dưa hấu, sụp đổ mà ra.
-
-Trương Nhược Trần cấp tốc phóng tới hầm băng dưới đáy, cũng không lâu lắm, phía dưới xuất hiện một tòa cầu đá cổ lão rộng trăm trượng, vượt ngang toàn bộ hầm băng, treo giữa không trung, chỉ có bộ phận cầu thân hiển lộ ra, càng nhiều bộ phận bị ngũ thải hà quang bao phủ, căn bản nhìn không thấy.
-
-Tại mặt ngoài Băng Xuyên đại lục, hầm băng miệng đường kính liền có trăm dặm, càng là hướng phía dưới, hầm băng trở nên càng lớn.
-
-Nói cách khác, nằm ngang ở giữa không trung cầu đá, vượt xa trăm dặm, chỉ là muốn tưởng tượng cũng làm cho người cảm thấy rung động. Tại Âm Dương Hải Âm Nhãn, tu kiến cùng một tòa cầu đá bàng bạc mạnh mẽ như vậy, liền xem như Thánh Giả cũng làm không được.
-
-Trương Nhược Trần rơi xuống cầu đá đầu cầu, lập tức liền có một cỗ khí tức cổ xưa đập vào mặt. Cái loại cảm giác này tương đương cổ quái, để cho người ta sinh ra một loại ảo giác, tựa như là lập tức về tới Viễn Cổ.
-
-Cổ trên cầu điêu khắc mỗi một đạo đường vân, đều tràn ngập kỳ diệu thần thánh lực số lượng, chỉ cần nghiêm túc thiền ngộ, rất có thể ngộ ra một loại Vương cấp công pháp.
-
-Mặc dù là tại trong hầm băng, Trương Nhược Trần lại cảm giác được thiên địa tương đương mênh mông, cùng đứng tại trong vũ trụ không hề khác gì nhau. Loại cảm giác này cũng không có bảo trì bao lâu, Trương Nhược Trần lại cảm thấy đến thiên địa tương đương nhỏ hẹp, rất như là bị vây ở trong một hạt cát bụi, liền liền hô hấp đều trở nên vô cùng khó khăn.
-
-Giờ phút này, Bất Tử Huyết tộc, Tổ Long sơn, Cửu Lê cung Thánh cảnh sinh linh, toàn bộ đều đứng tại trên cầu đá.
-
-Ánh mắt của bọn hắn cuồng nhiệt, toàn lực ứng phó vận chuyển công pháp, hấp thu ngũ thải khí thể trên cầu.
-
-"Cái đó là. . . Hỗn Độn chi khí, nơi này lại có Hỗn Độn chi khí."
-
-Trương Nhược Trần âm thầm giật mình, trong lòng sinh ra một cái cổ quái suy nghĩ, hẳn là từ hầm băng tiêu tán đi ra ngũ thải hà quang, chính là Hỗn Độn chi khí cùng Cực Âm Thiên Long Khí?
-
-Cả hai đều là vô giới chi bảo.
-
-Cầu đá, tựa hồ là một chỗ đặc thù chi địa, trên cầu chỉ có Hỗn Độn chi khí, không có Cực Âm Thiên Long Khí , bất luận sinh linh gì lại tới đây đều có thể hấp thu.
-
-Dù là chỉ là hấp thu một sợi Hỗn Độn chi khí, đối với Hậu Thiên sinh linh mà nói, cũng cùng vô số chỗ tốt. Liền xem như Thôn Thiên Ma Long cùng Bạch Lê hoàng tử Thái Cổ di chủng như này, tại trứng trong trứng hấp thu qua Hỗn Độn chi khí, cũng tuyệt đối sẽ không để ý lại nhiều hấp thu một chút.
-
-Trương Nhược Trần xuất hiện, phá vỡ trên cầu đá yên tĩnh.
-
-Thôn Thiên Ma Long lấy nhân loại thân thể, đứng tại trên cầu đá, ở trên người hắn có trên trăm đầu long ảnh đang phi hành, không ngừng đem Hỗn Độn chi khí cuốn vào tiến thể nội. Hắn mở ra một cái Ma Nhãn, âm thanh lạnh lùng nói: "Trương Nhược Trần, ngươi lẻ loi một mình xâm nhập ở đây, là đến tìm cái chết sao?"
-
-Trên cầu đá, Thánh cảnh sinh linh khác, cũng đều tản mát ra sát khí lạnh lẽo.
-
-Sát khí thực sự quá nồng nặc, ngưng tụ ra một đám mây màu đỏ như máu, ở trong mây, có thể nhìn thấy thiên quân vạn mã hư ảnh, hàng ngàn hàng vạn chuôi đao kiếm.
-
-Loại sát khí thực chất hóa kia, đủ để dọa lùi Thánh cảnh sinh linh.
-— QUẢNG CÁO —
-
-Trương Nhược Trần không có một tơ một hào e ngại, dẫn theo chiến kiếm, từng bước một leo lên cầu đá, hướng bọn hắn đi tới , nói: "Hoàng Yên Trần cùng Thanh Mặc ở nơi nào?"
-
-Thôn Thiên Ma Long nhe răng cười một tiếng: "Ngươi đến chậm, các nàng đã chết!"
-
-"Các nàng nếu là chết rồi, các ngươi tất cả mọi người đến chôn cùng."
-
-Trương Nhược Trần mỗi một chữ đều tản mát ra băng lãnh chi khí, từ trong cơ thể hắn dũng mãnh tiến ra sát khí, cũng hình thành thiên quân vạn mã bóng dáng, cùng trên cầu Chư Thánh sát khí đụng vào nhau, phát ra thanh âm ầm ầm.
-
-Trên cầu đá Chư Thánh toàn bộ đều đang cười lạnh, cảm thấy Trương Nhược Trần quá không biết tự lượng sức mình.
-
-Bằng vào bọn hắn tu vi chỉ cần liên thủ đánh ra một kích, coi như Trương Nhược Trần có ba đầu sáu tay, cũng sẽ bị đánh nát thành cặn bã.
-
-Tề Sinh thần tình lạnh nhạt, nói ra: "Chúng ta sẽ không cho các nàng chôn cùng, chôn cùng người, sẽ chỉ là ngươi. Ngươi có thể giết chết hai vị Tử Thần kỵ sĩ, ta thật thật bất ngờ, thế nhưng là, nhân lực cuối cùng có hạn, không cách nào nghịch thiên. Ở đây Chư Thánh, không phải đám ô hợp, không cần toàn bộ liên thủ, chỉ cần hai ba vị liên thủ, liền có thể để cho ngươi chết không có chỗ chôn, ngươi coi như vận dụng lực lượng không gian cũng đừng hòng chạy thoát."
-
-Rất hiển nhiên, Tề Sinh cũng thừa nhận một thân một mình, rất có thể không phải là đối thủ của Trương Nhược Trần, cần cùng người khác liên thủ, mới có thể giết chết Trương Nhược Trần.
-
-Huỳnh Hoặc trên thân chỉ có một tầng sa mỏng màu đỏ che đậy, đường cong ôn nhu, đứng tại trong một đám huyết vụ, da thịt tuyết trắng như ẩn như hiện, lộ ra vô cùng xinh đẹp cùng thần bí, để cho người ta không nhịn được muốn đi vào huyết vụ, xé nát sa mỏng trên người nàng.
-
-Loại dụ hoặc kia, có rất ít nam tử có thể nhịn được.
-
-Nàng một đôi tinh mâu, trực câu câu nhìn chằm chằm Trương Nhược Trần, cười duyên một tiếng: "Thôn Thiên Ma Long không có lừa ngươi, ngươi vị hôn thê kia hoàn toàn chính xác đã chết đi."
-
-Sau đó, Huỳnh Hoặc duỗi ra một cây thon dài ngón tay ngọc, chỉ hướng cầu đá phía bên phải.
-
-Trương Nhược Trần trái tim mãnh liệt nhảy một cái, sinh ra một loại dự cảm bất tường, thuận Huỳnh Hoặc ngón tay phương hướng, nhìn chằm chằm đi qua, quả nhiên trông thấy Hoàng Yên Trần cùng Thanh Mặc.
-
-Bên phải, khoảng cách cầu đá ước chừng 500 mét vị trí, lơ lửng một tòa băng sơn. Hoàng Yên Trần cùng Thanh Mặc toàn thân đều là máu tươi, thân thể rách tung toé, bị phong tại trong núi băng, hình ảnh kia không nói ra được thê thảm, thấy Trương Nhược Trần trái tim đều giống như biến thành khối băng.
-
-Hàn băng trong Ngũ Thải Băng Quật, so Di Khí Thâm Hải hàn băng không phải lạnh gấp bao nhiêu lần, một khi bị băng phong, cũng liền mang ý nghĩa tử vong.
-
-"Không. . ."
-
-Trương Nhược Trần răng đều muốn cắn nát, mười ngón đều muốn bóp gãy, không cách nào hình dung phẫn nộ trong lòng cùng bi thống.
-
-Biết được Hoàng Yên Trần cùng Thanh Mặc bị đánh xuống hầm băng thời điểm, hắn liền đã có tâm lý chuẩn bị, nhưng là chân chính tận mắt thấy, nhưng vẫn là để cho người ta cam tâm đứt từng khúc, không thể nào tiếp thu được sự thực như vậy.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1280
-
-Chương 1277: Độc chiến Chư Thánh
-
-Nhìn thấy Trương Nhược Trần bộ dáng thống khổ như vậy, lấy Thôn Thiên Ma Long cầm đầu, trên cầu đá Chư Thánh, toàn bộ đều cất tiếng cười to, bọn hắn cảm thấy tương đương thống khoái.
-
-Vô luận là Tổ Long sơn, hay là Bất Tử Huyết tộc, ở trong tay Trương Nhược Trần đều là tổn thất nặng nề, bao giờ cũng muốn đem hắn trừ chi cho thống khoái. Hiện tại, nhìn thấy Trương Nhược Trần bộ dáng bi thống như vậy, còn có sự tình so đây càng để bọn hắn cao hứng?
-
-"Đối địch với Tổ Long sơn, chính là đang tìm cái chết, cuối cùng là phải bỏ ra thảm liệt đại giới."
-
-"Bất Tử Huyết tộc Thánh Giả chết trong tay ngươi đâu chỉ mười vị, bây giờ, cũng nên để cho ngươi nếm thử hối hận tư vị. Ngươi có phải hay không đặc biệt khó chịu?"
-
-Tiếng cười của bọn hắn vô cùng chói tai, vô cùng đắc ý, Trương Nhược Trần nhưng thật giống như hoàn toàn nghe không được, hai mắt nhìn chằm chằm treo giữa không trung toà băng sơn phong bế Hoàng Yên Trần cùng Thanh Mặc kia, trong mắt che kín từng cây tơ máu.
-
-Tòa băng sơn kia, cũng không phải là độc lập lơ lửng ở nơi đó, mà là do một cây to cỡ miệng chén xích sắt kết nối với, xích sắt một đầu khác, khóa tại trên cầu đá trên một cái vuốt rồng.
-
-Tại cầu đá hai bên, cũng không phải là chỉ có một cây xích sắt, mà là có lít nha lít nhít xích sắt, hướng về hai bên phải trái dọc theo đi. Mỗi một cây xích sắt cuối cùng đều kết nối với một tòa băng sơn, băng sơn nội bộ, thì là một cái lồng giam.
-
-Trong mỗi một cái lồng giam, đều là giam giữ có một cái sinh linh, có nhân loại, có rồng, có Kỳ Lân, có Bệ Ngạn. . .
-
-Còn có một số sinh linh, chỉ tồn tại ở trong truyền thuyết thần thoại, bây giờ, lại thấy được bọn chúng thế mà chân thực tồn tại, phong tại trong hàn băng, sinh động như thật, giống như chỉ là ngủ say, bất cứ lúc nào cũng sẽ tỉnh lại.
-
-Trong quá khứ xa xôi ấy, nơi đây nhất định là địa phương Thần Long nhất tộc giam giữ trọng phạm.
-
-Trong lồng giam những sinh linh kia, mỗi một cái chỉ sợ đều là tồn tại tương đương lợi hại, bằng không, làm sao có thể bị Thần Long nhất tộc coi trọng như vậy, giam giữ đến Âm Dương Hải Âm Nhãn?
-
-Phong bế Hoàng Yên Trần cùng Thanh Mặc tòa băng sơn kia nội bộ, cũng có một cái lồng giam, trong lồng cầm tù lấy một con chim.
-
-Con chim kia, chỉ lớn cỡ lòng bàn tay, toàn thân cháy đen, không có lông vũ, cùng một con chim sẻ bị nướng cháy không hề khác gì nhau. Một con chim nhỏ phổ thông như vậy, lại bị cầm tù tại địa phương nguy hiểm như thế, lộ ra khá quỷ dị.
-
-"Hoa —— "
-
-Thực Thánh Hoa từ phần lưng Trương Nhược Trần lao ra, hình thành một cây trường đằng, quấn chặt lấy tòa băng sơn kia, đưa nó chậm rãi kéo hướng cầu đá.
-
-Coi như Hoàng Yên Trần đã hương tiêu ngọc vẫn, Trương Nhược Trần cũng muốn đưa nàng thi thể mang về, không thể để cho nàng lưu tại trong hầm băng.
-
-Huỳnh Hoặc uyển chuyển cười một tiếng: "Ngươi thật đúng là si tình, đã lâm vào tử vong tuyệt cảnh, vậy mà không có lập tức đào tẩu, mà là muốn mang đi vị hôn thê thi thể. Ngươi nam tử như vậy, thật là làm cho nô gia cũng có chút động tâm."
-
-Tề Sinh nói: "Hoàng Yên Trần vì hắn, rời đi Đông Vực Thánh Vương Phủ, bỏ xuống cha mẹ cùng người thân của mình, phản bội triều đình cùng Nữ Hoàng, từ bỏ Giới Tử mới có quyền lợi cùng vinh quang, cam tâm tình nguyện cùng hắn lưu vong thiên hạ, không rời không bỏ, cuối cùng còn bởi vì hắn mà chết. Có vợ như thế, còn cầu mong gì? Trương Nhược Trần là đỉnh thiên lập địa Nhân tộc anh kiệt, làm sao có thể vứt bỏ nàng không để ý một mình đào tẩu?"
-
-Huỳnh Hoặc nhẹ nhàng gật đầu , nói: "Nói thật giống như cũng đúng, Trương Nhược Trần nếu là không mang đi nàng thi thể, đưa nàng nhét vào toà hầm băng trời đông giá rét này, thật chính là không bằng cầm thú."
-
-Bọn hắn nhìn như như là tán dương Trương Nhược Trần, kỳ thật lại là rắp tâm hại người.
-
-Nếu là, Trương Nhược Trần thật muốn chạy trốn, coi như bọn hắn đã sớm chuẩn bị đủ loại thủ đoạn, nhưng như cũ không có tự tin trăm phần trăm có thể đem Trương Nhược Trần lưu lại.
-— QUẢNG CÁO —
-
-Thế nhưng là, sử dụng Hoàng Yên Trần thi thể kiềm chế lại Trương Nhược Trần, như vậy Trương Nhược Trần hôm nay cũng liền hẳn phải chết không nghi ngờ, căn bản đi không nổi.
-
-Thôn Thiên Ma Long trên mặt lộ ra một đạo cười lạnh, chỉ có một con mắt trong hốc mắt hiện ra ngọn lửa màu xanh lam , nói: "Trước diệt trừ Trương Nhược Trần, lại hấp thu Hỗn Độn chi khí."
-
-"Chờ một chút."
-
-Bạch Lê hoàng tử phóng ra trầm ổn bước chân đi ra, một đầu không nhiễm hỗn tạp sắc tóc trắng trong gió chập chờn , nói: "Trương Nhược Trần, muội muội ta đến cùng ở nơi nào, nói ra đi, đây là ngươi sau cùng mạng sống cơ hội."
-
-Lời giống vậy, Trương Nhược Trần đã nói qua một lần, cũng sẽ không lại nói lần thứ hai.
-
-Tại Cửu Lê cung hướng Hoàng Yên Trần xuất thủ thời điểm, song phương đã là đối địch quan hệ, Trương Nhược Trần cũng không có cái gì tốt giải thích.
-
-"Ngươi không nói lời nào, coi là liền có thể bảo trụ tính mạng của mình?" Bạch Lê hoàng tử nói.
-
-"Lười nhác tiếp tục hỏi hắn, trực tiếp đem hắn bắt, sử dụng bí thuật rút ra trí nhớ của hắn, nhất định có thể đem Bạch Lê công chúa tìm trở về."
-
-Hắc Lê hoàng tử hừ lạnh một tiếng, hóa thành một đạo màu đen bóng dáng, cấp tốc lao ra, duỗi ra một cái móng vuốt sắc bén. Vuốt mèo trở nên chừng dài mấy mét, đem Trương Nhược Trần thân thể hoàn toàn bao khỏa đi vào.
-
-Trương Nhược Trần ánh mắt rét lạnh, hướng Hắc Lê hoàng tử liếc qua.
-
-"Coong!"
-
-Tiếng kiếm reo vang lên.
-
-Trầm Uyên cổ kiếm tự động bay ra ngoài, thổi phù một tiếng, đánh xuyên vuốt mèo, hóa thành một đạo lưu quang màu đen, phóng tới mi tâm Hắc Lê hoàng tử, muốn đem nó giết chết.
-
-Hắc Lê hoàng tử chính là Thái Cổ di chủng, mà lại, đã đột phá đến thượng cảnh Thánh Giả cảnh giới, thế nhưng là, đối mặt Trương Nhược Trần một kiếm này, lại cảm giác được sợ mất mật. Tại trong tầm mắt của nó, đầy trời đều là kiếm khí, căn bản là không có cách trốn tránh.
-
-Càng thêm muốn mạng chính là, trên Trầm Uyên cổ kiếm mang theo hủy diệt kình khí tương đương doạ người, áp chế cho nó thể nội huyết dịch đều muốn ngưng kết.
-
-"Một kiếm thật là lợi hại."
-
-Tề Sinh nhướng mày, lộ ra vẻ ngưng trọng.
-
-Ngắn ngủi mấy ngày không gặp, Trương Nhược Trần tu vi, lại tấn mãnh tăng trưởng một mảng lớn.
-
-Ma Thiên thái tử cũng là hít vào một ngụm hàn khí , nói: "Kiếm lợi hại, người lợi hại hơn. Trương Nhược Trần tạo nghệ trên Kiếm Đạo, đã rất tiếp cận Kiếm Thánh."
-
-"Soạt."
-
-Mắt thấy Hắc Lê hoàng tử sẽ chết tại dưới kiếm Trương Nhược Trần, một cái vòng thép màu trắng, từ trên cổ tay Bạch Lê hoàng tử bay ra, hóa thành một đạo bạch quang, cùng Trầm Uyên cổ kiếm va chạm.
-
-Vòng thép màu trắng cùng Trầm Uyên cổ kiếm đều là tuyệt thế chiến binh, đụng vào nhau, lập tức, một cỗ cường đại cơn bão năng lượng lao ra, đem cách gần nhất Hắc Lê hoàng tử tung bay ra ngoài. Đương nhiên, Bạch Lê hoàng tử một kích này, nhưng cũng là đánh Phi Trầm uyên cổ kiếm, cứu được Hắc Lê hoàng tử một mạng.
-
-Trong nháy mắt tiếp theo, Bạch Lê hoàng tử từ tại chỗ biến mất, xuất hiện lần nữa thời điểm, đã đứng tại trước người Trương Nhược Trần, đơn giản tựa như là thi triển ra không gian na di một dạng.
-
-Trên thực tế, Bạch Lê hoàng tử cũng không thể điều động lực lượng không gian, chỉ là tốc độ quá nhanh, để ở đây Thánh cảnh sinh linh đều thấy không rõ thân ảnh của hắn.
-
-Bạch Lê hoàng tử chậm rãi duỗi ra một tay nắm, năm ngón tay triển khai, chụp vào cái cổ Trương Nhược Trần.
-
-Người ở bên ngoài xem ra, Bạch Lê hoàng tử đưa tay tốc độ tương đương chậm chạp, thế nhưng là, tại trước mắt Trương Nhược Trần, tốc độ của nó, lại so thiểm điện nhanh hơn.
-
-Bạch Lê hoàng tử đối với tốc độ Thánh Đạo quy tắc lĩnh ngộ, đã đạt tới độ cao tương đương doạ người, giống như Trương Nhược Trần tạo nghệ trên Kiếm Đạo một dạng, không thể lấy đơn thuần tu vi cảnh giới đến bình phán thực lực của hắn.
-
-Thiên hạ võ công, duy khoái bất phá.
-
-Chỉ cần tốc độ đầy đủ nhanh, bất cứ địch nhân nào đều có thể đánh chết.
-
-Bạch Lê hoàng tử thực lực, mạnh mẽ hơn Tử Thần kỵ sĩ rất rất nhiều, cho Trương Nhược Trần tạo thành to lớn áp bách.
-
-Không kịp thu hồi Trầm Uyên cổ kiếm, Trương Nhược Trần hai ngón tay bóp thành kiếm quyết, hướng Bạch Lê hoàng tử nghênh kích đi lên.
-
-Tại trên cầu Chư Thánh xem ra, Trương Nhược Trần tốc độ xuất thủ cũng là chậm chạp tới cực điểm, vẻn vẹn chỉ là nhanh hơn Bạch Lê hoàng tử một chút xíu.
-
-Trên thực tế, Trương Nhược Trần tốc độ cũng là nhanh như lưu quang, thi triển chính là Thời Gian Kiếm Pháp, cải biến Thời Gian quy tắc, khiến cho hắn cùng Bạch Lê hoàng tử chỗ khu vực tốc độ thời gian trôi qua phát sinh cải biến, mới có thể hình thành quỷ dị như vậy hình ảnh.
-
-Nói là Trương Nhược Trần cùng Bạch Lê hoàng tử giao phong, không bằng nói là Thời Gian quy tắc cùng Tốc Độ quy tắc giao phong.
-
-Thời Gian quy tắc tự nhiên là so Tốc Độ quy tắc càng thêm lợi hại, nhưng là, Thời Gian quy tắc cũng rất khó lĩnh ngộ, Trương Nhược Trần ở trên Thời Gian quy tắc tạo nghệ cũng không cao, bởi vậy, cùng Bạch Lê hoàng tử giao thủ, vẻn vẹn chỉ là hơi chiếm thượng phong.
-
-"Bọn hắn đang làm gì? Bạch Lê hoàng tử không phải danh xưng đệ nhất trong Cửu Lê cung tuổi trẻ Thánh Thú, đơn thuần so tốc độ, đủ để cùng Chân Thánh phân cao thấp. Đây chính là hắn vô địch tốc độ?"
-
-Thôn Thiên Ma Long có chút khinh thường, cảm thấy Bạch Lê hoàng tử chỉ là hư danh, hóa thành một đạo bóng đen vọt tới, chuẩn bị đánh giết Trương Nhược Trần, để tránh đêm dài lắm mộng, để Trương Nhược Trần lần nữa đào tẩu.
-
-Thế nhưng là, Thôn Thiên Ma Long mới vừa vặn đi vào trong vòng mười trượng, tựa như là rơi vào tiến vũng bùn.
-
-"Không tốt, là lực lượng thời gian."
-
-Thôn Thiên Ma Long ý thức được không ổn, lập tức hướng về sau lùi lại, chuẩn bị thoát đi ra ngoài.
-
-Trong Di Khí Thâm Hải có một cỗ lực lượng thần bí, khiến cho tu sĩ cảm giác trở nên tương đương yếu kém, nếu không, Thôn Thiên Ma Long khẳng định có thể phát hiện thời gian ba động, cũng sẽ không tùy tiện xâm nhập đi vào.
-— QUẢNG CÁO —
-
-
-"Đã tiến đến, còn muốn ra ngoài?"
-
-Trương Nhược Trần điều động càng nhiều Thời Gian quy tắc, lập tức, Thời Gian lĩnh vực hướng ra phía ngoài khuếch trương, trở nên càng rộng, đem trên cầu đá Chư Thánh cũng đều bao phủ đi vào.
-
-Tại trong Thời Gian lĩnh vực, Trương Nhược Trần sẽ không nhận một tơ một hào ảnh hưởng, nhưng là, sinh linh khác lại gặp lực lượng thời gian áp chế, tốc độ trở nên vô cùng chậm chạp.
-
-"Phốc."
-
-Trương Nhược Trần toàn lực một chưởng đánh ra, đánh vào ngực Thôn Thiên Ma Long, đánh cho lồng ngực của nó chia năm xẻ bảy, tạng phủ đều nát một mảng lớn, máu tươi rải đầy cầu đá, gặp trước nay chưa có trọng thương.
-
-Nhìn thấy Thôn Thiên Ma Long bộ dáng thê thảm kia, ở đây Chư Thánh toàn bộ đều sắc mặt biến đổi lớn, không có người nào còn có thể cười được. Bởi vì, bọn hắn cũng bị quét sạch tiến Thời Gian lĩnh vực, lúc nào cũng có thể bước Thôn Thiên Ma Long theo gót.
-
-Vốn cho rằng ăn chắc Trương Nhược Trần, lại không nghĩ rằng lực lượng thời gian vậy mà quỷ dị như thế, so lực lượng không gian còn muốn đáng sợ.
-
-Thủ đoạn gì, có thể phản chế lực lượng thời gian?
-
-Trương Nhược Trần tiếp tục lao ra, chuẩn bị nhân cơ hội này, triệt để gạt bỏ Thôn Thiên Ma Long.
-
-Thôn Thiên Ma Long cảm nhận được nguy cơ tử vong, cho dù là giống hắn hạng người cuồng ngạo như này, cũng đều sắc mặt tái nhợt. Gặp lực lượng thời gian áp chế, nó muốn vận dụng Tổ Long Lân lực lượng cũng đều không kịp.
-
-Bạch Lê hoàng tử xuất hiện lần nữa, ngăn cản được Trương Nhược Trần công kích.
-
-Hiện tại, cũng chỉ có Bạch Lê hoàng tử, còn có thể đánh với Trương Nhược Trần một trận.
-
-Lực lượng thời gian áp chế hắn, thế nhưng là, tốc độ của hắn nhưng như cũ chỉ so với Trương Nhược Trần chậm một chút xíu. Có thể tưởng tượng, Trương Nhược Trần nếu không phải có thể điều động lực lượng thời gian, chỉ sợ ngay cả hắn một chiêu đều không tiếp nổi.
-
-Bạch Lê hoàng tử đối với mình lực lượng tương đương tự tin , nói: "Tại trước mặt bản hoàng tử, ngươi là ai đều giết không được!"
-
-"Thật sao? Vậy ta liền chém cho ngươi xem."
-
-Trương Nhược Trần thân hình lóe lên, hướng Hắc Lê hoàng tử phóng đi.
-
-. . .
-
-(cầu phiếu đề cử! Tạ ơn! )
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1281
-
-Chương 1278: Chết cũng không lùi
-
-Hắc Lê hoàng tử một cái móng vuốt, lúc trước liền bị Trầm Uyên cổ kiếm đánh xuyên, còn tại chảy xuôi máu tươi.
-
-Nhìn thấy Trương Nhược Trần hướng nó vọt tới, Hắc Lê hoàng tử trong mắt, lộ ra sợ hãi thần sắc. Liền ngay cả Bạch Lê hoàng tử đều không thể trấn áp lại Trương Nhược Trần, lấy tu vi của nó, có thể đỡ nổi Trương Nhược Trần vài chiêu?
-
-Hắc Lê hoàng tử vội vàng hướng lui về phía sau trốn, thế nhưng là lui trốn tốc độ lại tương đương chậm chạp, giống như ốc sên bò sát.
-
-"Chết."
-
-Trương Nhược Trần trên ngón tay tiêu tán xuất kiếm mang, hướng mi tâm Hắc Lê hoàng tử đánh tới.
-
-Hắc Lê hoàng tử thể nội, xông ra một mảnh ánh sáng màu xanh, khiến cho thân thể của nó như là biến thành phỉ thúy đồng dạng, trong suốt bóng loáng, cùng trước kia hoàn toàn không giống.
-
-Ngón tay cùng bao trùm trên người nó thanh mang đụng vào nhau, phát ra một tiếng thanh thúy thanh âm, giống như là sắt đá tại va chạm.
-
-Hắc Lê hoàng tử hướng về sau bay rớt ra ngoài, đụng vào trên cây cột cầu đá bên trái, có từng hạt điểm sáng màu xanh, theo nó thể nội vương xuống tới.
-
-"Trong cơ thể của ngươi, quả nhiên là có một kiện hộ thân bảo vật khó lường." Trương Nhược Trần nói.
-
-Lúc trước, Hắc Lê hoàng tử thu phục Tiêu Linh Long Hỏa thất bại, vẫn chưa có chết đi, Trương Nhược Trần liền hoài nghi trong cơ thể của nó có hộ thân bảo vật, hiện tại, xem như xác nhận điểm này.
-
-Hắc Lê hoàng tử nói: "Bản hoàng tử có Hắc Lê bộ tộc Tổ Khí hộ thể, ngươi giết không được ta."
-
-Trương Nhược Trần sử dụng Thiên Nhãn, nhìn thấy Hắc Lê hoàng tử tim vị trí, có một viên thanh ngọc nhẫn. Chính là trên nhẫn phát ra quang mang, ngăn trở công kích của hắn.
-
-"Một kiện Tổ Khí, che chở không được ngươi."
-
-Trương Nhược Trần năm ngón tay mở ra, giữa không trung, ngưng kết ra một cái đại thủ ấn hạ xuống , theo ở trên thân Hắc Lê hoàng tử.
-
-Hắc Lê hoàng tử đối với Tổ Khí lực lượng rất có lòng tin , nói: "Vô dụng, liền ngay cả Tiêu Linh Long Hỏa đều đốt không chết ta, ngươi càng không được. . . Đây là. . . Đây là lửa gì. . ."
+Thu Vũ trừng lớn hai mắt, trong mắt đúng là khó có thể tin thần sắc , nói: "Nếu là. . . Ta là nhân loại, hôm nay thật đúng là muốn bị ngươi trọng thương. Đáng tiếc, ta vô tâm."
 
 "Xoẹt xoẹt."
 
-Trương Nhược Trần điều động ra Tịnh Diệt Thần Hỏa, từ lòng bàn tay tuôn ra, hướng phía dưới nén, phá vỡ hào quang màu xanh, nắm Hắc Lê hoàng tử thân thể.
+Thu Vũ trong lòng bàn tay, toát ra từng cây nhánh cây, xuyên thấu A Nhạc đầu lâu, mỗi một cây trên nhánh cây đều có hỏa diễm đang thiêu đốt, khiến cho A Nhạc đầu lâu đều đi theo bắt đầu cháy rừng rực.
 
-Một lát sau, Hắc Lê hoàng tử bị đốt thành tro bụi, Trương Nhược Trần trong tay, chỉ còn một viên thanh ngọc nhẫn.
+Nếu là lúc trước, Thu Vũ đối với A Nhạc hay là thưởng thức, muốn đem hắn thu phục.
 
-Ở trong Tịnh Diệt Thần Hỏa, thanh ngọc nhẫn cũng không có hòa tan, ngược lại tản mát ra càng thêm hào quang rực rỡ, tuyệt đối là một kiện đỉnh cấp hộ thân bảo vật. Trương Nhược Trần đưa nó thu hồi, chuẩn bị về sau lại chậm chậm nghiên cứu.
+Hiện tại, Thu Vũ lại cảm thấy mình căn bản khống chế không được A Nhạc, người này vô cùng nguy hiểm, nhất định phải nhanh chóng diệt trừ, miễn cho trở thành đại địch.
 
-"Trương Nhược Trần, ngươi làm tức giận ta!"
+"Xoẹt xẹt."
 
-Bạch Lê hoàng tử sắc mặt không thay đổi, thế nhưng là, hai mắt lại lộ ra thần sắc lạnh lẽo, hai tay cùng lúc nắm giơ lên, song chưởng lòng bàn tay lơ lửng một cái vòng thép màu trắng.
+A Nhạc ý chí bất diệt, cánh tay lần nữa kéo lấy một chút, thiết kiếm từ nơi ngực Thu Vũ, chém ngang tới, trực tiếp đem Thu Vũ thân thể chặt đứt một nửa.
 
-Vòng thép màu trắng tật tốc xoay tròn, phát ra âm thanh chói tai, sau đó, hóa thành một đạo bạch quang, bay về phía Trương Nhược Trần.
+Lập tức, Thu Vũ nửa người đều là hóa thành chất gỗ, kém một chút bị đánh về nguyên hình.
 
-"Thân Kiếm."
+Sử dụng ra lực lượng cuối cùng, A Nhạc trên thân cũng là sinh cơ hoàn toàn không có, đứng ở nơi đó, vẫn như cũ dẫn theo thiết kiếm, không nhúc nhích, đầu lâu đều bị ngọn lửa thiêu đến hòa tan.
 
-Thân Kiếm, là phòng ngự chiêu thức trong Thập Nhị Thời Thần Kiếm Pháp, không chỉ có có Kiếm Đạo lực lượng, cũng có lực lượng thời gian.
+Thu Vũ toàn thân đều đang run rẩy, một cước đá vào phía trên A Nhạc thi thể, cắn chặt hàm răng, mang theo một loại tức giận , nói: "Không hổ là bảy đại cổ giáo đứng đầu, thật đúng là tàng long ngọa hổ, tùy tiện toát ra một cái kiếm khách, vậy mà đều là như vậy lực lượng. Trong chín đại Giới Tử, có mấy người chống đỡ được một kiếm này?"
+
+"Phù phù."
+
+A Nhạc thi thể, rơi vào tiến trong linh hồ, máu tươi nhuộm đỏ một mảng lớn nước hồ.
+
+"A Nhạc. . ."
+
+Mộc Linh Hi từ trong tu luyện bí phủ lao ra, nhìn thấy trong hồ thi thể, trực tiếp quỳ trên mặt đất, trong mắt nước mắt không chỉ , nói: "Thật xin lỗi. . . Thật xin lỗi, đều là ta hại chết ngươi. . . Thật xin lỗi. . ."
+
+Nơi xa, trong rừng rậm, Thủ Thử từ trong đất bùn nhô ra một cái đầu đến, thấy cảnh này, chính là giật nảy mình, "Xong, xong, liền ngay cả A Nhạc đều đã chết! Ai còn bảo hộ được Tiểu Thánh Nữ? Ta có thể không phải là đối thủ của Thu Vũ, hay là trước bẩm báo Hắc gia lại nói."
+
+Ngay sau đó, Thủ Thử chính là trốn vào tiến trong đất bùn, rời đi Ma giáo tổng đàn, hướng về trong Man Hoang bí cảnh mà đi.
+
+. . .
+
+(mọi người còn nhớ rõ Thủ Thử sao? Nhắc nhở một chút, chính là Thái Cổ di chủng Thần Ma Thử.
+
+Mặt khác A Nhạc, mọi người có phải hay không cũng đã quên rồi? )
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1374
+
+Chương 1371: Lạc Thủy
+
+Converter: DarkHero
+
+Thiên Ma Lĩnh, ở vào Đông Vực biên thuỳ, cùng Đông Hải cùng Man Hoang đụng vào nhau, rời xa Đệ Nhất Trung Ương đế quốc cương thổ.
+
+Tại trên phiến đại địa này, có hàng ngàn hàng vạn cái quận quốc, bọn chúng cát cứ một phương, tức đối với Đệ Nhất Trung Ương đế quốc xưng thần, cũng có thuộc về mình triều đình cùng Vương tộc.
+
+Tại Thiên Ma Lĩnh, vốn là có 36 cái quận quốc, bây giờ lại là đã hoàn thành nhất thống, chỉnh hợp làm một cái thượng đẳng quận quốc —— Vân Võ quận quốc.
+
+Vân Võ quận quốc cảnh nội, có một nửa là văn minh nhân loại, còn có một nửa khác thì là một mảnh rừng rậm nguyên thủy, người ở hi hữu đến, vô cùng nguy hiểm, chỉ có tu luyện Võ Đạo tu sĩ có thể bước vào.
+
+Ngay tại khu vực văn minh nhân loại cùng rừng rậm nguyên thủy giao giới, chảy xuôi một con sông lớn, tại đường sông rộng lớn chỗ, dòng nước nhẹ nhàng, giống như tĩnh hồ.
+
+Tên là "Lạc Thủy" .
+
+Truyền thuyết, Lạc Thủy là từ trên chín tầng trời rơi xuống, hóa thành dòng sông, dưỡng dục lấy ngàn vạn bách tính, khiến cho mảnh cằn cỗi đại địa này, đều trở nên vô cùng phì nhiêu.
+
+Giờ phút này, một chiếc thanh mộc thuyền nhỏ, tung bay ở trên Lạc Thủy.
+
+Một người nam tử có mái tóc rối tung, lười biếng nằm tại đuôi thuyền, bên môi toát ra nồng đậm sợi râu, cũng không biết bao lâu không có tu bổ qua, ở trong tay của hắn, thì là nắm lấy một cái hồ lô rượu, đem trong hồ lô rượu, liều mạng rót vào trong miệng.
+
+Trên đầu thuyền, đứng đấy một nữ tử khí chất trang nhã, cầm trong tay một cây gậy trúc, ngay tại chống thuyền.
+
+Nàng này, không chỉ dung mạo thanh mỹ, mà lại có địa vị không hề bình thường, chính là đương kim Vân Võ quận quốc đệ nhất cao thủ, cũng là quận vương muội muội, đã từng Cửu quận chúa, Trương Vũ Hi.
+
+Tôn quý như thế thân phận, vậy mà cho một cái tửu quỷ chống thuyền, nếu là truyền đi, nhất định là muốn chấn động toàn bộ quận quốc.
+
+Trương Vũ Hi một đôi trong đôi mắt đẹp, mang theo vẻ mặt ân cần, cũng có một chút không đành lòng, cuối cùng vẫn nói ra: "Cửu đệ, ngươi còn muốn uống bao nhiêu? Chẳng lẽ ngươi muốn một mực chán chường như vậy xuống dưới, không còn truy cầu ngươi Thánh Đạo?"
+
+Cửu đệ có thể trở về, Trương Vũ Hi tự nhiên là cao hứng phi thường, thế nhưng là, nhìn thấy ý chí tinh thần của hắn sa sút như vậy, nhưng trong lòng thì vô cùng khó chịu.
+
+"Thánh Đạo? Cái gì là Thánh Đạo? Hôm nay có rượu hôm nay say, không thể so với Thánh Đạo tốt hơn? Vô ưu vô lự, không có ràng buộc, không thể so với Thánh Đạo tốt hơn? Du lịch sơn hà, quan sát động tĩnh ngắm trăng, chẳng lẽ không thể so với Thánh Đạo tốt hơn? Thần thời gian, cũng không sánh bằng ta."
+
+Trương Nhược Trần lần nữa uống xong một ngụm, mím môi , nói: "Tửu Phong Tử quả nhiên là cất rượu Đại tông sư, xưa nay không khiến ta thất vọng."
+
+Trương Vũ Hi nhẹ nhàng thở dài, cũng không biết nên vui, hay nên buồn.
+
+Lạc Thủy mặt nước, sương mù bốc lên, giống như tiên cảnh.
+
+Trương Nhược Trần đem rượu trong hồ lô, toàn bộ đều uống cạn, trực tiếp đem hồ lô ném ra ngoài, xoay người đứng lên , nói: "Cửu tỷ, ta dạy cho ngươi một bộ quyền pháp, ngươi có học hay không?"
+
+Trương Vũ Hi gặp Trương Nhược Trần vậy mà nguyện ý lần nữa luyện quyền, hai con ngươi sáng lên, vội vàng nhẹ gật đầu , nói: "Học, ngươi sớm nên dạy ta mấy chiêu, ta mỗi ngày đều muốn học."
+
+"Còn muốn mỗi ngày đều học, ngươi làm sao như vậy lòng tham? Ta chỉ dạy một lần, có thể học bao nhiêu, liền xem ngươi ngộ tính."
+
+Trương Nhược Trần toàn thân tản ra nồng đậm mùi rượu, say khướt bộ dáng, thân thể lung la lung lay, có chút đứng không vững bộ dáng, nâng lên mềm nhũn cánh tay, đánh ra một chiêu quyền pháp: "Thức thứ nhất, Thiên Hà Phân Công."
+
+"Thức thứ hai, Cửu Khúc Cửu Chuyển."
+
+"Thức thứ ba, Hoành Đoạn Thiên Lộ."
+— QUẢNG CÁO —
+
+. . .
+
+Trương Vũ Hi nhìn xem Trương Nhược Trần lung la lung lay dáng vẻ, nhíu chặt mày lên, cảm thấy Trương Nhược Trần đã uống say, chỉ là tại lung tung đánh quyền, đánh ra quyền pháp mềm nhũn, một chút uy lực đều không có.
+
+"Cửu đệ, ngươi đây là quyền pháp gì?"
+
+Trương Nhược Trần một bên đánh quyền, một bên say khướt nói ra: "Lạc Thủy Quyền Pháp."
+
+Trương Vũ Hi tự nhiên là biết Lạc Thủy Quyền Pháp, đó là Lạc Hư tiền bối sáng lập ra quyền pháp, cao thâm mạt trắc, uy lực vô tận, tại Đệ Nhất Trung Ương đế quốc đều có uy danh rất lớn. Nhưng là, Trương Nhược Trần đánh ra quyền pháp, cũng rất trò đùa, rất như là uống say đằng sau, tại lung tung khoa tay.
+
+"Cửu đệ, chúng ta hay là trở về. . . A. . . Chuyện gì xảy ra. . ."
+
+Trương Vũ Hi lời nói vẫn chưa nói xong, bỗng dưng, thanh mộc thuyền nhỏ đúng là mãnh liệt xoay tròn, kém một chút đưa nàng quăng bay ra đi.
+
+Bất quá, Trương Vũ Hi tu vi, cũng là xưa đâu bằng nay, lập tức ổn định bước chân, hướng về phía dưới nhìn lại, chỉ gặp, dưới thuyền nhỏ, đúng là xuất hiện một cái vòng xoáy.
+
+Cũng không biết vòng xoáy là bản thân liền tồn tại, hay là vừa rồi mới đản sinh ra.
+
+Đang đánh quyền Trương Nhược Trần, lập tức ngừng lại.
+
+Ngay sau đó, vòng xoáy kia cũng là dần dần trở nên nhẹ nhàng, vậy mà cũng biến mất không thấy gì nữa.
+
+Trương Nhược Trần giống như là đã nhận ra cái gì, nhìn chằm chằm mặt nước, trong ánh mắt mê ly kia, đúng là sinh ra một chút thần thái.
+
+"Đến cùng là chuyện gì xảy ra? Mạnh mẽ như vậy xoay tròn lực lượng, làm sao tại trong khoảnh khắc liền lại biến mất?" Trương Vũ Hi lộ ra không thể tưởng tượng thần sắc.
+
+Bên bờ, truyền tới một tiếng cười.
+
+Vân Võ quận vương Trương Thiếu Sơ, mặc một thân màu vàng vương bào, nhìn qua trên thuyền nhỏ Trương Nhược Trần cùng Trương Vũ Hi, hô nói: "Cửu đệ, Cửu muội, các ngươi đi ra du sơn ngoạn thủy, vậy mà đều không gọi tới ta, còn có hay không đem ta coi như ca ca?"
+
+Trương Thiếu Sơ làm quận vương đằng sau, lại mập một vòng lớn, giống như một quả bóng, lúc cười lên, thịt trên mặt đều đang nhảy nhót.
+
+"Tứ ca, ngươi tới được vừa vặn, điều khiển một đội quân tới, giúp ta làm một chuyện." Trương Nhược Trần nói.
+
+Trương Thiếu Sơ hỏi: "Chuyện gì?"
+
+"Đào sông."
+
+Trương Thiếu Sơ lập tức sững sờ , nói: "Đào sông gì?"
+
+"Liền đào đáy sông dưới thuyền nhỏ này, nhìn xem có thể hay không đào ra đồ vật gì tới." Trương Nhược Trần nằm ở đầu thuyền, lại nói: "Còn có, lại cho ta đưa một bầu rượu, nhất định phải nhớ kỹ, nhất định phải là Tửu Phong Tử nhưỡng liệt tửu, mãnh liệt nhất."
+
+Quận vương tự mình hạ lệnh, trú đóng ở phụ cận một chi quân đội, liền lập tức là chạy tới, xông vào tiến Lạc Thủy, bắt đầu toàn lực ứng phó đào móc.
+
+Chi quân đội này, hết thảy có 3000 người, mỗi một cái đều uống xong Tửu Phong Tử nhưỡng Lục Thánh Đăng Thiên Tửu, có được viễn siêu thường nhân thể chất.
+
+Một năm trước, đi vào Vân Võ quận quốc đằng sau, Trương Nhược Trần liền không có rời đi.
+
+Tửu Phong Tử cùng Cổ Tùng Tử vốn là hai cái người rảnh rỗi, lại lo lắng Minh Đường Thánh Tổ sau khi trở về tìm bọn hắn tính sổ sách, không dám bỏ xuống Trương Nhược Trần, bởi vậy, cũng lưu tại Vân Võ quận quốc.
+
+Trong lúc rảnh rỗi, hai người bọn họ chính là bắt đầu ủ chế Lục Thánh Đăng Thiên Tửu, cùng luyện chế Hóa Thánh Đan.
+
+Vô luận là Lục Thánh Đăng Thiên Tửu, hay là Hóa Thánh Đan, đều không phải là lập tức liền có thể luyện chế ra đến, tự nhiên là phải đi qua lặp đi lặp lại thí nghiệm, mới có thể luyện chế ra chính phẩm.
+
+Vân Võ quận quốc quân đội, tự nhiên cũng liền trở thành bọn hắn vật thí nghiệm.
+
+Đương nhiên, liền xem như bán thành phẩm Lục Thánh Đăng Thiên Tửu cùng Hóa Thánh Đan, đối với tu sĩ bình thường tới nói, cũng là có vô tận chỗ tốt.
+
+Nửa ngày qua đi, trên Lạc Thủy, vang lên một trận ồn ào âm thanh.
+
+"Cửu đệ, Cửu đệ, móc ra một cái khó lường đồ vật, ngươi tranh thủ thời gian tới xem một chút."
+
+Trương Thiếu Sơ không có một tia quận vương dáng vẻ, hưng phấn đến khoa tay múa chân.
+
+Trương Vũ Hi lộ ra một đạo thần sắc khác thường, tự lầm bầm nói: "Lại còn thật đào ra đồ vật, Cửu đệ đến cùng là thật chán chường, hay là giả chán chường, làm sao cảm giác hắn đến Lạc Thủy không phải du sơn ngoạn thủy đơn giản như vậy."
+
+Trương Vũ Hi cùng Trương Nhược Trần leo lên bờ, chỉ gặp, một đội quân sĩ, ngay tại kéo lấy sáu cái xích sắt, đem một tấm bia đá từ đáy sông kéo lên.
+
+Xác thực nói, đó là một khối bia vỡ.
+
+Bia vỡ, cao sáu trượng, rộng bốn trượng, dày đến một trượng năm thước, vô cùng nặng nề, hết thảy 300 vị lực lượng cường đại quân sĩ, mới đưa nó kéo lấy.
+
+Trương Thiếu Sơ cười nói: "Cửu đệ, ngươi nói có khéo hay không, khối bia vỡ này, chính là từ vị trí các ngươi vừa rồi thuyền nhỏ kia móc ra."
+
+Những quân sĩ kia sẽ đoạn trên tấm bia nước bùn rửa sạch đằng sau, Trương Nhược Trần chính là đi tới.
+
+"Thật cổ xưa văn tự, từ trước tới nay chưa từng gặp qua."
+
+"Nặng nề như vậy một khối bia vỡ, thật là tảng đá điêu khắc thành sao?"
+
+. . .
+
+Những quân sĩ kia toàn bộ đều đang thì thầm nói chuyện, cảm giác được không thể tưởng tượng nổi.
+
+Trương Vũ Hi cũng tại cẩn thận quan sát bia đá, chau mày , nói: "Đến cùng là văn tự gì, làm sao từ trước tới nay chưa từng gặp qua?"
+
+"Thiên hạ có hàng ngàn hàng vạn chủng văn tự, ai cũng không có khả năng thông hiểu mỗi một loại văn tự, thế nhưng là, sử dụng tinh thần lực, lại có thể giải mã mỗi một loại văn tự ý tứ."
+
+Trương Nhược Trần nói ra một câu như vậy, bắt đầu quan sát bia đá, sử dụng tinh thần lực tiến hành giải mã.
+
+Sau một lúc lâu, Trương Nhược Trần lại là lùi lại mà quay về, chỉ cảm thấy đại não đau nhức kịch liệt, kém một chút đứng không vững, ngã trên mặt đất.
+
+Trương Vũ Hi vội vàng đỡ lấy hắn, ân cần hỏi han: "Cửu đệ, ngươi thế nào?"
+
+Trương Nhược Trần rất nhanh liền lại khôi phục lại, một lần nữa mở ra hai mắt , nói: "Thật là lợi hại văn tự, bằng vào ta cường độ tinh thần lực, vậy mà không cách nào giải mã."
+
+"Ngay cả ngươi cũng không cách nào giải mã, thứ quỷ gì?"
 — QUẢNG CÁO —
 
 
-Trương Nhược Trần thu hồi Trầm Uyên cổ kiếm, hai tay cầm kiếm, hướng phía dưới cắm xuống, mũi kiếm cùng cầu đá đụng vào nhau.
+Trương Thiếu Sơ rất khiếp sợ, bởi vì hắn so với ai khác đều rõ ràng Cửu đệ tu vi đáng sợ đến cỡ nào, đây chính là một vị Thánh Giả.
+
+Còn có văn tự Thánh Giả giải mã không được?
+
+"Có một người, có lẽ có thể giải mã phía trên văn tự."
+
+Trương Nhược Trần lấy tinh thần lực truyền âm, đem việc này nói cho Cổ Tùng Tử.
+
+Một lát sau, Cổ Tùng Tử cùng Tửu Phong Tử bay tới, từ trên trời giáng xuống, rơi xuống bia vỡ bên cạnh.
+
+"Ha ha, Trương tiểu tử, ròng rã một năm, ngươi rốt cục lại đối một kiện đồ vật cảm thấy hứng thú, để lão phu đến xem thử, đến cùng là cái gì khó lường đồ vật."
+
+Cổ Tùng Tử trước bia vỡ liếc qua, sau một khắc, sắc mặt mãnh liệt biến đổi, vội vàng thu hồi dáng tươi cười, đi tới, con mắt không cách nào từ trên tấm bia đá rời đi.
+
+Cổ Tùng Tử sắc mặt vô cùng nghiêm túc, vuốt ve văn tự trên bia vỡ, càng là nhìn xuống, trên mặt vẻ khiếp sợ chính là càng dày đặc, lầu bầu nói: "Nghịch. . . Thần. . . Bia. . ."
+
+Tửu Phong Tử thoáng có chút động dung, hỏi: "Lão quỷ, trên tấm bia đến cùng ghi lại là cái gì?"
+
+Nhìn thấy nội dung trên bia, Cổ Tùng Tử nhắm lại hai mắt, toàn thân đều đang run rẩy, thật lâu không nói tiếng nào.
+
+Tửu Phong Tử tương đương sốt ruột , nói: "Ngươi ngược lại là nói chuyện a?"
+
+Cổ Tùng Tử thật dài thở ra một hơi, phất phất tay, ánh mắt vô cùng ngưng trọng , nói: "Những người còn lại, toàn bộ tất cả lui ra đi."
+
+Trương Thiếu Sơ hiển nhiên là ý thức được, từ trong Lạc Thủy đào ra đồ vật, chỉ sợ là không thể coi thường, vội vàng hạ lệnh , nói: "Tất cả mọi người nghe lệnh, toàn bộ tất cả lui ra đi."
+
+Rất nhanh, những quân sĩ kia, toàn bộ đều rút đi.
+
+Cổ Tùng Tử hướng Trương Thiếu Sơ cùng Trương Vũ Hi liếc qua , nói: "Các ngươi cũng lui xuống đi."
+
+"Bản vương. . . Cũng không thể. . . Biết. . ."
+
+Trương Thiếu Sơ nhếch miệng, gặp Cổ Tùng Tử ánh mắt rất lăng lệ, cuối cùng vẫn lui xuống.
+
+Chờ đến Trương Thiếu Sơ cùng Trương Vũ Hi rời đi về sau, Cổ Tùng Tử mới là nói ra: "Bia này, chỉ sợ không thuộc về Côn Lôn, mà là từ Thiên Đình rơi xuống."
+
+. . .
+
+(trông thấy rất nhiều độc giả đều đang hỏi, quyển sách này viết bao nhiêu? Trả lời một cái đi!
+
+Dựa theo cá con đại cương, đại khái đã viết chừng phân nửa, tiếp đó, sẽ nghênh đón một cái càng thêm ầm ầm sóng dậy đại thế, tất cả hố, đều sẽ nhất nhất lấp bên trên. Càng lớn hố, cũng sẽ dần dần nổi lên mặt nước. )
+
+Đánh giá điểm 9-10 cuối chương để ủng hộ Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1375
+
+Chương 1372: Nghịch Thần Bia
+
+Converter: DarkHero
+
+"Thiên Đình? Thiên Đình là địa phương nào?" Tửu Phong Tử tò mò hỏi.
+
+Cổ Tùng Tử chỉ vào bên cạnh bia vỡ , nói: "Căn cứ trên tấm bia ghi chép, đại khái là tại mười vạn năm trước, giữa thiên địa phát sinh một trận to lớn biến cố, trong vũ trụ mênh mông các đại thế giới, kém một chút toàn bộ đều tan thành mây khói. Chính là tại trong biến cố lớn này, từng cái đại thế giới liên hợp lại, thành lập một tòa Thánh giới, dùng để đối kháng kiếp nạn. Toà Thánh giới kia tên, liền gọi Thiên Đình."
+
+Tửu Phong Tử có thể nói là đứng tại thiên hạ đỉnh phong nhất một nhóm cường giả kia, biết rất nhiều Côn Lôn giới bí ẩn, nhưng là, giờ phút này trên mặt lại tràn ngập nghi hoặc , nói: "Thánh giới, Thiên Đình. Lão phu thế nào cảm giác mười phần mơ hồ, cho tới bây giờ đều không có nghe nói qua bí ẩn như vậy, không phải là có người nói bừa a?"
+
+"Lấy người khắc bia khủng bố tu vi, làm sao có thể nói bừa?"
+
+Cổ Tùng Tử trợn nhìn Tửu Phong Tử một chút, mặt mũi tràn đầy đều là ghét bỏ biểu lộ, cảm thấy hắn quá ngớ ngẩn.
+
+"Nói cách khác, ngoại trừ Côn Lôn giới, tại trong vũ trụ, còn có đại thế giới khác?" Tửu Phong Tử nói ra.
+
+Cổ Tùng Tử nói: "Cũng không phải là không có khả năng như vậy. Vũ trụ to lớn, vô biên vô hạn, chúng ta nhìn thấy thế giới, có lẽ chỉ là giọt nước trong biển cả."
+
+"Mười vạn năm trước, Côn Lôn giới cũng là phát sinh rung chuyển lớn, Chư Thần vẫn lạc, có thể hay không cùng trận biến cố kia có quan hệ?" Trương Nhược Trần chau mày, dừng một chút, lại nói: "Trên tấm bia có hay không ghi chép, mười vạn năm trước, đến cùng chuyện gì xảy ra?"
+
+Cổ Tùng Tử lắc đầu , nói: "Bi văn là tàn khuyết không đầy đủ, không có ghi chép."
+
+"Như vậy, người khắc lục bi văn, là ai?" Trương Nhược Trần hỏi lần nữa.
+
+"Cũng không có. Bất quá người kia nhất định là tương đương lợi hại tồn tại, lấy lão phu cường độ tinh thần lực, giải mã đứng lên đều mười phần gian nan." Cổ Tùng Tử nói ra.
+
+Trương Nhược Trần hỏi lần nữa: "Lúc trước, ngươi nói Nghịch Thần Bia, là có ý gì?"
+
+"Chính là bia vỡ đỉnh chóp nhất ba cái văn tự, cũng không biết là có ý gì." Cổ Tùng Tử vuốt râu, cũng tại cẩn thận suy nghĩ sâu xa.
+
+"Chẳng lẽ là nói, bia này có được nghịch thần uy lực?"
+
+Tửu Phong Tử trừng lớn hai mắt, lộ ra lửa nóng ánh mắt, duỗi ra hai tay, chính là đặt tại trên bia vỡ, điều động thánh khí liên tục không ngừng đánh vào ra ngoài.
+
+Đáng tiếc, bia đá vẫn như cũ tương đương băng lãnh, không có nửa điểm biến hóa.
+
+Ngay sau đó, Tửu Phong Tử lại cắt ngón tay, đem một giọt thánh huyết nhỏ tại trên tấm bia đá, đáng tiếc, bia đá hay là âm u đầy tử khí.
+
+"Cái gì phá bia, căn bản chính là một khối tảng đá nát, danh tự ngược lại là rất dọa người."
+
+Tửu Phong Tử một cước đạp ra ngoài, đem nặng nề bia vỡ bị đá bay lên, sau đó, lại là một quyền đánh ra, đánh vào trên bia vỡ.
+
+Lấy Tửu Phong Tử tu vi, tùy tiện đánh ra một kích, cũng có hủy thiên diệt địa uy năng, thế nhưng là, lại không đả thương được bia vỡ một phân một hào, thật là vô cùng kỳ dị.
+
+"Nghịch Thần Bia làm sao lại rơi vào Côn Lôn giới? Là ai đưa nó đánh nát?"
+
+Trương Nhược Trần để Trương Thiếu Sơ phái người tiếp tục đến trong Lạc Thủy đào móc, muốn đào ra tàn bia khác. Chỉ có tập hợp đủ tất cả bia văn, hẳn là mới có thể hiểu rõ "Nghịch Thần Bia" tồn tại chân chính ý nghĩa.
+— QUẢNG CÁO —
+
+
+Lạc Thủy dài tới mấy ngàn dặm, chỉ dựa vào người bình thường lực lượng, muốn tìm được tàn bia, không thể nghi ngờ là mò kim đáy biển.
+
+Cổ Tùng Tử đối với Nghịch Thần Bia cũng là tràn ngập hiếu kỳ, trực tiếp sử dụng tinh thần lực tiến hành dò xét, tìm kiếm đường sông, đáng tiếc, không thu hoạch được gì, không có cái gì tìm tới.
+
+Dò xét ba lần, cũng không có bất luận phát hiện gì, Cổ Tùng Tử có chút nhụt chí, sau khi quay về, trông thấy Trương Nhược Trần ngồi dưới tàng cây uống rượu, nhướng mày, đi tới , nói: "Hẳn là, ngươi muốn giống như Tửu Phong Tử, sau này, liền làm một cái tửu quỷ?"
+
+"Có cái gì không tốt sao?" Trương Nhược Trần hỏi.
+
+Cổ Tùng Tử tự nhiên là đã biết, một năm trước đến cùng chuyện gì xảy ra, cũng biết sự kiện kia đối với Trương Nhược Trần ảnh hưởng đến cỡ nào to lớn , nói: "Trong các đại miếu thờ, Trì Dao Nữ Hoàng tượng thần, vẫn như cũ còn tản ra thần quang, nhưng là, Trung Ương Hoàng Thành thiên địa thánh khí lại là trên phạm vi lớn tiêu giảm."
+
+"Ngươi muốn nói cái gì?" Trương Nhược Trần uống xong một ngụm rượu.
+
+"Nữ Hoàng rời đi Trung Ương Hoàng Thành, thậm chí rời đi Côn Lôn giới."
+
+"Thì tính sao?"
+
+"Bây giờ, Đệ Nhất Trung Ương đế quốc người cầm quyền, chính là. . . Ngươi vị kia vợ trước Hoàng Yên Trần. Ngươi thật bất ngờ a?"
+
+Cổ Tùng Tử vừa nói, vừa quan sát Trương Nhược Trần thần sắc.
+
+Chỉ gặp, Trương Nhược Trần thần sắc không có một tia biến hóa, như là nghe được chỉ là một người xa lạ danh tự , nói: "Không ngoài ý muốn."
+
+"Nữ nhân này vì vinh hoa phú quý, phản bội ngươi, đầu phục địch nhân của ngươi, ngươi liền không muốn giết nàng?" Cổ Tùng Tử lộ ra một cái tàn nhẫn ánh mắt, làm ra một cái cắt cổ thủ thế.
+
+Hắn muốn lấy loại phương thức này, kích thích Trương Nhược Trần, để Trương Nhược Trần lần nữa khôi phục động lực, lặp lại tinh thần phấn chấn, mà không phải giống như bây giờ, dáng vẻ nặng nề, như là đang chờ chết.
+
+"Muốn giết, một năm trước, tại bên ngoài Tử Vi cung, ta đã giết nàng." Trương Nhược Trần mười phần tùy ý nói một câu.
+
+Cổ Tùng Tử nói: "Vì cái gì không giết?"
+
+"Ân đoạn nghĩa tuyệt, liền không có bất kỳ quan hệ gì, cùng người xa lạ không có khác nhau. Tại sao muốn giết một người không có bất kỳ quan hệ gì?" Trương Nhược Trần hỏi ngược một câu.
+
+"Cũng là, dù sao nàng đã từng đối với ngươi cũng có ân, ngươi đã từng đối với nàng cũng hữu tình, một kiếm giết nàng, không khỏi lộ ra ngươi quá bất nghĩa. Bây giờ, ân đoạn nghĩa tuyệt, cũng không lại có bất luận gánh vác gì."
+
+Cổ Tùng Tử nhẹ gật đầu, lập tức, tròng mắt hơi híp, thăm dò nói: "Nếu không, lão phu mạo hiểm một lần, đi Trung Ương Hoàng Thành giết nàng?"
+
+"Nếu là ngươi thật rất nhàn, đi thử xem cũng không sao."
+
+Trương Nhược Trần dẫn theo bầu rượu, đứng dậy, nhìn trời bên cạnh trời chiều, ánh mắt có chút thâm thúy.
+
+"Thôi được rồi, triều đình cao thủ nhiều như mây, lòng dạ thâm sâu khó lường, trừ phi là Thánh Tổ đại nhân tự mình xuất thủ, mới có mấy phần khả năng thành công tính. Những người khác, vô luận là ai, đi đều là có đi không về. Nhắc tới cũng là kỳ quái, một năm trước, Thánh Tổ đại nhân nói xong để cho chúng ta chờ hắn trở lại, lại là một đi không trở lại. Có thể hay không gặp bất trắc gì, chẳng lẽ Nữ Hoàng ra tay giết nàng?" Cổ Tùng Tử lần nữa kích thích Trương Nhược Trần.
+
+Tại thời khắc này, Trương Nhược Trần trong mắt, quả nhiên là lộ ra một tia sáng sắc bén.
+
+Cổ Tùng Tử ý thức được Trương Nhược Trần khúc mắc, có lẽ cũng không ở trên thân Hoàng Yên Trần, mà là ở trên thân Nữ Hoàng, thế là, không ngừng cố gắng, sinh động như thật mà nói: "Thánh Tổ thế nhưng là Nữ Hoàng đại địch, Nữ Hoàng thành thần đằng sau, liên trảm thập đại Huyết Đế, lại đem Man Hoang bí cảnh cùng tứ phương hải vực huyết tẩy một lần, làm sao có thể không giết Thánh Tổ?"
+
+"Đủ rồi!"
+
+Trương Nhược Trần quát lạnh một tiếng , nói: "Lan Du mà chết, ta diệt Trì Dao cửu tộc."
+
+"Muốn diệt một vị Thần Linh cửu tộc, cũng nên trước có được đối kháng Thần Linh thực lực a? Uống rượu tê liệt chính mình, sẽ chỉ càng uống càng phế, đừng nói đối kháng Thần Linh, lão phu đều có thể ép tới ngươi không ngẩng đầu được lên." Cổ Tùng Tử nói ra.
+
+"Thật sao?"
+
+Trương Nhược Trần song đồng biến thành màu đỏ sậm, toàn thân khí thế biến đổi, một cỗ vô hình hàn khí ở trên người phun trào, thân hình khẽ động, chính là hướng về Cổ Tùng Tử va chạm tới.
+
+Rõ ràng là một người, lao ra đằng sau, vậy mà hóa thành một đạo kiếm ảnh, đâm thẳng hướng tim Cổ Tùng Tử.
+
+Cổ Tùng Tử giật nảy cả mình, vội vàng điều động tinh thần lực, tại lòng bàn tay ngưng tụ ra một tòa trận ấn đường kính hai mét, hướng về phía trước nhấn một cái, ngăn cản Trương Nhược Trần công phạt.
+
+Thế nhưng là, Trương Nhược Trần đâm ra một kiếm, lực lượng lại là vô cùng ngưng tụ.
 
 "Bành."
 
-Lít nha lít nhít kiếm khí, từ mũi kiếm tuôn ra, hình thành một cái vòng xoáy kiếm khí.
+Mũi kiếm đánh xuyên trận ấn, đâm vào ngực Cổ Tùng Tử.
 
-Vòng thép màu trắng bay đến phụ cận vòng xoáy kiếm khí, lúc đầu tốc độ nhanh đến như là quang toa, lại tại trong chốc lát, trở nên đứng im bất động.
+Cổ Tùng Tử trên thân, một tấm hộ thân phù chú bạo liệt, ngăn trở một kiếm này, thế nhưng là, thân thể của hắn, cũng là bị kiếm lực lượng, chấn động đến bay rớt ra ngoài.
 
-Đó là thời gian đình chỉ.
+Cổ Tùng Tử rơi xuống mặt đất, che ngực, nhìn chằm chằm một lần nữa ngưng tụ thành hình người Trương Nhược Trần, giật mình nói: "Kiếm ý ngưng kiếm, ngươi đã tu luyện thành Kiếm Thánh?"
 
-Lấy Trương Nhược Trần bây giờ tại về phần thời gian tạo nghệ, chỉ có thể làm đến một cái sát na thời gian đình chỉ.
+"Đang tốt, làm sao đánh lên?"
 
-Ngay tại một sát na này, hàng ngàn hàng vạn tia kiếm khí đụng vào vòng thép màu trắng phía trên, đánh cho vòng thép chuyển biến phương hướng, bay ngược trở về, va chạm hướng Bạch Lê hoàng tử. Bạch Lê hoàng tử con mắt co rụt lại, không thể không khởi động bộ pháp, hướng bên cạnh trốn tránh.
+Tửu Phong Tử dẫn theo Nghịch Thần Bia, chạy tới, xuất hiện ở giữa Trương Nhược Trần cùng Cổ Tùng Tử, đem hai người ngăn cách.
 
-"Phốc phốc!"
+Nhìn thấy Trương Nhược Trần lại có thể đánh lui Cổ Tùng Tử, Tửu Phong Tử trong lòng, nhưng thật ra là tương đương giật mình.
 
-"Phốc!"
+Cổ Tùng Tử mặc dù không thiện chiến đấu, nhưng là, trận pháp tạo nghệ lại là khá cao sâu, cho dù là tùy ý kết thành một đạo trận ấn, cũng không phải bình thường Thánh Giả có thể đem nó đánh xuyên.
+
+"Có thể đánh nhau, chẳng lẽ không phải một chuyện tốt?"
+
+Cổ Tùng Tử hỏi ngược một câu, đột nhiên, ánh mắt của hắn ngưng tụ, cười lạnh một tiếng: "Thật là lợi hại tiềm hành chi thuật, đều đã đi vào trong trăm trượng, lão phu mới đưa ngươi phát hiện."
+
+Cùng lúc đó, Trương Nhược Trần cùng Tửu Phong Tử cũng có chỗ phát giác, đồng thời hướng lòng đất chằm chằm đi.
+
+Trương Nhược Trần trong mắt đạo hào quang màu đỏ sậm kia, dần dần lui tán, một cước giẫm tại mặt đất, một cỗ hùng hậu Huyền Hoàng thánh khí, giống như gợn sóng đồng dạng, truyền vào tiến lòng đất.
+— QUẢNG CÁO —
+
+"Ầm ầm."
+
+Lòng đất truyền ra một tiếng hét thảm, lập tức, một nam tử gầy lùn xấu vô cùng, từ lòng đất bay ra ngoài, nặng nề rơi xuống mặt đất.
+
+"Trần gia, Trần gia, là ta, ta là Thần Ma Thử, Bái Nguyệt thần giáo Vạn Thú cung Thủ Thử, đều là người một nhà. . ."
+
+Nam tử gầy lùn từ lòng đất bò lên, rất cung kính hướng Trương Nhược Trần hành lễ, nịnh nọt cười một tiếng: "Chúc mừng Trần gia phong hào Kiếm Thánh, thật đáng mừng."
+
+Vừa rồi, Trương Nhược Trần bạo phát đi ra một kiếm kia, để Thủ Thử cảm giác được áp lực cực lớn, hẳn là Kiếm Thánh không thể nghi ngờ. Đối mặt một vị Kiếm Thánh, Thủ Thử không còn dám hướng lấy trước như vậy tùy ý, tự nhiên là muốn tương đương cung kính mới được.
+
+Trương Nhược Trần nhấc lên bầu rượu, ngồi trên mặt đất, lại bắt đầu uống rượu , nói: "Ngươi làm sao tìm được nơi này tới?"
+
+"Là Hắc gia nói cho ta biết, ngươi ở chỗ này." Thần Ma Thử nói.
+
+Trương Nhược Trần trong mắt lại khôi phục một chút thần thái , nói: "Tiểu Hắc? Nó làm sao biết ta ở chỗ này?"
+
+"Hắc gia nói, nó không chỗ không tại, không gì không biết, đồ thiên sát địa, không gì làm không được, bấm ngón tay tính toán, liền có thể biết thiên hạ sự tình."
+
+Thần Ma Thử nói ra lời này thời điểm, con mắt tại tỏa ánh sáng, trong mắt đều là sùng kính thần sắc.
+
+Trương Nhược Trần vừa nhìn liền biết, Thần Ma Thử khẳng định là bị Tiểu Hắc cho tẩy não, hỏi: "Nó ở nơi nào?"
+
+"Không phải mới vừa nói sao?" Thần Ma Thử nói.
+
+Cách đó không xa, Tửu Phong Tử cùng Cổ Tùng Tử đều là hơi sững sờ, lúc nào nói qua?
+
+Trương Nhược Trần nói: "Nó ở khắp mọi nơi?"
+
+"Không sai."
+
+Thần Ma Thử mười phần nói nghiêm túc.
+
+Nghe nói như thế, Tửu Phong Tử cùng Cổ Tùng Tử tâm lý lập tức mười vạn con thảo nê mã đang chạy, gặp qua có thể khoác lác, chưa thấy qua như thế có thể thổi.
+
+Chủ yếu nhất là, thổi đến một cái bước vào Thánh cảnh Thái Cổ di chủng thế mà đều tin tưởng nó. Tửu Phong Tử cùng Cổ Tùng Tử đều thầm than trong lòng, thần giáo đệ tử là một đời không bằng một đời.
+
+Trương Nhược Trần hỏi lần nữa: "Nó để cho ngươi tới làm gì?"
+
+Đánh giá điểm 9-10 cuối chương để ủng hộ Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1376
+
+Chương 1373: Hồi ức là nhàn nhạt sầu
+
+Converter: DarkHero
+
+Thần Ma Thử đem gần nhất trong Bái Nguyệt ma giáo chuyện phát sinh, kỹ càng giảng thuật đi ra, vừa nói, còn vừa khóc thét: "Trần gia, A Nhạc đã chết thật thê thảm, đầu đều bị Thu Vũ đánh nát, thiêu đến xương đầu đều nhô ra."
+
+Trương Nhược Trần vẫn như cũ duy trì bình tĩnh, thế nhưng là, sau khi nghe xong, Tửu Phong Tử lại là lửa giận ngập trời, duỗi ra một tay, liền đem Thần Ma Thử bắt lại đứng lên: "Một vị Thánh Giả, tại tổng đàn, bị ngoại nhân cho giết chết, đơn giản chính là đang đánh mặt Bái Nguyệt thần giáo. Thạch Thiên Tuyệt giáo chủ này, là làm ăn gì?"
+
+Thần Ma Thử chỉ cảm thấy toàn thân thánh khí đều bị áp chế, không cách nào vận chuyển, trong lòng giật nảy mình, "Tu vi của ta, cũng đã đạt tới Thánh cảnh, vẫn là tương đối lợi hại Thái Cổ di chủng, thế mà bị hoàn toàn áp chế, không hề có lực hoàn thủ. Lão Tửu Quỷ này tu vi, cũng quá đáng sợ a?"
+
+Đoán chừng là thần giáo một vị tiền bối.
+
+Thần Ma Thử tu vi rất mạnh, lá gan lại cũng không lớn, run giọng nói: "Thu Vũ thế nhưng là Ngô Đồng Thần Thụ mầm non, tương lai có cơ hội lột xác thành Thiên Địa Linh Căn, trở thành Côn Lôn giới đệ nhị thần. Cùng hắn giao hảo, có thể đạt được vô tận chỗ tốt. Cho dù là giáo chủ, cũng sẽ không bởi vì một vị Thánh Giả, cùng hắn, cùng toàn bộ Hỏa tộc trở mặt."
+
+Cổ Tùng Tử cũng sớm đã thoát ly Ma giáo, thế nhưng là, đối với Ma giáo lại là có rất sâu tình cảm, ánh mắt có chút phát lạnh , nói: "Đời trước giáo chủ lúc tại vị, thần giáo cỡ nào cường thế, cho dù là đối mặt Trì Thanh Trung Ương đế quốc đại quân, cũng là trực diện nghênh kích, tuyệt sẽ không có nửa phần thỏa hiệp. Tại tổng đàn, giết chết thần giáo một vị Thánh Giả, còn muốn đem một vị Thánh Nữ gả cho hắn, đừng nói hắn còn không có thành thần, coi như đạt tới Thần cảnh, cũng tuyệt đối không thể đồng ý. Thần giáo uy nghiêm, không còn gì để mất."
+
+Thần Ma Thử gặp hai cái lão gia hỏa như vậy tức giận, lập tức có chút không hiểu thấu, chẳng lẽ người tức giận nhất, không phải là Trương Nhược Trần?
+
+Nhưng mà, Trương Nhược Trần lại là không hề bận tâm bộ dáng, lại bắt đầu uống rượu.
+
+Thần Ma Thử nói: "Trần gia, chuyện này ngươi sẽ không mặc kệ a? Ngươi phải biết, Tiểu Thánh Nữ người thích nhất chính là ngươi, để nàng gả cho người khác, không thể nghi ngờ là đang bức tử nàng. Nàng đối với ngươi tình cảm, ngươi không phải không biết a?"
+
+Trương Nhược Trần nói: "Tiểu Hắc để cho ngươi nói như vậy? Nó còn để cho ngươi nói cái gì?"
+
+Thần Ma Thử không nghĩ tới Trương Nhược Trần nhãn lực như vậy độc ác, khuấy khuấy miệng, thấp giọng nói: "Hắc gia còn nói, ngươi thiếu hứa hẹn, chung quy là sẽ trả."
+
+"Thiếu hứa hẹn. . ."
+
+Trương Nhược Trần đọc lên một câu như vậy, trong đầu, nổi lên một chút hình ảnh.
+
+Tại Lưỡng Nghi tông, Mộc Linh Hi hướng hắn giảng thuật Lạc Hư cùng Lâm Tố Tiên cố sự, chính là lã chã rơi lệ, "Ta liền muốn để cho ngươi biết, nếu là có một ngày như vậy, giáo chủ cũng đem ta gả cho người khác, ta là hy vọng dường nào, cũng có một người như vậy có thể nghĩa vô phản cố giết tới Vô Đỉnh sơn. Nếu là hắn thật làm như vậy, coi như muốn ta lập tức chết đi, ta cũng nguyện ý."
+
+"Trương Nhược Trần, ngươi biết không? Thần giáo Thánh Nữ, vẻn vẹn chỉ là giáo chủ dùng để thu mua lòng người công cụ, tùy thời đều có thể ban thưởng cho là thần giáo làm ra cống hiến to lớn Thánh Giả."
+
+"Không cần phải sợ, nếu là thật sự có một ngày như vậy, ngươi nhất định phải tin tưởng, tất nhiên sẽ có một người leo lên Vô Đỉnh sơn, tự mình đi tiếp ngươi. Cho dù, Ma giáo có thiên quân vạn mã, cũng ngăn không được hắn."
 
 . . .
 
-Nhân cơ hội này, Trương Nhược Trần vận dụng ra tốc độ nhanh nhất, lại liên tiếp đánh giết ba vị Thánh cảnh sinh linh.
-
-Trừ cái đó ra, Ma Thiên thái tử bị Trương Nhược Trần một kiếm đánh trúng. Mặc dù, hắn mặc có Thập Thánh Huyết Khải, nhưng vẫn là miệng phun máu tươi bắn tung tóe ra ngoài, mắt thấy là phải rớt xuống cầu đá chết không có chỗ chôn.
-
-"Soạt."
-
-Một cây xiềng xích màu đỏ như máu, giữa không trung ngưng tụ ra, quấn quanh ở trên thân Ma Thiên thái tử, đem hắn kéo về cầu đá, đồng thời thoát ly Thời Gian lĩnh vực.
-
-Cây xiềng xích kia, là Huỳnh Hoặc chỉ dùng tinh thần lực ngưng tụ ra.
-
-Huỳnh Hoặc vốn là ở vào Thời Gian lĩnh vực biên giới, cho nên, cái thứ nhất chạy ra ngoài, đồng thời xuất thủ cứu ra Tề Sinh, hiện tại lại cứu Ma Thiên thái tử.
-
-Ma Thiên thái tử uống xong một bình thánh huyết, hai chân gãy mất một lần nữa mọc ra, trong miệng phát ra gầm lên giận dữ, "Trương Nhược Trần, ngươi đoạn ta hai chân, ta liền để cho ngươi vị hôn thê tan thành mây khói."
-
-Ma Thiên thái tử tuyệt đối là một vị tuyệt thế kỳ tài, nhục thân tu luyện tới Thánh cảnh, chấp chưởng Đế Sát Ma Kiếm, nếu không có Tề Sinh hoành không xuất thế, hắn nhất định là Bất Tử Huyết tộc thiên kiêu số một. Nhưng mà vừa rồi, hắn lại kém một chút bị giết chết, trong nội tâm lửa giận tuôn ra, để thân thể đều đang thiêu đốt.
-
-"Hoa —— "
-
-Đế Sát Ma Kiếm rời vỏ bay ra, quay chung quanh Ma Thiên thái tử thân thể xoay tròn một vòng, sau đó, hướng băng sơn bịt lại Hoàng Yên Trần cùng Thanh Mặc chém tới.
-
-Chỉ cần băng sơn phá toái, các nàng thi thể cũng sẽ phá toái.
-
-Thực Thánh Hoa quấn quanh lấy băng sơn, phát hiện bay tới Đế Sát Ma Kiếm, trên dây leo mặt mọc ra mấy chục cây xúc tu. Mỗi một cây xúc tu đều có độ lớn như cánh tay, tất cả xúc tu quấn quanh ở cùng một chỗ, cùng Đế Sát Ma Kiếm va chạm.
-
-"Không hổ là Thực Thánh Hoa, vậy mà ngăn trở Đế Sát Ma Kiếm."
-
-Tề Sinh lộ ra một đạo ý cười, sau đó, bắt lấy Diệt Thần Thập Tự Thuẫn, có một mảnh đám mây màu đỏ như máu dũng mãnh tiến ra, phát ra thanh âm ầm ầm, toàn bộ Ngũ Thải Băng Quật không khí đều tại chấn động mãnh liệt.
-
-Diệt Thần Thập Tự Thuẫn bay ra ngoài, đánh về phía băng sơn.
-
-"Bành bành."
-
-Trong khoảnh khắc, Thực Thánh Hoa phân ra mấy chục cây xúc tu, toàn bộ đều bị Diệt Thần Thập Tự Thuẫn đánh cho bạo liệt, hóa thành từng đoàn từng đoàn mộc khí.
-
-"Chủ nhân, chiến khí này uy lực quá kinh khủng, ta ngăn không được." Thực Thánh Hoa nói ra.
-
-Trương Nhược Trần ánh mắt trầm xuống, hai tay hợp lại, sử dụng ra Ngự Kiếm Thuật, Trầm Uyên cổ kiếm hóa thành một đạo lưu quang bay ra ngoài, ngăn cản Diệt Thần Thập Tự Thuẫn.
-
-"Bành bành."
-
-Trầm Uyên cổ kiếm cùng Diệt Thần Thập Tự Thuẫn kịch liệt va chạm, phát ra từng đạo thanh âm đinh tai nhức óc.
-
-Ngay tại Trương Nhược Trần phân tâm ngăn cản Diệt Thần Thập Tự Thuẫn thời điểm, Bạch Lê hoàng tử một đạo trảo ấn, đánh vào vai trái Trương Nhược Trần, cùng Thập Thánh Huyết Khải đụng vào nhau, toát ra một mảng lớn hỏa hoa.
-
-Bạch Lê hoàng tử tu vi cực kỳ cao thâm, gặp hắn một kích, Trương Nhược Trần nửa người đều đau đến chết lặng, thể nội thánh khí bị đánh tan, giống như người rơm đồng dạng, phía bên phải bay tứ tung ra ngoài.
-
-Bay ở giữa không trung thời điểm, Trương Nhược Trần một lần nữa ngưng tụ ra thánh khí, ổn định trọng tâm, bay đến kết nối với trên cầu đá xích sắt phía trên, thuận xích sắt, hướng băng sơn vọt tới.
-
-Trước hết đem băng sơn thu nhập nhẫn không gian.
-
-Tề Sinh cùng Ma Thiên thái tử chính là sử dụng Hoàng Yên Trần di thể tại kiềm chế Trương Nhược Trần, để hắn phân tâm, bằng không, Trương Nhược Trần làm sao lại bị Bạch Lê hoàng tử kích thương?
-
-"Trương Nhược Trần thật đúng là đủ liều, cũng dám bay ra cầu đá, chẳng lẽ hắn không biết một khi rời đi cầu đá, liền có thể sẽ bị Cực Âm Thiên Long Khí trong ngũ thải hà quang đông kết thành khối băng?"
-
-"Hắn không thể không liều, bằng không, vị hôn thê di thể đều sẽ bị đánh nát."
-
-Thôn Thiên Ma Long từ dưới đất bò dậy, lộ ra hung lệ chi sắc , nói: "Hiện tại Trương Nhược Trần chính là bia ngắm treo giữa không trung, muốn tránh đều trốn không thoát, mọi người cùng nhau xuất thủ đem hắn triệt để gạt bỏ."
-
-Thôn Thiên Ma Long xuất thủ trước, đánh ra Tổ Long Lân, chém về phía Trương Nhược Trần đi tại trên xích sắt.
-
-Cùng lúc đó, khác Thánh cảnh sinh linh cũng đều đánh ra thủ đoạn công kích, có đánh về phía Trương Nhược Trần, có đánh về phía tòa băng sơn kia.
-
-Trương Nhược Trần một người một kiếm, ngăn tại phía trước băng sơn, kích phát ra Trầm Uyên cổ kiếm lực lượng mạnh nhất, ngăn cản được đánh tới tất cả công kích.
-
-"Phốc!"
-
-Tổ Long Lân từ bên cạnh Trương Nhược Trần bay qua, phá vỡ Thập Thánh Huyết Khải, ở trên người hắn, chém ra một đầu dài một thước miệng máu, thân thể của hắn kém một chút bị chém đứt thành hai đoạn.
-
-Một lát sau, một đạo kiếm ảnh, xuyên thấu Trương Nhược Trần thân thể, lưu lại một cái cái bát khổng lồ như vậy lỗ máu, đại lượng máu tươi từ trong vết thương tuôn ra.
-
-Cho dù bị thương nặng hơn nữa, Trương Nhược Trần ánh mắt nhưng như cũ vô cùng kiên định, không có né tránh.
-— QUẢNG CÁO —
-
-
-Bởi vì, một khi tránh ra, những công kích kia liền sẽ rơi vào trên băng sơn, Hoàng Yên Trần liền thật hài cốt không còn.
-
-Vô luận người khác thấy thế nào, Hoàng Yên Trần chính là thê tử của hắn, đã có vợ chồng chi danh, cũng có vợ chồng chi thực, coi như nàng đã chết đi, Trương Nhược Trần cũng muốn thủ hộ nàng, tuyệt đối không cho phép nàng lại bị người tổn thương.
-
-Thực Thánh Hoa khuyên nhủ: "Trương Nhược Trần mau chạy đi! Ngươi căn bản không có khả năng mang đi các nàng di thể, không trốn nữa, liền thật đi không nổi, sẽ chết ở chỗ này."
-
-Trương Nhược Trần không có rút đi, mà là gọi ra Thủy Tinh Hồ Lô, muốn lấy đi băng sơn.
-
-Nhưng mà, Thủy Tinh Hồ Lô mới vừa vặn bay ra ngoài, liền bị Tề Sinh trước một bước phát giác, sử dụng Diệt Thần Thập Tự Thuẫn, đem hắn đánh bay ra ngoài, không có thể làm cho Trương Nhược Trần toại nguyện.
-
-Thôn Thiên Ma Long trong miệng tiếng cười không dứt, "Trương Nhược Trần, ngươi cũng có hôm nay?"
-
-Trương Nhược Trần ánh mắt trầm xuống, hai tay hướng nắm vào trong hư không một cái, mười đạo vết nứt không gian hiển hiện ra, hướng cầu đá phương hướng chém đi qua.
-
-Nhưng mà, trên cầu đá, bao phủ một cỗ lực lượng thần bí, mười đạo vết nứt không gian mới vừa vặn nhích tới gần, còn chưa xuống đến trên cầu, mười đạo vết nứt liền khép kín.
-
-Huỳnh Hoặc hơi thở dài một hơi, mỉm cười: "Toà cầu đá này, chính là do Thần Long kiến tạo mà thành, không gian chung quanh vững chắc. Chỉ cần chúng ta đứng tại trên cầu đá, thủ đoạn không gian công kích của ngươi, căn bản cũng không có bất cứ uy hiếp gì."
-
-"Đáng tiếc, một vị thiên chi kiêu tử tương lai có thể hô phong hoán vũ, cuối cùng vẫn là phải bỏ mạng ở chỗ này."
-
-Tề Sinh khẽ thở dài một tiếng, mỉm cười nhìn chằm chằm toàn thân đều đang chảy máu tươi Trương Nhược Trần.
-
-Lần này cùng Trương Nhược Trần quyết đấu, hắn rốt cục chiếm cứ tuyệt đối thượng phong.
-
-Bỗng dưng, Tề Sinh ánh mắt hơi ngưng tụ, nhìn chăm chú về phía Trương Nhược Trần sau lưng băng sơn, lộ ra một đạo thần sắc kinh dị.
-
-Băng sơn nội bộ, Hoàng Yên Trần hai mắt chẳng biết lúc nào đã mở ra, chảy xuôi nước mắt. Tại trong cơ thể của nàng, tuôn ra từng sợi hào quang màu vàng, bao trùm tràn đầy vết thương thân thể mềm mại.
-
-"Tại sao có thể như vậy?"
-
-Trên cầu đá Chư Thánh, toàn bộ đều là khẽ giật mình, không ngờ rằng, Hoàng Yên Trần lại còn còn sống.
-
-Trương Nhược Trần có chỗ phát giác, xoay người, hướng về phía sau lưng nhìn sang, lập tức, trên mặt lộ ra một đạo dáng tươi cười, một đôi mắt đúng là có chút ướt át.
-
-Làm chín đại Giới Tử một trong, có không giống bình thường sứ mệnh, Trì Dao Nữ Hoàng tự nhiên là ban cho bọn hắn một chút bảo mệnh lực lượng. Từ Hoàng Yên Trần thể nội tuôn ra hào quang màu vàng, chính là Nữ Hoàng một đạo Đế Hoàng chi khí.
-
-Thanh Mặc thể nội, có hỏa diễm dũng mãnh tiến ra, bao trùm thân thể của nàng, chính là thai nghén tại trong cơ thể nàng Vô Lượng Thánh Hỏa. Nàng tựa hồ cũng không có chết đi.
-
-Tề Sinh sinh ra một loại dự cảm không tốt , nói: "Tiếp tục xuất thủ, không thể để cho các nàng đi ra băng sơn."
-
-Trương Nhược Trần ánh mắt trầm xuống, lấy ra Khai Nguyên Lộc Đỉnh, đem thể nội thánh khí liên tục không ngừng đánh vào đi vào, lập tức, cổ văn màu vàng trên thân đỉnh nhao nhao bay ra ngoài, tựa như ngôi sao đầy trời lơ lửng trong Ngũ Thải Băng Quật.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1282
-
-Chương 1279: Phá băng mà ra
-
-Khai Nguyên Lộc Đỉnh lơ lửng tại phía trước băng sơn, xoay chầm chậm, như là một tòa sơn nhạc mô hình nhỏ.
-
-"Ầm ầm."
-
-Tề Sinh, Ma Thiên thái tử, Thôn Thiên Ma Long bọn người không ngừng đánh ra thủ đoạn công kích, vô luận là thánh thuật, hay là Thánh Khí, cùng cổ văn màu vàng đụng vào nhau, chính là va chạm ra từng đạo gợn sóng, không cách nào đem cổ văn phá tan, càng thêm dính không đến Khai Nguyên Lộc Đỉnh.
-
-Khai Nguyên Lộc Đỉnh hậu phương, Trương Nhược Trần nhân cơ hội này, nuốt xuống một viên Phùng Xuân Đan, thân hình khẽ động, bay đến bên cạnh băng sơn, song chưởng đè xuống.
-
-Hai đoàn Tịnh Diệt Thần Hỏa từ lòng bàn tay dũng mãnh tiến ra, khiến cho băng sơn nhanh chóng hòa tan.
-
-"Chờ lấy ta, ta nhất định cứu ngươi ra tới."
-
-Xuyên thấu qua tầng băng, Trương Nhược Trần cùng Hoàng Yên Trần hai mắt đối mặt, một cái bên ngoài một cái ở bên trong, khoảng cách của hai người ngay tại từng bước một tới gần, tại thời khắc này, thời gian tựa như là dừng lại đồng dạng.
-
-"Tiểu nha đầu đi theo bên người Hoàng Yên Trần tu vi khá cường đại, trong tay dao phay màu bạc càng là một kiện vô kiên bất tồi đại sát khí, một khi đưa nàng phóng xuất, cùng Trương Nhược Trần liên thủ, cục diện rất có thể sẽ mất khống chế."
-
-Ma Thiên thái tử lộ ra thần sắc lo lắng, khống chế Đế Sát Ma Kiếm, toàn lực ứng phó phách trảm, muốn phá vỡ cổ văn màu vàng.
-
-Huỳnh Hoặc nói: "Đại đỉnh màu xanh kia có chút cổ quái, liền ngay cả ta tinh thần lực nhích tới gần, cũng sẽ gặp áp chế, tựa hồ là ẩn chứa có tế tự lực lượng."
-
-Tề Sinh nhìn ra treo giữa không trung đại đỉnh màu xanh tương đương bất phàm , bình thường thủ đoạn công kích, căn bản là không có cách đưa nó rung chuyển, ánh mắt có chút trầm lãnh , nói: "Giúp ta một chút sức lực, ta phải vận dụng Diệt Thần Thập Tự Thuẫn bản nguyên lực lượng."
-
-"Được."
-
-Huỳnh Hoặc duỗi ra một cây óng ánh ngón tay ngọc, hướng về phía trước một chút, thể nội tinh thần lực điên cuồng tuôn ra đi, lập tức, một mảnh quang vũ màu đỏ như máu vương xuống tới.
-
-Mưa ánh sáng cùng Diệt Thần Thập Tự Thuẫn tiếp xúc, vậy mà đắm chìm vào, một lát sau, tiếng nước chảy như giang hà chảy xuôi ở trong Thập Tự Thuẫn truyền tới.
-
-Cùng lúc đó, Tề Sinh hai tay cùng lúc hướng về phía trước nhấn một cái, đánh ra hai cây thánh khí cột máu, rót vào Diệt Thần Thập Tự Thuẫn.
-
-"Soạt —— "
-
-Diệt Thần Thập Tự Thuẫn bản nguyên lực lượng bị kích phát ra đến, ngưng tụ thành một mảnh nồng đậm huyết vân, tràn ngập tại trong hầm băng, cùng từ trên Khai Nguyên Lộc Đỉnh bay ra cổ văn màu vàng đụng vào nhau.
-
-Toàn bộ không gian bị chia cắt thành hai nửa, một bên huyết khí bốc lên, một bên kim quang chói mắt.
-
-Hai cỗ lực lượng đều cường hoành tới cực điểm, trên cầu đá, Thánh cảnh sinh linh khác, bao quát Ma Thiên thái tử cùng Bạch Lê hoàng tử cũng đều triển khai ra phòng ngự thủ đoạn, để tránh bị Diệt Thần Thập Tự Thuẫn dư ba chấn thương.
-
-Thôn Thiên Ma Long bên cạnh, đứng đấy một cái hóa thành nhân hình Thánh Thú. Thân hình của nó cao lớn, bắp thịt cả người, ánh mắt lộ ra thần sắc tham lam: "Lại có thể cùng Diệt Thần Thập Tự Thuẫn đối kháng, chẳng lẽ đại đỉnh màu xanh kia cùng Diệt Thần Thập Tự Thuẫn một dạng, cũng là một kiện Thần Di Cổ Khí?"
-
-Thánh Khí chia làm bốn đẳng cấp: Bách Văn Thánh Khí, Thiên Văn Thánh Khí, Vạn Văn Thánh Khí, Chí Tôn Thánh Khí.
-— QUẢNG CÁO —
-
-Thần Di Cổ Khí, cũng chính là chiến khí thần đã từng sử dụng tới, phía trên nhiễm phải lực lượng của thần, không tại trong Thánh Khí bốn đẳng cấp phạm trù. Thần Di Cổ Khí nắm giữ tại trong tay Thánh Giả cảnh giới tu sĩ, bạo phát đi ra uy lực, thậm chí có thể so sánh một kiện Chí Tôn Thánh Khí.
-
-Phải biết, liền ngay cả Lưỡng Nghi tông tông môn đỉnh tiêm như thế, cũng đều không có một kiện Chí Tôn Thánh Khí.
-
-Thần Di Cổ Khí giá trị, có lẽ so ra kém Chí Tôn Thánh Khí, nhưng là, nhưng khác biệt không nhiều. Thậm chí, một chút Thần Di Cổ Khí, bản thân liền là Chí Tôn Thánh Khí.
-
-Nhìn thấy một kiện Thần Di Cổ Khí, ai có thể không tâm động?
-
-Côn Lôn giới đứng đầu nhất thế lực, cũng sẽ đỏ mắt.
-
-"Toàn bộ Côn Lôn giới Thần Di Cổ Khí, cũng chỉ có như vậy một chút, mỗi một kiện đều có uy danh lớn như vậy, nắm giữ tại trong tay đứng đầu nhất thế lực. Trương Nhược Trần lấy ra đại đỉnh màu xanh này, trước kia căn bản là không có nghe nói qua, trên thư tịch cũng không có tương ứng ghi chép, chẳng lẽ là ở trong Âm Dương Hải tìm tới?"
-
-"Trương Nhược Trần trên người bảo vật, nào chỉ là một cái đại đỉnh màu xanh? Chỉ cần có thể giết chết hắn, trên người hắn tất cả, toàn bộ đều được về chúng ta tất cả." Thôn Thiên Ma Long âm thanh lạnh lùng nói.
-
-Lập tức, Thôn Thiên Ma Long cùng Tổ Long sơn cuối cùng một cái Thánh Thú "Mãng Thập Tứ" liên thủ, kích phát ra Bản Nguyên Man Hoang cổ kình trong Tổ Long Lân, đánh về phía đại đỉnh màu xanh.
-
-Mãng Thập Tứ là Mãng Ngưu tộc xếp hạng thứ 14 cao thủ, Thôn Thiên Ma Long không có đạt tới Thánh cảnh trước đó, vẫn luôn là nó trong bóng tối thủ hộ.
-
-Trước đây không lâu, Mãng Thập Tứ thành công đột phá đến Triệt Địa cảnh, trở thành cường giả số một. Lấy nó tu vi hiện tại, trở lại Mãng Ngưu tộc, chiến lực xếp hạng khẳng định sẽ càng thêm gần phía trước.
-
-Diệt Thần Thập Tự Thuẫn cùng Tổ Long Lân đồng thời công kích đi qua, đánh cho từng cái cổ văn màu vàng bay ra ngoài, giống như hàng ngàn hàng vạn ngôi sao tại rơi xuống dưới.
-
-"Ầm ầm."
-
-Diệt Thần Thập Tự Thuẫn cùng Tổ Long Lân, một trước một sau, cùng Khai Nguyên Lộc Đỉnh va chạm, đưa nó đánh cho mãnh liệt lắc lư, hướng phía sau băng sơn va đập tới.
-
-"Trương Nhược Trần, lần này ngươi còn không chết, liền thật không có thiên lý."
-
-Cho dù là Huỳnh Hoặc cũng đều cho rằng, Trương Nhược Trần không có khả năng còn có đường sống.
-
-Hai kiện Thần Di Cổ Khí đồng thời nghiền ép lên đi, dưới Chân Thánh, bất luận sinh linh gì đều chỉ có tan thành mây khói kết cục. Liền xem như Chân Thánh, cũng chưa chắc ngăn cản được.
-
-Băng sơn triệt để hòa tan, Trương Nhược Trần một tay bắt lấy Hoàng Yên Trần, một tay bắt lấy Thanh Mặc, thi triển ra không gian na di, xuất hiện đến trên không mấy trăm trượng cao, tránh đi hai kiện Thần Di Cổ Khí trùng kích.
-
-"Hoa —— "
-
-Trương Nhược Trần trên đầu tóc dài bay lên, ánh mắt sắc bén như kiếm, tâm niệm vừa động, thể nội kiếm ý dũng mãnh tiến ra, khống chế Trầm Uyên cổ kiếm bay ra ngoài, đánh về phía trên cầu đá Tề Sinh.
-
-"Không tốt."
-
-Tề Sinh đang toàn lực ứng phó khống chế Diệt Thần Thập Tự Thuẫn, làm sao lại ngờ tới, Trương Nhược Trần nhanh như vậy liền đem Hoàng Yên Trần cùng Thanh Mặc cứu ra băng sơn, giờ phút này, muốn thu hồi Diệt Thần Thập Tự Thuẫn phòng ngự đã là không kịp.
-
-"Lục Pháp Càn Khôn."
-
-Tề Sinh phần lưng sáu cánh, phóng xuất ra sáu loại khác biệt lực lượng, hình thành một vòng xoáy khổng lồ, có Phong Hỏa Lôi Điện lực lượng xen lẫn tại trong vòng xoáy.
-
-Lục Pháp Càn Khôn, chính là Tề Sinh át chủ bài mạnh nhất một trong, làm thủ đoạn công kích, có thể so với sáu tôn cường giả tuyệt thế đồng thời xuất thủ, tại cùng cảnh giới, có thể một người đánh một đám. Xem như phòng ngự thủ đoạn, liền xem như tu sĩ cao hơn hắn ra mấy cái cảnh giới, cũng rất khó đem hắn công phá.
-
-Trầm Uyên cổ kiếm cùng sáu loại lực lượng kia đụng vào nhau, kiếm mang tăng vọt, thân kiếm mãnh liệt rung động, phát ra chói tai kiếm minh.
-
-Bịch một tiếng, Trầm Uyên cổ kiếm công phá Lục Pháp Càn Khôn, đánh vào ngực Tề Sinh.
-
-"Thật là lợi hại Trương Nhược Trần."
-
-Tề Sinh sắc mặt trở nên tương đương khó coi, cũng không có thất kinh, mà là kích phát ra Thập Thánh Huyết Khải lực lượng, lần nữa ngăn cản Trầm Uyên cổ kiếm.
-
-Thập Thánh Huyết Khải ngoại vi mười đạo thánh ảnh, trong nháy mắt vỡ nát, Tề Sinh trong miệng phun ra một ngụm máu tươi, hướng về sau bay ra ngoài.
-
-Huỳnh Hoặc thân hình lóe lên, xuất hiện đến sau lưng Tề Sinh, giúp hắn hóa giải Trầm Uyên cổ kiếm tàn kình.
-
-Trong lòng của nàng, có chút nghiêm nghị, Trương Nhược Trần không khỏi cũng quá cường đại, từ nhỏ đến lớn Tề Sinh cùng tu sĩ cùng thế hệ giao phong liền không có bại qua, thế nhưng là, lại ngăn không được Trương Nhược Trần một kiếm. Nếu là truyền về Bất Tử Huyết tộc, nhất định tạo thành oanh động.
-
-Huỳnh Hoặc nghe được một tiếng hét thảm, phía bên trái phía sườn trông đi qua.
-
-Lại chuyện gì xảy ra?
-
-Chỉ gặp, một thanh màu bạc dao phay, đánh vào ngực Mãng Thập Tứ, xuyên thấu đi qua, đem vị Triệt Địa cảnh Thánh Thú này trọng thương, trên cầu đá, vương xuống một mảng lớn ửng đỏ thánh huyết.
-
-Kỳ thật, Thanh Mặc vừa rồi đánh ra dao phay màu bạc, là muốn chém giết Thôn Thiên Ma Long, chỉ bất quá, Mãng Thập Tứ lấy trọng thương làm đại giá, thay Thôn Thiên Ma Long ngăn trở hẳn phải chết một kích.
-
-Nói đến, Tổ Long sơn cũng là rất thảm, hết thảy mười hai con Thánh Thú tiến vào Âm Dương Hải, hiện tại cũng chỉ có Thôn Thiên Ma Long cùng Mãng Thập Tứ còn sống, còn lại Thánh Thú, có hơn phân nửa đều là chết ở trong tay Trương Nhược Trần.
-
-Chở lớn như vậy té ngã, cũng khó trách Thôn Thiên Ma Long mỗi lần nhìn thấy Trương Nhược Trần đều sẽ hận đến nghiến răng nghiến lợi.
-
-Trương Nhược Trần đem Hoàng Yên Trần đưa vào trong Thủy Tinh Hồ Lô dưỡng thương, lập tức, hai tay nâng Khai Nguyên Lộc Đỉnh, trong đỉnh cổ văn màu vàng lần nữa lao ra, lơ lửng tại hư không.
-
-Hàng ngàn hàng vạn cái cổ văn màu vàng ở giữa, ngưng tụ ra một tôn vô cùng to lớn Minh Vương hư ảnh, toàn thân tản mát ra thần thánh quang hoa. Hư ảnh, duỗi ra một cái bàn tay sơn nhạc khổng lồ như vậy, hướng trên cầu đá Chư Thánh nén xuống dưới.
-
-Ma Thiên thái tử cầm trong tay Đế Sát Ma Kiếm, ngẩng đầu nhìn về phía trên không, lầu bầu nói: "Vậy rốt cuộc là một kiện chiến khí dạng gì, tựa hồ so Diệt Thần Thập Tự Thuẫn đều cường đại hơn một chút."
-
-"Ta để ngăn cản đại đỉnh màu xanh kia, các ngươi vận dụng thủ đoạn mạnh nhất, công kích Trương Nhược Trần."
-— QUẢNG CÁO —
-
-Huỳnh Hoặc đánh ra một tấm lệnh bài, phóng lên tận trời, hướng Khai Nguyên Lộc Đỉnh nghênh kích đi lên.
-
-Tấm lệnh bài kia, tên là Vạn Thú Bảo Giám, chính là Bất Tử Thần Điện nhất huyền bí Cổ Khí một trong, nội bộ phong ấn có vạn thú, không chỉ có Man thú bình thường, càng có vô cùng cường đại Thánh Thú.
-
-Vạn Thú Bảo Giám càng biến càng lớn, cuối cùng, đúng là hóa thành một khối kim loại cự bia cao chín mươi chín trượng, tại nó mặt ngoài, hiện ra mấy trăm đạo thú văn, nội bộ thì là phát ra từng tiếng thú rống đinh tai nhức óc.
-
-Mấy trăm đạo thú ảnh hiển hiện ra, ngăn trở từ bên trên rơi xuống màu vàng thủ ấn.
-
-"Không hổ là Bất Tử Thần Nữ, quả nhiên rất lợi hại." Trương Nhược Trần thầm nghĩ.
-
-Huỳnh Hoặc dáng tươi cười cực kỳ ôn nhu, đôi mắt nháy một chút, tràn ngập động lòng người phong tình , nói: "Trương Nhược Trần, ngươi liền xem như tại thời kỳ toàn thịnh, cũng chưa chắc là bản thần nữ đối thủ. Bây giờ, ngươi thương đến nặng như vậy, còn có thể chống đỡ được bản thần nữ bao nhiêu chiêu?"
-
-Một đầu khác, Tề Sinh, Thôn Thiên Ma Long, Ma Thiên thái tử đều đang ngưng tụ lực lượng, chuẩn bị cho Trương Nhược Trần lôi đình một kích, để hắn thần hình câu diệt.
-
-"Không thể ngồi mà chờ chết."
-
-Trương Nhược Trần trong lòng khẽ động, không lùi mà tiến tới, sử dụng ra không gian na di, xuất hiện đến cầu đá phụ cận, sau đó, cấp tốc phóng tới Huỳnh Hoặc.
-
-Huỳnh Hoặc biết Trương Nhược Trần có thể điều động lực lượng thời gian, bởi vậy, không dám để cho hắn tới gần, thi triển ra một loại thân pháp như quỷ mị, lập tức hướng về sau lùi lại.
-
-"Chạy đi đâu?"
-
-Trương Nhược Trần biết Huỳnh Hoặc là một cái cự đại uy hiếp, muốn mau chóng đưa nàng diệt sát.
-
-Hai người thân pháp tốc độ đều là cực nhanh, không ngừng biến hóa phương vị, tại trên cầu đá, lưu lại mấy chục đạo bóng người. Không thể không nói, Huỳnh Hoặc hoàn toàn chính xác tương đương lợi hại, chỉ là một cái tinh thần lực tu sĩ, lại có thể tại trong mấy chục trượng phạm vi cùng Trương Nhược Trần triền đấu.
-
-Trương Nhược Trần sử dụng xuất hồn thân thủ đoạn, vậy mà cũng không có đưa nàng cầm xuống.
-
-Tề Sinh cùng Ma Thiên thái tử cũng gia nhập chiến đấu, ngăn cản Trương Nhược Trần công kích, lo lắng Huỳnh Hoặc thật bị hắn giết chết. Hôm nay, Trương Nhược Trần thực sự quá hung mãnh, chém giết Thánh cảnh sinh linh không xuống mười vị, mà lại mỗi một vị đều là tương đương nhân vật lợi hại.
-
-Trận chiến này chiến quả, nếu là truyền về Đệ Nhất Trung Ương đế quốc, tất nhiên sẽ tạo thành oanh động, Trương Nhược Trần tại trong mắt Nhân tộc Chư Thánh phân lượng, khẳng định sẽ trở nên càng thêm không giống với.
-
-Ngay tại Trương Nhược Trần cùng Bất Tử Huyết tộc ba đại cao thủ giao phong thời điểm, Thanh Mặc một đôi tròng mắt, lại là nhìn chằm chằm cách đó không xa một cái lồng giam, lộ ra thần sắc kinh ngạc.
-
-"Cái đó là. . . Hỏa diễm. . ."
-
-Chỉ gặp, trong lồng giam, trên thân một con chim nhỏ cháy đen lớn chừng bàn tay, vậy mà toát ra từng hạt hỏa diễm điểm sáng, tựa như là một khối than củi nội bộ toát ra hoả tinh một dạng.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1283
-
-Chương 1280: Bất Tử Điểu?
-
-Băng sơn hòa tan về sau, xác chim màu cháy đen, hoàn toàn bạo lộ ra.
-
-Ai có thể nghĩ tới, đã chết đi không biết bao nhiêu năm một con chim non, tại thi thể của nó nội bộ, vậy mà lại toát ra hỏa diễm.
-
-"Xoẹt xoẹt."
-
-Hỏa diễm thiêu đốt đến càng ngày càng thịnh vượng, thả ra nhiệt độ, khiến cho lạnh lẽo thấu xương hầm băng cũng đều dâng lên một cỗ ấm áp.
-
-Trên cầu đá, ngay tại chiến đấu Trương Nhược Trần, Tề Sinh bọn người, toàn bộ đều ngừng lại, nhìn chăm chú về phía lơ lửng giữa không trung lồng giam, lộ ra kinh ngạc thần sắc.
-
-"Chuyện gì xảy ra? Vừa rồi xảy ra chuyện gì?"
-
-"Tại sao ta cảm giác đến có một cỗ sóng lực lượng nhỏ yếu, từ xác chim thể nội truyền tới?"
-
-"Không thể nào! Nó đều đã đã chết đi bao nhiêu vạn năm, chẳng lẽ còn không có triệt để đều chết hết?"
-
-"Sinh linh có thể bị giam giữ ở chỗ này, tuyệt đối đều là cái thế hung ma, không có một cái nào là nhân vật đơn giản , bất kỳ một cái nào chạy đi, toàn bộ Côn Lôn giới đều sẽ long trời lở đất."
-
-Huỳnh Hoặc không chỉ có tinh thần lực thập phần cường đại, mà lại, còn có thể trình độ nhất định dự cảm đến tương lai có thể sẽ phát sinh nguy hiểm.
-
-Giờ phút này, sắc mặt của nàng có chút ngưng trọng, nhắc nhở: "Mau chóng rời đi nơi đây, bằng không, chúng ta sẽ chết không nơi chôn thây."
-
-Tề Sinh cùng Ma Thiên thái tử biết Huỳnh Hoặc cảm ứng rất chuẩn, bởi vậy, không dám tiếp tục đợi tại hầm băng, hướng Trương Nhược Trần đứng tại cầu bên cạnh cột đá đỉnh chóp nhìn chằm chằm một chút, cuối cùng vẫn không có tiếp tục xuất thủ.
-
-Hai người bọn họ, cùng Huỳnh Hoặc cùng một chỗ, xông ra cầu đá, bắt đầu leo lên băng bích.
-
-Trương Nhược Trần cũng phát giác được khí tức vô cùng nguy hiểm, bởi vậy, không có đi chặn đường bọn hắn, mà là cùng Thanh Mặc hội hợp cùng một chỗ, bắt lấy nàng một cái cổ tay, cấp tốc hướng hầm băng chạy ra ngoài.
-
-Phía dưới, xác chim thể nội tuôn ra hỏa diễm, đem trọn cái lồng giam đều bao khỏa đi vào, tại lồng giam bốn phía, không gian vậy mà có chút vặn vẹo.
-
-"Dát!"
-
-Ngay sau đó, hỏa diễm nội bộ, truyền ra một tiếng bén nhọn hót vang.
-
-Trong hầm băng Thánh cảnh sinh linh, bao quát Trương Nhược Trần ở bên trong, toàn bộ đều cảm giác được đầu lâu nhói nhói, tựa như là bị châm mãnh liệt nhói một cái, trước mắt một mảnh đen sì.
-
-Trong tai, chảy ra máu tươi.
-
-Tất cả Thánh cảnh sinh linh ngắn ngủi mất đi ý thức, rơi xuống dưới.
-
-Thanh Mặc làm thực vật loại sinh linh, ngược lại là không có nhận ảnh hưởng quá lớn, chỉ là hơi thất thần một chút, lập tức phản ứng lại.
-
-Nàng trở tay bắt lấy cổ tay Trương Nhược Trần, một cái tay khác năm ngón tay hóa thành năm cái dây leo, đánh vào trên băng bích, đánh ra năm cái lỗ thủng, khiến cho hai người treo ở giữa không trung.
-
-Huỳnh Hoặc, Tề Sinh, Ma Thiên thái tử, Bạch Lê hoàng tử, Thôn Thiên Ma Long, Mãng Thập Tứ nhưng không có vận khí tốt như vậy, bọn hắn toàn bộ đều từ giữa không trung rơi xuống, đụng vào trên cầu đá, phát ra bành bịch thanh âm.
-
-Trương Nhược Trần hít sâu một hơi, vuốt vuốt huyệt Thái Dương, xoay người, hướng lơ lửng ở phía dưới lồng giam nhìn thoáng qua, "Thật là đáng sợ sóng âm, nó thật thức tỉnh sao?"
-
-Toàn bộ lồng giam, hoàn toàn biến thành một cái cự đại hỏa cầu, thả ra nhiệt lượng, để hầm băng băng bích đều đang chậm rãi hòa tan.
-— QUẢNG CÁO —
-
-
-Lớn chừng bàn tay xác chim, phát ra "Đùng đùng" thanh âm, phá vỡ màu đen xác ngoài, mọc ra từng cây chói lọi chói mắt lông vũ. Trước mắt một màn này, giống như vịt con xấu xí biến Thiên Nga đồng dạng, khiến người ta cảm thấy vô cùng sợ hãi thán phục.
-
-Màu lửa đỏ lông vũ, mỗi một cây đều lộ ra óng ánh sáng long lanh, tựa như là dùng một loại nào đó ngọc chất vật liệu rèn đúc mà thành.
-
-Trên cầu đá Chư Thánh tỉnh lại, nhìn thấy trước mắt một màn này, cũng đều cảm giác được không thể tưởng tượng.
-
-Nó vậy mà thật sống lại?
-
-Huỳnh Hoặc trong đôi mắt, hiện lên một đạo rung động thần sắc , nói: "Cái đó là. . . Đó là trong truyền thuyết Bất Tử Điểu sao?"
-
-Làm Bất Tử Thần Điện Thần Nữ, Huỳnh Hoặc có thể nói là bác học thấy nhiều biết rộng, từng tại trên một bản điển tịch cổ lão, thấy qua ghi chép liên quan tới Bất Tử Điểu, phía trên phối hữu văn tự cùng đồ án.
-
-Trong lồng giam, con chim toàn thân bốc lên hỏa diễm kia, cùng Bất Tử Điểu dáng dấp rất giống.
-
-"Bành bành."
-
-Màu lửa đỏ dị điểu, mãnh liệt va chạm lồng giam, muốn từ bên trong trốn tới.
-
-Quấn chặt lấy lồng giam xích sắt, mặt ngoài một tầng sắt lá phá toái mà ra, lộ ra màu xanh tím lôi điện quang văn, phóng xuất ra mấy chục đạo thiểm điện, đánh vào trên thân dị điểu màu lửa đỏ.
-
-Ngay sau đó, cầu đá mãnh liệt lay động.
-
-Trên cầu, hiện ra từng cái cổ lão long văn, tựa như một thiên Thiên Thư.
-
-"Thần Long nhất tộc quả nhiên là lưu lại một chút thủ đoạn, có thể áp chế hung vật cầm tù ở chỗ này. Để tránh xuất hiện dị biến, để bọn chúng chạy ra ngoài." Trương Nhược Trần thầm nghĩ.
-
-Màu lửa đỏ dị điểu có thể sống tới, Trương Nhược Trần cho rằng là dị biến.
-
-Dưới tình huống bình thường, bị đóng băng như vậy đã lâu thời gian, cho dù là Đại Thánh cấp bậc sinh linh cũng đã sớm cũng đã chết đi, làm sao có thể còn có thể sống tới?
-
-Trương Nhược Trần hiện tại đã rời xa cầu đá, tùy thời đều có thể thi triển ra Không Gian Đại Na Di đào tẩu, bởi vậy mới lưu lại quan sát, muốn biết nơi này đến cùng ẩn giấu đi bí mật gì?
-
-Trương Nhược Trần một bên nhìn chằm chằm phía dưới, vừa nói: "Tiểu Hắc ở nơi nào?"
-
-Thanh Mặc hai đầu lông mày chăm chú vặn cùng một chỗ, cẩn thận hồi tưởng , nói: "Tiểu Hắc cùng chúng ta cùng một chỗ rơi xuống dưới hầm băng, trong quá trình hạ xuống, ta cùng quận chúa điện hạ đụng vào trên một tòa băng sơn, trong nháy mắt liền bị băng phong, đã mất đi ý thức. Theo lý thuyết, Tiểu Hắc cũng hẳn là bị băng phong mới đúng."
-
-Dừng một chút, Thanh Mặc hai tròng mắt chuyển động một chút , nói: "Chẳng lẽ Tiểu Hắc nhục thân, ngay tại con chim kia?"
-
-"Làm sao có thể? Nó là một con mèo."
-
-Trương Nhược Trần cảm thấy Thanh Mặc tư duy quá sinh động, nhẹ nhàng lắc đầu.
-
-Thanh Mặc vẫn như cũ tin tưởng vững chắc Tiểu Hắc chính là một con chim, lộ ra mười phần thần tình nghiêm túc, cùng Trương Nhược Trần tranh luận , nói: "Thế nhưng là, Tiểu Hắc cơ hồ chưa từng có mèo kêu qua, ngươi không cảm thấy, nó rất có thể không phải một con mèo?"
-
-"Nó chỉ là không thích gọi mà thôi."
-
-Trương Nhược Trần tại trên thân hỏa diễm dị điểu kia, không có cảm nhận được Tiểu Hắc khí tức.
-
-Cầu đá hai bên, có lít nha lít nhít lồng giam, nhốt rất nhiều thời kỳ Viễn Cổ hung thần ác sát. Trương Nhược Trần từ vừa mới bắt đầu ngay tại hoài nghi, Tiểu Hắc nhục thân, rất có thể ngay tại trong một cái lồng giam trong đó.
-
-Trương Nhược Trần quan sát qua thi hài trong tất cả lồng giam, không có một cái hình thái lớn lên giống Tiểu Hắc, thậm chí, ngay cả một con mèo cũng đều không có.
-
-Đương nhiên, còn có một số lồng giam, lơ lửng tại năm màu trong sương mù, căn bản thấy không rõ, không bài trừ Tiểu Hắc nhục thân liền giấu ở trong ngũ thải mây mù.
-
-Thanh Mặc tựa hồ cũng cảm thấy Trương Nhược Trần nói rất có đạo lý, nhẹ gật đầu, lại hỏi: "Thần Long nhất tộc không phải đã diệt tuyệt? Đến cùng là ai đem Tiểu Hắc nhục thân phong ấn ở đây? Lại vì cái gì muốn đem Tiểu Hắc nhục thân phong ấn đến nơi đây?"
-
-Rất đơn giản một vấn đề, lại đem Trương Nhược Trần làm khó.
-
-Căn cứ Tiểu Hắc nói, năm đó, chính là Tu Di Thánh Tăng đưa nó trấn áp, nhục thân bị phong ấn ở Âm Dương Hải, thánh hồn bị luyện thành Càn Khôn Thần Mộc Đồ Khí Linh.
-
-Thế nhưng là Tu Di Thánh Tăng vì sao muốn đem Tiểu Hắc nhục thân phong ấn đến Âm Dương Hải?
-
-Trước kia, Trương Nhược Trần không có nghĩ qua vấn đề này.
-
-"Chẳng lẽ. . . Tu Di Thánh Tăng căn bản cũng không phải là nhân loại, mà là một con Thần Long?" Trương Nhược Trần sinh ra một cái to gan phỏng đoán.
-
-Long tộc gia nhập Phật môn cũng không phải là sự tình kỳ quái gì, 800 năm trước, Phật Đế tọa kỵ "Kim Long", không phải liền là Phật môn Thánh Hiền?
-
-"Ầm ầm."
-
-Trong lồng giam hỏa diễm dị điểu kia, sức mạnh bùng lên càng ngày càng mạnh, từ trên cầu đá tuôn ra lôi điện, căn bản áp chế không nổi nó.
-
-Cầu đá lay động đến càng thêm lợi hại, đồng thời, ngũ thải mây mù bao phủ lại cầu đá dần dần tản ra, khiến cho cầu thân hoàn toàn hiển lộ ra.
-
-Lúc trước, Trương Nhược Trần bọn người nhìn thấy, chỉ là cầu đá một đoạn ngắn.
-
-Một tòa mấy trăm dặm dáng dấp cầu đá, nằm ngang ở giữa không trung, trên cầu tất cả đều là từng cái sáng chói long văn.
-
-Cầu đá vị trí trung tâm, lại có một tòa năm màu băng sơn, cao tới ngàn trượng, chiếm cứ cầu đá một phần ba.
-
-Năm màu băng sơn dưới đáy, đứng đấy một nam tử trẻ tuổi, có mái tóc dài màu vàng óng, mọc ra một đôi sừng rồng, ngũ quan đẹp đẽ, dáng người cao gầy.
-
-Hắn đứng tại trên cầu, hai tay chắp sau lưng, nhìn ra xa hư không, toàn thân đều tản mát ra một cỗ uy nghiêm khí thế.
-
-Nếu không phải hắn bị băng phong tại trong núi băng, chỉ sợ tất cả mọi người sẽ cho rằng hắn còn sống.
-
-"Hắn. . . Hắn rốt cuộc là ai, như thế nào bị băng phong tại trên cầu? Nhìn hắn đứng yên tư thế, căn bản cũng không giống như là một cái tù phạm, cũng không giống là tại thời điểm chiến đấu bị người băng phong, thật quỷ dị."
-
-"Chẳng lẽ hắn là chính mình phong ấn chính mình?"
+Tại Âm gian đỉnh núi, Mộc Linh Hi tóc tai bù xù nằm rạp trên mặt đất, coi là Trương Nhược Trần đã chết đi: "Nếu, ngươi đã chết đi, ta sống còn có ý nghĩa gì?"
 
 . . .
 
-Trương Nhược Trần ánh mắt, cũng nhìn chằm chằm nam tử tuổi trẻ đứng tại trong núi băng kia. Người này, cho dù bị băng phong, trên thân phát ra khí thế cũng là uy nghiêm mười phần, tựa như là một vị Thần Hoàng tại nhìn ra xa vũ trụ tinh hà.
+"Đoan Mộc sư tỷ, ngươi đang làm cái gì?"
 
-Nếu là hắn còn sống, khẳng định là một vị tương đương tồn tại đáng sợ.
+"Ngươi vừa rồi đi nơi nào? Ta còn tưởng rằng. . ."
 — QUẢNG CÁO —
 
 
-Thanh Mặc nói: "Hắn không phải là một đầu Thần Long a?"
+"Sau này, không cho phép làm tiếp việc ngốc, nếu là ta hơi trễ một điểm trở về, hậu quả khó mà lường được."
 
-"Nếu như hắn là một đầu Thần Long, như vậy, khẳng định chính là Thần Long nhất tộc sau cùng một con rồng kia."
-
-"Vì cái gì?" Thanh Mặc hỏi.
-
-"Trực giác."
-
-Trương Nhược Trần ánh mắt có chút trầm ngưng, lại nói: "Ta cảm giác được tiếp xuống rất có thể sẽ có chuyện tương đương kinh khủng phát sinh, mau chóng rời đi nơi đây."
-
-Trương Nhược Trần mang theo Thanh Mặc, thi triển ra Không Gian Đại Na Di, xông ra hầm băng, đến Băng Xuyên đại lục mặt đất.
-
-Trong hầm băng, dâng trào ra ngũ thải hà quang, hóa thành một cây ngũ thải quang trụ đường kính trăm dặm, bay thẳng đến thiên khung, khiến cho trên không Âm Dương Hải hoàn bao la vô biên toàn biến thành năm màu.
-
-Thanh Mặc có chút lo lắng , nói: "Tiểu Hắc làm sao bây giờ? Nó rất có thể còn tại trong hầm băng."
-
-"Có thể hay không từ trong hầm băng trốn tới, chỉ có thể nhìn nó chính mình bản sự. Bằng vào chúng ta tu vi hiện tại, lần nữa xâm nhập tiến hầm băng, cùng chịu chết không hề khác gì nhau." Trương Nhược Trần nghiêm nghị nói.
-
-Ngay tại vừa rồi, Trương Nhược Trần rõ ràng cảm nhận được, Tiểu Hắc cùng Càn Khôn Thần Mộc Đồ liên hệ biến mất!
-
-Như vậy, chỉ có hai loại khả năng:
-
-Thứ nhất, Tiểu Hắc thánh hồn tao ngộ bất trắc, triệt để hồn phi phách tán.
-
-Thứ hai, Tiểu Hắc tìm được bị phong ấn nhục thân, bằng vào lực lượng của mình, chặt đứt cùng Càn Khôn Thần Mộc Đồ liên hệ.
-
-Thôn Thiên Ma Long, Mãng Thập Tứ, Bạch Lê hoàng tử, Ma Thiên thái tử, Tề Sinh, Huỳnh Hoặc nhao nhao xông ra hầm băng, chạy trốn tới Băng Xuyên đại lục mặt đất, đều có một loại cảm giác sống sót sau tai nạn.
-
-Thôn Thiên Ma Long ánh mắt, nhìn chăm chú về phía Trương Nhược Trần, trên thân lần nữa tuôn ra sát khí.
-
-Mặt khác mấy vị Thánh cảnh sinh linh, cũng bắt đầu vận chuyển thánh khí, phân tán mà ra, từ khác nhau phương vị, hướng Trương Nhược Trần đi qua.
-
-Tổ Long sơn, Cửu Lê cung, Bất Tử Huyết tộc, lần này đều tổn thất nặng nề, cơ hồ xem như toàn quân bị diệt, kẻ cầm đầu chính là Trương Nhược Trần.
-
-Nếu là không chém giết Trương Nhược Trần, sau khi trở về, bọn hắn như thế nào bàn giao?
-
-"Còn muốn chiến sao?"
-
-Trương Nhược Trần ngược lại là không sợ hãi, đem Hoàng Yên Trần cùng Ngao Tâm Nhan từ trong Thủy Tinh Hồ Lô phóng xuất, lại gọi ra Thực Thánh Hoa, cùng bọn hắn giằng co.
-
-"Tất cả đều là người quen, chúng ta triều đình cũng tới đụng một tham gia náo nhiệt." Vạn Hoa Ngữ tiếng cười vang lên.
-
-Một lát sau, triều đình Chư Thánh, từ trong gió tuyết đi tới, hình thành phe thứ ba trận doanh.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1284
-
-Chương 1281: Cường giả giá lâm
-
-Trì Vạn Tuế, Tư Mệnh Thần Nữ, Tuế Hàn, Vạn Hoa Ngữ, Bộ Thiên Phàm. . . , triều đình Chư Thánh nhao nhao hiện thân, vậy mà chừng hơn 20 người, cơ hồ không có tử thương gì, trở thành thực lực cường đại nhất một phương.
-
-Trì Vạn Tuế ánh mắt, hướng Tề Sinh bọn người liếc nhìn đi qua, cười nói: "Bất Tử Huyết tộc, Tổ Long sơn, Cửu Lê cung làm sao lại chỉ còn lại có mấy người các ngươi, tổn thất thảm như vậy nặng? Các ngươi đến cùng là gặp cái gì?"
-
-Tề Sinh ánh mắt trầm xuống, sau đó, liền lại lộ ra một đạo ý cười , nói: "Ngươi đắc ý như vậy làm gì? Chúng ta coi như tổn thất nặng nề, cũng là bởi vì Trương Nhược Trần, mà không phải bởi vì các ngươi triều đình. Trong mắt của ta, toàn bộ Nhân tộc triều đình Thánh Giả đều là giá áo túi cơm, cộng lại cũng so ra kém một cái Trương Nhược Trần."
-
-Ma Thiên thái tử nói: "Trì Vạn Tuế, uổng cho ngươi hay là cao cao tại thượng Giới Tử, danh xưng đệ nhất nhân trong hoàng tộc tuổi trẻ Thánh Giả, thế nhưng là, theo bản thái tử, ngươi cho Trương Nhược Trần xách giày tư cách đều không có."
-
-Rất hiển nhiên, Bất Tử Huyết tộc cũng là biết triều đình cùng Trương Nhược Trần mâu thuẫn, bởi vậy mới có thể nói ra châm chọc khiêu khích.
-
-Nếu là, triều đình Chư Thánh cùng Trương Nhược Trần trước đấu, tự nhiên là không còn gì tốt hơn.
-
-Trong trận doanh triều đình, một vị Binh Thánh tương đối tuổi trẻ muốn nịnh nọt Trì Vạn Tuế, hừ lạnh một tiếng: "Trương Nhược Trần bất quá chỉ là một cái triều đình trọng phạm, như chó nhà có tang, chỗ nào có thể cùng Thái Tuế Vương so sánh?"
-
-Trì Vạn Tuế ánh mắt trầm xuống, hướng vị Binh Thánh kia liếc qua, lộ ra một đạo hàn quang.
-
-Vị Binh Thánh kia trong lòng máy động, ý thức được nói sai, vội vàng ngậm miệng lại, lui về phía sau xuống dưới.
-
-Tề Sinh hướng Trương Nhược Trần nhìn lại, cười một tiếng: "Có nghe hay không, tại trong mắt Nhân tộc Thánh Giả, ngươi cũng chỉ là một cái chó nhà có tang, bọn hắn căn bản cũng không có đưa ngươi xem như Nhân tộc một thành viên. Tại Thanh Long Khư Giới, tại Huyết Thần giáo, tại Âm Dương Hải, ngươi vì Nhân tộc mà chiến đến cùng có ý nghĩa gì?"
-
-Thôn Thiên Ma Long cùng Mãng Thập Tứ cũng là cao giọng cười to, cố ý lộ ra thương hại thần sắc, cảm thấy Trương Nhược Trần rất đáng thương.
-
-Huỳnh Hoặc lông mi thon dài, con mắt nháy một chút, cười khanh khách nói: "Trương Nhược Trần, ngươi không bằng đầu nhập vào Bất Tử Huyết tộc, vì ta tộc làm việc, trước kia ân oán có thể xóa bỏ."
-
-Vạn Hoa Ngữ cùng Bộ Thiên Phàm lộ ra thần sắc lo lắng, có chút bận tâm Trương Nhược Trần chịu không được Bất Tử Huyết tộc khuyến khích, hiện tại liền cùng triều đình khai chiến.
-
-Trương Nhược Trần lộ ra thản nhiên, cười nhạt một tiếng, chỉ là yên lặng an dưỡng thương thế, không thèm để ý những đánh võ mồm kia.
-
-Hoàng Yên Trần hừ nhẹ một tiếng, có chút bất mãn , nói: "Hiện tại thế nhưng là một cái cơ hội tuyệt hảo, có thể diệt trừ Bất Tử Huyết tộc, Tổ Long sơn, Cửu Lê cung đứng đầu nhất thiên kiêu, các ngươi triều đình còn không xuất thủ trấn sát bọn hắn. Nhất định phải đợi đến bọn hắn đều trưởng thành là Minh Vương cùng Huyết Hậu tồn tại dạng này, mới ra tay sao?"
-
-Tề Sinh cùng Huỳnh Hoặc đều là lộ ra một đạo thần sắc khác thường, ý thức được Trương Nhược Trần vị hôn thê này không phải một nhân vật đơn giản.
-
-Nếu là, triều đình Chư Thánh thật trước ra tay với bọn họ, như vậy Trương Nhược Trần liền có thể sống chết mặc bây, ngồi thu ngư ông thủ lợi.
-
-Trì Vạn Tuế cũng là xem như quả quyết, hạ xuất một đạo mệnh lệnh: "Chiến, trước diệt Bất Tử Huyết tộc."
-
-Triều đình Chư Thánh nhao nhao lấy ra Thánh Khí, điều động thánh khí rót đi vào, dẫn động ra từng đạo Thiên Văn Hủy Diệt Kình, tràn ngập tại Băng Xuyên đại lục trên không.
-— QUẢNG CÁO —
-
-
-Tại trong hầm băng, vô luận là Trương Nhược Trần, hay là Tề Sinh bọn người, đều bị dị điểu màu lửa đỏ một tiếng gáy gọi chấn thương, tự nhiên không thể nào là triều đình Chư Thánh đối thủ.
-
-Tề Sinh không có kinh hoảng, trấn định tự nhiên, cười nói: "Các ngươi sẽ không coi là, Bất Tử Huyết tộc thật chỉ có chúng ta tuổi trẻ Thánh Giả này tiến vào Âm Dương Hải?"
-
-"Ầm ầm."
-
-Hơn 20 kiện Thánh Khí bốc lên đến hư không, hình thành một mảnh do Thiên Văn Hủy Diệt Kình ngưng tụ thành đám mây. Trong mây, đã có đường kính một mét thô lôi điện tại xuyên thẳng qua, xen lẫn thành hình lưới; cũng có Thiên Hỏa đang thiêu đốt, ngưng kết thành hình dạng hoa sen.
-
-Bao trùm phương viên mấy trăm dặm đám mây, hướng phía dưới nghiền áp xuống, vùng thiên địa này đều là phát ra đôm đốp thanh âm, cho người ta một loại trời đất sụp đổ cảm giác.
-
-Đúng lúc này, một cái quả cầu ánh sáng màu vàng óng, xuất hiện tại trên không Tề Sinh, Huỳnh Hoặc, Ma Thiên thái tử đám người, trong lúc mơ hồ, có thể trông thấy trong quang cầu đứng đấy một đạo bóng người khôi ngô.
-
-Đạo nhân ảnh kia, chỉ là duỗi ra một tay nắm, hướng lên bầu trời nhấn một cái, chính là ngưng tụ ra một cái dài trăm dặm đại thủ ấn.
-
-Hơn 20 kiện Thánh Khí cùng đại thủ ấn đụng vào nhau, giống như hạt mưa đánh vào trên phiến đá, chỉ là phát ra liên tiếp tiếng oanh minh.
-
-Sau đó, đại thủ ấn đảo lộn một chút, tất cả Thánh Khí vậy mà toàn bộ đều đổ ép trở về.
-
-Triều đình Chư Thánh giật nảy mình, nhao nhao thi triển ra thủ đoạn, cùng Thánh Khí Khí Linh câu thông, một trận luống cuống tay chân, mới đưa Thánh Khí một lần nữa khống chế. Cũng có mấy vị Thánh Giả bị đánh đến vội vàng không kịp chuẩn bị, bị thương nặng, ngã trên mặt đất.
-
-"Thủ đoạn thật là lợi hại."
-
-Trương Nhược Trần đứng ở một bên, cảm nhận được một cỗ bài sơn đảo hải lực lượng quét sạch thiên địa, thế là, mang theo Hoàng Yên Trần bọn người, hướng nơi xa lùi lại, để tránh bị Bất Tử Huyết tộc vị nhân vật lợi hại kia để mắt tới.
-
-Quang cầu màu vàng nội bộ, đạo nhân ảnh kia người mặc Kim Ti Mãng Bào, rộng thể rộng rãi, tinh thần vô cùng phấn chấn, liền ngay cả làn da cũng là hoàng kim một dạng nhan sắc. Hắn chỉ là lẳng lặng đứng giữa không trung, cũng có sóng lực lượng chấn động mạnh mẽ trào ra ngoài.
-
-Hơn 20 vị Thánh Giả đánh ra Thánh Khí, bị hắn lật tay liền đánh trở về, bởi vậy có thể thấy được, người này nhất định là một vị Chân Thánh, thậm chí có thể là một vị Chí Thánh.
-
-Trương Nhược Trần nhìn chằm chằm đạo nhân ảnh kia, lầm bầm lầu bầu đọc lên ba chữ: "Hạ vương gia."
-
-Bóng người đứng tại trong quang cầu màu vàng, chính là Hoàng Thiên bộ tộc Hạ vương gia.
-
-Hạ vương gia đã từng cùng Hoàng Thiên hoàng nữ cùng một chỗ đến Thiên Thai châu, muốn khống chế Huyết Thần giáo, lại gặp đến Hắc Thị cùng triều đình vây công.
-
-Trận chiến kia, Hoàng Thiên bộ tộc Bất Tử Huyết tộc toàn quân bị diệt, duy chỉ có Hạ vương gia trọng thương đào tẩu.
-
-Nhìn thấy Hạ vương gia hiện thân, triều đình Chư Thánh toàn bộ đều là sắc mặt biến đổi lớn, nhao nhao nhìn về phía Tư Mệnh Thần Nữ cùng Trì Vạn Tuế , chờ đợi bọn hắn hạ xuất mệnh lệnh, mau thoát đi nơi đây.
-
-Rất hiển nhiên, Bất Tử Huyết tộc cũng là rất muốn giết chết Trì Vạn Tuế, Tư Mệnh Thần Nữ, Tuế Hàn bọn người. Hạ vương gia thân hình khẽ động, quang cầu màu vàng trở nên càng ngày càng to lớn, cuối cùng, quang cầu đường kính đúng là đạt tới 500 mét, nhanh chóng nhấp nhô, hướng triều đình Chư Thánh nghiền ép lên đi.
-
-Dưới chân sông băng, mãnh liệt rung động.
-
-"Thần Nữ điện hạ, người này là Hoàng Thiên bộ tộc Hạ vương gia, tu vi của hắn cường đại vô cùng, không phải chúng ta có thể ngăn cản, tranh thủ thời gian hạ lệnh rút lui đi!"
-
-Một vị Nhân tộc Thánh Giả bị dọa đến sắc mặt tái nhợt, Hạ vương gia sức mạnh bùng lên thực sự quá cường đại, như là có thể nghiền nát thế gian tất cả sinh linh.
-
-Tư Mệnh Thần Nữ nói: "Không cần e ngại, triều đình cũng có cường giả tuyệt đỉnh tiến vào Âm Dương Hải."
-
-Đúng lúc này, nơi xa truyền đến một đạo thanh âm phóng khoáng: "Hạ Thiên Túc, cùng triều đình một đám tiểu bối giao thủ có ý gì, bản vương đến đánh với ngươi một trận."
-
-Một con Giao Long màu trắng trên Băng Xuyên đại lục cấp tốc ghé qua, thân thể dài đến hơn mười dặm, xa xa nhìn lại, giống như một đầu dòng sông màu trắng uốn lượn.
-
-Vạn Triệu Ức đứng tại đỉnh đầu Giao Long, người mặc Thanh Long bảo giáp, hướng về phía trước xông lên, vốn là thân thể của nhân loại, đột nhiên đúng là hóa thành một đầu Thanh Long, duỗi ra một cái long trảo to lớn, xé nát đường kính 500 mét quang cầu màu vàng, đánh cho Hạ vương gia bay ngược trở về.
-
-Trương Nhược Trần con mắt co rụt lại , nói: "Long Tượng Bàn Nhược Chưởng chưởng thứ mười, Long Du Cửu Thiên."
-
-Trương Nhược Trần cũng đem Long Tượng Bàn Nhược Chưởng chưởng thứ mười tu luyện thành công, thế nhưng là, lại chỉ có thể bộc phát ra 42 lần lực công kích. Vừa rồi, Vạn Triệu Ức đánh ra Long Du Cửu Thiên, chí ít bộc phát ra 50 lần lực công kích.
-
-Mặt ngoài nhìn, chênh lệch tựa hồ cũng không phải là rất lớn, chỉ có tu sĩ chân chính tu luyện Long Tượng Bàn Nhược Chưởng mới có thể minh bạch, đạt tới 42 lần lực công kích đằng sau, mỗi gia tăng gấp đôi lực lượng, đều là vô cùng gian nan sự tình.
-
-Rất hiển nhiên, Vạn Triệu Ức tạo nghệ tại trên chưởng pháp, cao hơn Trương Nhược Trần một mảng lớn.
-
-Lấy Vạn Triệu Ức hiện tại chưởng pháp tạo nghệ, đã có thể đi trùng kích đột phá Long Tượng Bàn Nhược Chưởng chưởng thứ 11. Thậm chí có khả năng, hắn đã đem chưởng thứ 11 tu luyện thành công.
-
-"Mấy năm này, Vạn Triệu Ức tu vi cũng là đột nhiên tăng mạnh. Thiên địa quy tắc biến hóa đằng sau, thiên tài đứng đầu tốc độ tu luyện quả nhiên là viễn siêu lúc trước." Trương Nhược Trần thầm nghĩ.
-
-Mấy năm trước, Vạn Triệu Ức đi Đông Vực Thánh Vương Phủ bắt Trương Nhược Trần thời điểm, cùng Tuyền Cơ Kiếm Thánh giao thủ qua một lần.
-
-Khi đó Vạn Triệu Ức, ngăn không được Tuyền Cơ Kiếm Thánh một kiếm.
-— QUẢNG CÁO —
-
-Hôm nay Vạn Triệu Ức, tu vi đâu chỉ tăng trưởng gấp mười lần.
-
-Vạn Triệu Ức xuất hiện, khiến cho triều đình sĩ khí đại chấn, toàn bộ đều trở nên hưng phấn. Trước mắt vị này chủ, thế nhưng là trên « Anh Hùng Phú » xếp hạng thứ nhất tồn tại, tu vi sâu không lường được, không nhìn thấy vị Hạ vương gia kia đều bị đánh lui.
-
-Vạn Triệu Ức ánh mắt liếc nhìn tứ phương, cười nói: "Tất cả mọi người là vì Băng Xuyên đại lục dưới đáy món đồ kia mà đến, như là đã đến nơi này, vì sao còn không hiện thân?"
-
-"Ầm ầm."
-
-Hư không mãnh liệt chấn động, một mảnh huyết vân nổi lên.
-
-Huyết vân nội bộ, lơ lửng một tòa cao chín mươi chín trượng bạch cốt tế đàn, tế đàn dưới đáy dựng thẳng 16 căn xương rồng, như là 16 căn cây cột, chính là chống lên tế đàn khung xương.
-
-Hàng ngàn hàng vạn cỗ nhân loại bạch cốt sắp xếp tại bên trên tế đàn, lít nha lít nhít, không cách nào đếm rõ, trong đó một chút xương cốt, càng là Nhân tộc Thánh Giả hài cốt.
-
-Tế đàn đỉnh chóp, cắm một cây chiến kỳ, phía trên ấn có "Trung Doanh" hai chữ.
-
-Phía dưới chiến kỳ, đứng đấy cả người cao bảy mét nam tử, người mặc Bách Thánh Huyết Khải, trong hai mắt toát ra bễ nghễ thiên hạ sát khí , nói: "Dưới Băng Xuyên đại lục món đồ kia, về Bất Tử Huyết tộc tất cả, ai cũng đừng nghĩ nhúng chàm. Nếu không, chết."
-
-Bạch cốt tế đàn xuất hiện đằng sau, cho dù là Thánh Giả cũng đều cảm giác được kiềm chế, hô hấp khó khăn, thể nội thánh khí vận chuyển không khoái, gặp một cỗ vô hình lực lượng áp chế.
-
-Đứng tại trên bạch cốt tế đài nam tử, đơn giản tựa như một tôn Ma Thần một dạng, để cho người ta cảm thấy sợ hãi.
-
-Trương Nhược Trần chau mày , nói: "Thật không nghĩ tới, Trung Doanh Vương vậy mà cũng tới đến Âm Dương Hải."
-
-Trung Doanh Vương là Thanh Thiên bộ tộc đệ nhất Vương giả, chiến lực gần với Thanh Thiên Huyết Đế, tại Tư Không thiền viện, cùng Khổng Lan Du giao thủ qua một lần, bị đánh phải trọng thương sắp chết.
-
-Ở đây, cũng chỉ có Vạn Triệu Ức còn có thể bảo trì trấn định, cùng Trung Doanh Vương giằng co , nói: "Đệ Nhất Trung Ương đế quốc cũng đối món đồ kia tình thế bắt buộc, ai cũng đừng nghĩ cùng chúng ta tranh đoạt. Bằng không, cũng là chết."
-
-"Chỉ bằng ngươi?" Trung Doanh Vương nói.
-
-Vạn Triệu Ức cười cười , nói: "Ta một tên tiểu bối, sao dám cùng Trung Doanh Vương tiền bối đánh một trận? Trong triều đình, ngược lại là có hai vị đức cao vọng trọng Thiên Vương, đã sớm muốn gặp ngươi một lần."
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1285
-
-Chương 1282: Sát Tẫn Vương
-
-"Thiên Vương" là Đệ Nhất Trung Ương đế quốc cao nhất tước vị, đại biểu vô thượng vinh hạnh đặc biệt cùng ngập trời quyền lợi.
-
-Bất quá, Thiên Vương cũng là sẽ phân ba đẳng cấp: Hạ đẳng Thiên Vương, trung đẳng Thiên Vương, thượng đẳng Thiên Vương.
-
-Cho dù là uy danh truyền thiên hạ Vạn Triệu Ức, bây giờ cũng chỉ là hạ đẳng Thiên Vương tước vị.
-
-Về phần trung đẳng Thiên Vương, mỗi một vị đều là trong triều đình đại nhân vật hết sức quan trọng, chính là gần với Nữ Hoàng quyền quý, không chỉ có tự thân tu vi cường đại, mà lại phía sau có chưởng khống gia tộc khổng lổ, có thể tại Đệ Nhất Trung Ương đế quốc hô phong hoán vũ, nhất cử nhất động của bọn họ đều có thể đối với toàn bộ Nhân tộc tạo thành ảnh hưởng to lớn.
-
-Thường xuyên xuất hiện tại trên triều đình trung đẳng Thiên Vương, coi như cộng lại, cũng không cao hơn mười người.
-
-Cấp bậc cao nhất thượng đẳng Thiên Vương cũng liền càng thêm lợi hại, tuyệt đại đa số là 800 năm trước đi theo Thanh Đế cùng một chỗ chinh chiến thiên hạ khai triều công huân, sống hơn ngàn năm, cũng sớm đã không còn vào triều, lui khỏi vị trí đến phía sau màn. Cho dù là người thừa kế của bọn hắn, cũng đều đã có Thiên Vương tước.
-
-Đương nhiên, còn có một số thì là gần nhất mấy trăm năm, bằng vào cường đại vô cùng tu vi, ngạnh sinh sinh xâm nhập tiến thượng đẳng Thiên Vương cấp độ. Nhân vật như vậy cũng liền càng khủng bố hơn, mỗi một vị đều là kinh thiên động địa tồn tại.
-
-"Hoa —— "
-
-Cách mặt đất 10 trượng giữa không trung, xuất hiện hai vòng gợn sóng gợn sóng, tựa như hai mảnh màn nước trống rỗng đản sinh ra. Ngay sau đó, hai đạo nhân ảnh từ gợn sóng trung tâm đi ra, tại thời khắc này, ở đây toàn bộ sinh linh đều cảm giác được trái tim hơi rung động, giống như toàn bộ không gian đều lắc lư một cái.
-
-Là hai vị Thiên Vương nào?
-
-Trương Nhược Trần cũng là rất là tò mò, đến cùng là đại nhân vật dạng gì giá lâm, vậy mà để Vạn Triệu Ức đều tôn sùng như vậy?
-
-Một người trong đó, thân cao hai mét, mi tâm mọc ra một chiếc mắt nằm dọc, mặc một bộ áo giáp tím, cầm trong tay một thanh chiến chùy, lơ lửng tại cách đất cao mười trượng vị trí, trong mỗi một cái lỗ chân lông đều có lôi điện tuôn ra.
-
-Những lôi điện kia xuyên thẳng qua giữa thiên địa, hóa thành một mảnh lôi điện hải dương.
-
-Triều đình trong trận doanh mặt một vị Thánh Giả, đem người này nhận ra, phát ra một tiếng kinh hô: "Đại Địa Thần Điện Bát Bộ Thiên Vương một trong, Lôi Bộ Thiên Vương."
-
-Đại Địa Thần Điện tổng cộng chia làm tám bộ, mỗi một bộ đều có một vị Thiên Vương.
-
-Bát Bộ Thiên Vương quyền lợi cùng địa vị, gần với điện chủ , bất kỳ một vị nào cũng là cự phách để Thánh Giả đều muốn ngưỡng vọng.
-
-Lôi Bộ Thiên Vương, chính là Bát Bộ Thiên Vương đứng đầu, chiến lực thứ nhất, tinh thần lực cùng Võ Đạo đều đạt tới cảnh giới cực kỳ cao thâm, tuyệt đối là nhân vật trong truyền thuyết.
-
-Nếu là muốn bình chọn Côn Lôn Giới sinh linh đồng thời tu luyện tinh thần lực cùng Võ Đạo, đồng thời thành tựu có thể đạt tới cực cao trình độ, Lôi Bộ Thiên Vương tuyệt đối là một cái quấn không ra nhân vật.
-
-"Băng Xuyên đại lục tình trạng đến cùng có đồ vật ghê gớm gì, làm sao Lôi Bộ Thiên Vương đều tự mình xuất động?"
-
-Triều đình Chư Thánh tâm tình đều như dời sông lấp biển đồng dạng, không cách nào bình tĩnh, trong lòng tràn ngập nghi hoặc.
-— QUẢNG CÁO —
-
-
-Ngoại trừ Tư Mệnh Thần Nữ, Trì Vạn Tuế, Tuế Hàn ba người loáng thoáng biết một chút nội tình, Thánh Giả khác căn bản cũng không biết bọn hắn tiến vào Âm Dương Hải chân chính mục đích, chỉ biết là là tìm kiếm Thần Long nhất tộc di bảo.
-
-Nhìn thấy Lôi Bộ Thiên Vương xuất hiện, ai có thể không sợ hãi?
-
-Tề Sinh, Huỳnh Hoặc, Ma Thiên thái tử sắc mặt trở nên có chút tái nhợt, liền ngay cả Hạ vương gia trong mắt cũng đều lộ ra kiêng kỵ thần sắc. Chỉ có Trung Doanh Vương, vẫn trấn định như cũ tự nhiên, tựa như Ma Thần một dạng đứng tại đỉnh bạch cốt tế đàn.
-
-Một vị Binh Thánh tương đối tuổi trẻ, nhìn chằm chằm đứng tại bên cạnh Lôi Bộ Thiên Vương một đạo bóng người khác, thanh âm có chút run rẩy, "Các ngươi mau nhìn vị kia là ai. . . Chẳng lẽ là hắn. . ."
-
-Ánh mắt mọi người, toàn bộ đều nhìn chằm chằm đi qua.
-
-Làm một vị Binh Thánh, làm sao lại sợ hãi như vậy?
-
-Chẳng lẽ còn có nhân vật so Lôi Bộ Thiên Vương càng thêm đáng sợ giá lâm?
-
-Chỉ gặp, một vị Thiên Vương khác người mặc một bộ huyết y, đứng tại trong một mảnh mây đen. Không ai có thể thấy rõ hắn đến cùng hình dạng thế nào, có thể, chỉ là nhìn thấy món huyết y kia, mọi người đã sinh ra nồng đậm sợ hãi.
-
-Cũng không phải là bọn hắn nhát gan, mà là vị Thiên Vương kia đơn giản liền như là sợ hãi hóa thân, phát ra khí tức, tự động ăn mòn nội tâm của bọn hắn.
-
-Trương Nhược Trần hướng món huyết y kia nhìn chằm chằm một chút, lập tức cảm giác có một luồng hơi lạnh tại thể nội lưu động, từ đầu một mực lạnh tới chân, liền liền tâm tạng đều giống như đọng lại một dạng.
-
-"Chẳng lẽ là Sát Tẫn Vương?"
-
-Bộ Thiên Phàm hít vào một ngụm hàn khí, bình tĩnh trong mắt, lộ ra thần sắc kinh hãi.
-
-"Dạ Bắc Sát Tẫn Vương, đêm đen giết hết người. Binh bộ đáng sợ nhất người kia giá lâm sao?"
-
-Vạn Hoa Ngữ trên mặt một tia huyết sắc đều không có, cùng Bộ Thiên Phàm một dạng, thân thể mềm mại đang khe khẽ run rẩy.
-
-Phải biết, Bộ Thiên Phàm cùng Vạn Hoa Ngữ đều là Binh bộ Thánh Giả, cùng Sát Tẫn Vương thuộc về cùng một trận doanh, thế nhưng là, bọn hắn lại sợ hãi như vậy.
-
-Làm Sát Tẫn Vương địch nhân, giờ phút này, lại chính là cỡ nào sợ hãi?
-
-Hoàng Yên Trần hướng Trương Nhược Trần truyền âm , nói: "Sát Tẫn Vương, tên là Dạ Bắc. Tu vi của hắn chưa chắc là Binh bộ đệ nhất, nhưng mà, lại là triều đình trên dưới công nhận Binh bộ đệ nhất Sát Thần."
-
-Trương Nhược Trần nói: "Đã nhìn ra! Liền ngay cả Bộ Thiên Phàm cùng Vạn Hoa Ngữ như thế tâm chí kiên định nhân kiệt, nhìn thấy Sát Tẫn Vương đều sợ hãi như vậy, người này nhất định là hung danh hiển hách."
-
-"Đừng nói là Bộ Thiên Phàm cùng Vạn Hoa Ngữ, liền xem như trên triều đình mấy vị trung đẳng Thiên Vương nhìn thấy hắn, cũng muốn kiêng kị ba phần." Hoàng Yên Trần nói ra.
-
-Trương Nhược Trần thoáng có chút ngoài ý muốn, hỏi: "Trung đẳng Thiên Vương đều kiêng kị hắn? Hắn tại sao lại được phong làm Sát Tẫn Vương, thật đáng sợ sao như vậy?"
-
-Hoàng Yên Trần nói ra: "Năm đó, triều đình vây quét Tử Thiện giáo, người thống lĩnh đại quân chính là hắn. Tử Thiện giáo tại Nam Vực truyền bá tà ác giáo nghĩa, đếm bằng ức vạn tu sĩ Nhân tộc gặp mê hoặc, trở thành Tử Thiện giáo giáo đồ. Giáo đồ số lượng tựa như là quả cầu tuyết một dạng, càng lăn càng lớn, đồng thời có hướng Trung Vực lan tràn xu thế."
-
-"Ở trên mảnh đại địa này, nhận Tử Thiện lão tổ mê hoặc giáo chúng, toàn bộ đều giống như nổi điên một dạng, đốt giết, loạn thành một bầy. Dựa theo Tử Thiện giáo giáo nghĩa, gọi là tùy tâm sở dục, không tiếp tục để chính mình thụ bất luận câu thúc gì, muốn làm cái gì thì làm cái đó. Nhưng mà, khi tất cả người dục vọng đều mất đi gông xiềng, cả vùng cũng liền biến thành Địa Ngục."
-
-Trương Nhược Trần hít vào một ngụm khí lạnh, có thể tưởng tượng ngay lúc đó Nam Vực là cỡ nào hỗn loạn.
-
-Hắn nói: "Tử Thiện giáo có thể sử dụng phật pháp, khống chế người chết. Chỉ có người chết, mới là bọn hắn trung thành nhất tín đồ."
-
-"Không sai, người phải chết càng nhiều, Tử Thiện giáo cũng liền càng là cường đại." Hoàng Yên Trần nói.
-
-Đối mặt khốn cục dạng này, liền ngay cả Trương Nhược Trần cũng cảm giác được khó giải quyết.
-
-Triều đình đại quân muốn vây quét Tử Thiện giáo, tất nhiên sẽ trước cùng nhận mê hoặc ức vạn giáo chúng giao phong, phải biết, những giáo chúng kia cơ hồ đều là nhân loại bình thường, đã mất đi lý trí, cùng bọn hắn giảng đạo lý hiển nhiên là việc không thể nào. Mà lại, rất nhiều Tử Thiện giáo cao thủ, liền ẩn thân tại trong giáo chúng bình thường.
-
-Nếu là đổi thành một thống lĩnh nhân từ nương tay, kết quả cuối cùng, rất có thể là triều đình đại quân toàn quân bị diệt.
-
-Thế nhưng là, Sát Tẫn Vương hiển nhiên không phải một nhân vật nhân từ nương tay, bằng không, cũng không có khả năng có phong hào dạng này.
-
-Trương Nhược Trần trong lòng đã có chỗ suy đoán, hỏi: "Sát Tẫn Vương là thế nào làm?"
-
-"Trong vòng một đêm, Sát Tẫn Vương suất lĩnh triều đình đại quân, đồ diệt Nam Vực 19 quận, những nơi đi qua, đầy đất thi cốt, một người sống cũng không có lưu lại, cuối cùng đánh hạ Tử Thiện giáo tổng đàn, giết đến Tử Thiện giáo nguyên khí đại thương, thối lui đến hải ngoại." Hoàng Yên Trần nói.
-
-Trương Nhược Trần hít sâu một hơi, cảm giác được lạnh cả người , nói: "19 cái quận, đó đến có bao nhiêu nhân loại, thật là lấy ức kế số."
-
-"Đêm hôm ấy, Nữ Hoàng từng liên tiếp hạ ba đạo mệnh lệnh, ngăn lại giết chóc. Thế nhưng là, Sát Tẫn Vương lại chỉ là trả lời một câu, tướng ở bên ngoài quân lệnh có thể không nhận."
-
-"Đệ Nhất Trung Ương đế quốc từ thành lập đến nay, hắn là người thứ nhất dám làm trái Nữ Hoàng ý chí."
-
-Hoàng Yên Trần tiếp tục nói ra: "Trận chiến kia về sau, Sát Tẫn Vương bị giam tiến Thiên Lao 180 năm, từ trong thiên lao thả ra đằng sau, tu vi vậy mà đột nhiên tăng mạnh. Trở lại quân doanh về sau, hắn liền suất lĩnh đại quân chinh chiến Man Hoang bí cảnh, ngắn ngủi 10 năm, giết đến Man thú liên tục bại lui, vì Đệ Nhất Trung Ương đế quốc khai thác trăm vạn dặm tân cương thổ. Đồng thời, hắn ở trên mảnh cương thổ này, thành lập nên 19 cái quận."
-
-Trương Nhược Trần nhìn chăm chú về phía đứng tại trong mây đen người áo đỏ ảnh , nói: "Dạ Bắc Sát Tẫn Vương, đêm đen giết hết người. Nữ Hoàng đại nhân hẳn là rất coi trọng người này, bằng không, một đêm tàn sát 19 quận, cũng sớm đã bị xử tử."
-
-"Vì duy trì Đệ Nhất Trung Ương đế quốc trường trì cửu an, Nữ Hoàng khẳng định là cần một nhân vật như vậy đến uy hiếp thế nhân." Hoàng Yên Trần nói ra.
-— QUẢNG CÁO —
-
-Trương Nhược Trần cười nói: "Ngươi ngược lại là hiểu rất rõ nàng."
-
-Hoàng Yên Trần chuyển qua một tấm óng ánh tuyết trắng gương mặt xinh đẹp, cùng Trương Nhược Trần bốn mắt nhìn nhau, cười nói: "Ngươi không phải cũng vẫn luôn muốn bồi dưỡng một cái người như vậy?"
-
-Sát Tẫn Vương xuất hiện, để Trung Doanh Vương trong mắt, cũng đều hiện lên một đạo thần sắc khác thường.
-
-Trung Doanh Vương cười lạnh một tiếng: "Lôi Bộ Thiên Vương cùng Sát Tẫn Vương đồng thời hiện thân, xem ra lần này triều đình thật tình thế bắt buộc. Thế nhưng là, các ngươi đừng quên, bản vương có thể xuất hiện ở đây, Tổ Long sơn cùng Cửu Lê cung cường giả tiền bối cũng khẳng định ẩn thân tại phụ cận."
-
-Lôi Bộ Thiên Vương rất cường thế , nói: "Bọn chúng nếu là xuất hiện, trực tiếp chém là được."
-
-Thanh Mặc giật giật Trương Nhược Trần ống tay áo, thấp giọng nói ra: "Không lâu sau đó, nơi này khẳng định sẽ bộc phát chiến đấu tương đương kinh khủng, đó là Thần Tiên đánh nhau, chúng ta hay là mau trốn đi, miễn cho đợi chút nữa trốn đều trốn không thoát."
-
-Trương Nhược Trần nhẹ gật đầu, cũng không muốn trong này mỏi mòn chờ đợi, coi như thật có tuyệt thế chí bảo xuất thế, cũng không phải bọn hắn có thể tranh đoạt.
-
-Nhưng mà, Trương Nhược Trần bọn người mới vừa mới chuẩn bị rời đi, dưới chân mặt băng liền bắt đầu kịch liệt lay động, xác thực nói, toàn bộ Băng Xuyên đại lục đều đang lắc lư.
-
-Bộp một tiếng, Trương Nhược Trần dưới chân mặt băng vỡ vụn.
-
-Vết nứt không ngừng mở rộng, hóa thành một đạo sông băng thâm cốc, một mực kéo dài đến ở ngoài mấy ngàn dặm.
-
-Toàn bộ Băng Xuyên đại lục, một phân thành hai.
-
-"Ầm ầm."
-
-Liệt diễm màu lửa đỏ quang vụ, từ thâm cốc dưới đáy truyền ra.
-
-Ngay sau đó, mảnh này Băng Xuyên đại lục lần nữa phá toái, biến thành mấy chục khối.
-
-Một con dị điểu màu lửa đỏ, từ Băng Xuyên đại lục phá toái vị trí trung tâm bay ra đứng lên. Nguyên bản, hai cánh của nó triển khai chỉ có dài ba thước, bay đến thiên khung đằng sau, lại là tăng trưởng 10 vạn lần không thôi.
-
-"Nó cuối cùng vẫn là trốn thoát."
-
-Trương Nhược Trần ngẩng đầu nhìn về phía trên không, toàn bộ tầm mắt đều bị dị điểu thân thể chiếm cứ, chỉ có thể nhìn thấy từng cây hỏa diễm lông vũ sơn nhạc khổng lồ như vậy, căn bản không nhìn thấy bầu trời, cũng nhìn không được đầy đủ thân thể của nó.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1286
-
-Chương 1283: Ba mạch vỡ vụn
-
-Trên thân dị điểu màu lửa đỏ phát ra liệt diễm khí tức, tựa như một vùng biển lửa, lơ lửng tại thiên khung, cùng phía dưới phá toái Băng Xuyên đại lục hình thành tươi sáng đối diện, xưng là băng hỏa lưỡng trọng thiên cũng không đủ.
-
-Vẻn vẹn chỉ là từ không trung rơi xuống khí tức cực lớn, chính là trấn áp đến Chư Thánh ở phía dưới không thể động đậy, trong đó một chút càng là nằm rạp trên mặt đất.
-
-"Thật đáng sợ."
-
-Ngao Tâm Nhan dốc hết toàn lực cũng vô pháp triển khai long dực màu bạc, hai vai cùng đỉnh đầu giống như đè ép trăm ngàn ngọn núi cao, căn bản không có cách nào đào tẩu.
-
-Trương Nhược Trần muốn vận dụng lực lượng không gian, lại phát hiện vùng thiên địa này không gian đều bị một cỗ lực lượng thần bí áp chế, kết cấu kiên cố, căn bản là không có cách vỡ ra, liền ngay cả Không Gian Đại Na Di cũng không thi triển ra được.
-
-Theo đại lục phá toái, từng khối vượt qua ngàn dặm dáng dấp sông băng tách rời mà ra.
-
-Tại sông băng bản khối ở giữa khe rãnh dưới đáy, từng đạo ngũ thải hà quang phóng lên tận trời, vô cùng rực rỡ màu sắc.
-
-Trong ngũ thải hà quang, không chỉ có có Hỗn Độn chi khí, cũng có Cực Âm Thiên Long Khí.
-
-Trong trận doanh triều đình, một vị Thánh Giả mặc màu đỏ trường bào, đứng tại sông băng bản khối biên giới, dính lên một sợi Cực Âm Thiên Long Khí, trong nháy mắt, thân thể liền bị đông kết thành một khối hàn băng hơn mười trượng cao.
-
-Bao quát Trì Vạn Tuế, Tư Mệnh Thần Nữ, Tuế Hàn, Vạn Hoa Ngữ, Bộ Thiên Phàm ở bên trong triều đình Chư Thánh, toàn bộ đều nhận dị điểu màu lửa đỏ khí tức áp chế, toàn thân không thể động đậy, chỉ có thể trơ mắt nhìn một mảnh ngũ thải hà quang, hướng bọn hắn trào lên đi.
-
-Một khi để ngũ thải hà quang cuồn cuộn cuốn tới, hơn 20 vị Thánh Giả toàn bộ đều phải chết.
-
-Vạn Triệu Ức trên thân toát ra lửa nóng hừng hực, một cỗ cuồn cuộn dương cương chi khí, từ thể nội, hướng ra phía ngoài tiêu tán, tránh thoát dị điểu màu lửa đỏ áp chế, vọt tới triều đình Chư Thánh phía trước, hai tay kết xuất chưởng ấn, hướng về phía trước vỗ.
-
-"Trở về."
-
-Hai đầu Hỏa Diễm Cự Long dài mấy trăm trượng, từ lòng bàn tay của hắn bay ra, đánh cho ngũ thải hà quang xoay chuyển trở về.
-
-Nơi xa, Trương Nhược Trần thấy cảnh này, trong lòng âm thầm thở dài, "Lợi hại, Vạn Triệu Ức không hổ là đệ nhất nhân trên « Anh Hùng Phú » , tu vi cùng thủ đoạn đều là cực kỳ cường hoành, vậy mà xông phá giữa thiên địa uy áp, còn có thể đánh ra thủ đoạn công kích."
-
-Thời khắc này Trương Nhược Trần, coi như toàn lực ứng phó cũng vô pháp tránh thoát dị điểu màu lửa đỏ uy áp, muốn động một chút ngón tay đều vô cùng khó khăn, cùng Vạn Triệu Ức chênh lệch quá lớn.
-
-Lôi Bộ Thiên Vương cầm trong tay chiến chùy, đứng lơ lửng giữa không trung , nói: "Tiểu Thánh Thiên Vương, ngươi dẫn bọn hắn rời đi trước nơi đây, lui đến càng xa càng tốt."
-
-"Được."
-
-Vạn Triệu Ức năm ngón tay bóp quyền, hướng phía dưới một kích, đem dưới chân sông băng bản khối lần nữa chấn vỡ.
-
-Bàn tay của hắn vung lên, nhấc lên một cơn lốc, bao trùm triều đình chư vị Thánh Giả, mang theo bọn hắn rơi xuống trên một khối băng dài đến 600 mét.
-
-Khối băng, tựa như là một đầu thuyền lớn, theo gió vượt sóng, hướng rời xa Di Khí Thâm Hải phương hướng đi thuyền.
-
-Cùng lúc đó, một phương hướng khác, Hạ vương gia mang theo Tề Sinh, Huỳnh Hoặc, Ma Thiên thái tử, Bạch Lê thái tử, Thôn Thiên Ma Long, Mãng Thập Tứ, khống chế lấy một mảnh khác sông băng, cũng tại cấp tốc thoát đi.
-— QUẢNG CÁO —
-
-Rất hiển nhiên, Bất Tử Huyết tộc, Tổ Long sơn, Cửu Lê cung, tam đại thế lực trong bóng tối đã đạt thành hợp tác hiệp nghị.
-
-Huỳnh Hoặc nhìn qua vẫn như cũ không cách nào động đậy Trương Nhược Trần bọn người, trên mặt ý cười, như là đang nhìn một đám người sắp chết.
-
-"Trương Nhược Trần, chúng ta đi trước một bước, ngươi liền lưu tại nơi này tiếp tục chờ chết đi! Ha ha!" Thôn Thiên Ma Long phát ra cười dài một tiếng.
-
-Mãng Thập Tứ hít một tiếng: "Đáng tiếc, trên người hắn có một kiện Thần Di Cổ Khí, nói không chắc sẽ theo hắn thi thể cùng một chỗ chìm vào Di Khí Thâm Hải đáy biển."
-
-Bọn hắn hiển nhiên là không có cách nào tiếp tục đi cướp đoạt bảo vật trên người Trương Nhược Trần, hiện tại, thoát đi nơi đây, giữ được tính mạng, mới là trọng yếu nhất sự tình.
-
-Thôn Thiên Ma Long, Bạch Lê hoàng tử, Tề Sinh nghe được Mãng Thập Tứ lời nói, đều là trong lòng hơi động.
-
-Một kiện Thần Di Cổ Khí có thể ngộ nhưng không thể cầu, liền xem như Bất Tử Huyết tộc, Tổ Long sơn, Cửu Lê cung Côn Lôn Giới cao cấp nhất thế lực như này, cũng không có mấy món.
-
-Lập tức, bọn hắn vội vàng sử dụng tinh thần lực truyền âm, đem Thần Di Cổ Khí tin tức truyền ra ngoài.
-
-Sau một khắc, Trương Nhược Trần cảm giác được rõ ràng, có mấy đạo cường đại tinh thần lực, từ trên người hắn lướt qua. Đứng tại bạch cốt tế đàn đỉnh chóp Trung Doanh Vương, càng là hướng hắn nhìn thoáng qua, vẻn vẹn chỉ là một đạo ánh mắt, cũng làm cho trong cơ thể Trương Nhược Trần kinh mạch, thánh mạch, huyết mạch toàn bộ sụp đổ.
-
-Ba mạch vỡ vụn đằng sau, thánh khí không cách nào tại thể nội vận chuyển, huyết dịch không cách nào tại thể nội chảy xuôi, Trương Nhược Trần chỉ cảm thấy lực lượng toàn thân đều biến mất không còn thấy bóng dáng tăm hơi, rốt cuộc không chịu nổi dị điểu màu lửa đỏ phát ra uy áp, miệng phun máu tươi, hướng về sau trùng điệp ngã trên mặt đất.
-
-Ở đây sinh linh, chí ít đều là Thánh Giả cảnh giới tu vi, nhãn lực cỡ nào nhạy cảm, bọn hắn tự nhiên minh bạch Trương Nhược Trần gặp cái gì.
-
-"Lần này Trương Nhược Trần xem như triệt để phế bỏ, nhìn hắn còn thế nào chạy ra Âm Dương Hải?"
-
-"Âm Dương Hải vốn nên là Trương Nhược Trần nơi táng thân."
-
-Thôn Thiên Ma Long cùng Bất Tử Huyết tộc mấy người, đều là lộ ra nụ cười hài lòng.
-
-Đi vào Âm Dương Hải, bọn hắn liền liên tiếp ở trong tay Trương Nhược Trần ăn thiệt thòi, hiện tại, rốt cục nhìn thấy hắn ngã xuống, tự nhiên là đại khoái nhân tâm.
-
-Tề Sinh hơi thở dài một hơi, chỉ từ Trương Nhược Trần xuất hiện đằng sau, liền như là một tòa núi lớn một dạng, ép tới hắn có chút thở không nổi, đem vốn hẳn nên thuộc về hắn khí vận cùng vinh quang đều cướp đi.
-
-Bây giờ, Trương Nhược Trần bị phế sạch, từ nay về sau, hắn chính là đệ nhất nhân trong Côn Lôn Giới tuổi trẻ Thánh Giả.
-
-Một sinh linh ba mạch hủy hết, coi như nuốt chữa thương thánh đan, cũng không có khả năng khôi phục lại.
-
-"Coi như Trương Nhược Trần có nghiêng trời lệch đất bản sự, tại trước mặt lực lượng tuyệt đối, cũng là không chịu nổi một kích. Sau ngày hôm nay, lại không Thời Không truyền nhân." Trong triều đình một vị Thánh Giả hít một tiếng.
-
-Vạn Hoa Ngữ cùng Bộ Thiên Phàm đều đã từng thiếu qua Trương Nhược Trần nhân tình, giờ phút này, ánh mắt của bọn hắn hết sức phức tạp, rất muốn giúp Trương Nhược Trần một tay.
-
-Thế nhưng là, lấy tu vi của bọn hắn, căn bản giúp không được gì.
-
-Lấy thân phận của bọn hắn, ở chỗ này, đầu tiên là không có quyền nói chuyện, thứ yếu là căn bản không dám mở miệng nói chuyện.
-
-Lôi Bộ Thiên Vương cùng Sát Tẫn Vương liền đứng giữa không trung, ai dám thay Trương Nhược Trần nói chuyện, không phải đang tự tìm đường chết?
-
-Vạn Triệu Ức cùng Hạ vương gia mang theo song phương trấn áp Thánh Giả, khống chế hai mảnh khối băng, cấp tốc đi xa, rất nhanh liền biến mất tại mặt biển cuối cùng.
-
-"Thật ác độc. . . Vì phòng ngừa ta đào tẩu, vậy mà hủy ta kinh mạch toàn thân, thánh mạch, huyết mạch, ban đầu ở Tư Không thiền viện, liền nên để Lan Du giết hắn."
-
-Trương Nhược Trần nằm tại mặt băng, chỉ cảm thấy toàn thân đau rát đau nhức.
-
-Trương Nhược Trần cũng không có nằm chờ chết, hai tay xiết chặt, cắn chặt răng răng, điều động thể nội thánh khí, muốn một lần nữa đứng lên.
-
-Thánh khí vừa mới tuôn ra khí hải, lập tức trong cơ thể hắn tán loạn, thân thể đều giống như muốn bạo liệt một dạng.
-
-Mất đi kinh mạch cùng thánh mạch, thánh khí căn bản là không có cách vận chuyển.
-
-Trương Nhược Trần vội vàng ngừng lại, thu hồi thánh khí.
-
-Giờ phút này, toàn thân hắn làn da đều biến thành màu đỏ, bởi vì huyết dịch không cách nào tại thể nội lưu chuyển. Nếu không phải, tu vi của hắn cường đại, nhục thân thành thánh, chỉ sợ thân thể đã bắt đầu hoại tử.
-
-Hoàng Yên Trần, Ngao Tâm Nhan đều tương đương lo lắng Trương Nhược Trần, thế nhưng là, các nàng đều bị dị điểu màu lửa đỏ thánh uy áp chế, toàn thân không thể động đậy, trong lòng vội vàng, nhưng lại không thể làm gì.
-
-"Hôm nay, thật chẳng lẽ phải chết ở chỗ này, thật sự là không cam tâm, còn có nhiều chuyện như vậy chờ lấy ta đi làm."
-
-Trương Nhược Trần cười khổ một tiếng, nhìn chằm chằm màu lửa đỏ bầu trời, chỉ gặp, từng đoàn từng đoàn hỏa diễm từ ở giữa lông vũ của dị điểu màu lửa đỏ rớt xuống, như là một trận mưa lửa, vô cùng mỹ lệ, nhưng lại ẩn chứa phần luyện một phiến thiên địa lực hủy diệt.
-
-"Soạt."
-
-Trong nước biển khoảng cách Trương Nhược Trần bọn người không xa, vang lên một đạo tiếng nước.
-
-Chỉ gặp, Tửu Phong Tử từ nước biển phía dưới lặng lẽ duỗi ra một cái đầu, xác nhận Trương Nhược Trần phương vị, mới bay ra mặt biển.
-
-"Theo ta đi."
-
-Tửu Phong Tử bắt lấy Trương Nhược Trần, chuẩn bị dẫn hắn rời đi.
-
-Trương Nhược Trần tương đương ngoài ý muốn, không nghĩ tới tham sống sợ chết Tửu Phong Tử, vậy mà như thế giảng nghĩa khí, tại hắn gặp phải kiếp nạn thời khắc, cũng không có ném hắn mặc kệ.
-
-"Mang lên các nàng cùng một chỗ." Trương Nhược Trần nói.
-
-"Thật sự là phiền phức."
-
-Tửu Phong Tử cánh tay duỗi ra, rách rưới ống tay áo chuyển động, hiện ra hắc khí, lập tức, Trương Nhược Trần, Hoàng Yên Trần, Ngao Tâm Nhan, Thanh Mặc đều bị hắn thu vào trong tay áo.
-— QUẢNG CÁO —
-
-
-Màu lửa đỏ dị điểu, tại thiên không xoay quanh, không hề rời đi, rất hiển nhiên cũng là đang chờ đợi dưới đáy Băng Xuyên đại lục món đồ kia xuất thế.
-
-Trung Doanh Vương một mực tại cảnh giác màu lửa đỏ dị điểu cùng triều đình hai vị Thiên Vương, thẳng đến Tửu Phong Tử đem Trương Nhược Trần bọn người thu nhập vào ống tay áo, mới phát giác được phía dưới biến cố.
-
-"Từ đâu tới đồ hỗn trướng, cũng dám cướp đoạt người bản vương muốn."
-
-Trung Doanh Vương song đồng mở to, lập tức, trong con mắt bay ra hai đạo cột sáng màu đỏ như máu, đánh về phía Tửu Phong Tử.
-
-"Ta đi."
-
-Tửu Phong Tử giật nảy mình, trên mặt biển phi nước đại, tốc độ nhanh chóng, thậm chí ngay cả hai đạo cột sáng màu đỏ như máu đều đuổi không kịp.
-
-Trung Doanh Vương âm thầm giật mình, ý thức được lão gia hỏa kia không phải một kẻ đơn giản, thế là, không thể không nghiêm túc, nâng lên một tay nắm, hướng hư không nhấn một cái.
-
-"Nhìn ngươi như thế nào chạy thoát được bản vương lòng bàn tay."
-
-Tửu Phong Tử trên đỉnh đầu, hiện ra một mảnh cuồn cuộn huyết vân, bao phủ phương viên mấy trăm dặm chi địa. Huyết vân, ngưng kết thành một cái dài trăm dặm đại thủ ấn, tựa như Thiên Thần duỗi ra một tay nắm, hướng phía dưới nén.
-
-Lôi Bộ Thiên Vương cùng Sát Tẫn Vương cũng nhìn về phía đang liều mạng chạy trốn Tửu Phong Tử, cho dù là bọn hắn cũng có chút ngoài ý muốn, đến cùng là ai, cũng dám tại dưới mí mắt Trung Doanh Vương "Trộm người" ?
-
-"Muốn hay không ác như vậy."
-
-Tửu Phong Tử hướng trên không huyết thủ ấn nhìn thoáng qua, thầm mắng một tiếng, lập tức, từ trong không gian giới chỉ lấy ra một cái xích hồng sắc kim loại bầu rượu. Bầu rượu, chỉ có cao hai tấc, tương đương tiểu xảo đẹp đẽ, cùng chén rượu cũng không có gì khác nhau.
-
-Mở ra bầu rượu, uống xong một ngụm rượu.
-
-Lập tức, Tửu Phong Tử trên thân toát ra cao mấy chục trượng hỏa diễm, tốc độ tăng vọt mấy chục lần, nhanh đến mức giống như một vệt ánh sáng, tại huyết thủ ấn rơi xuống trước đó, trước một bước liền xông ra ngoài, biến mất tại mặt biển cuối cùng.
-
-Trung Doanh Vương thoáng có chút thất thần, lão gia hỏa kia chạy trốn tốc độ không khỏi cũng quá nhanh, liền xem như lấy tu vi của hắn, cũng chỉ có thể cam bái hạ phong.
-
-Băng Xuyên đại lục dưới đáy món đồ kia sắp xuất thế, bởi vậy, Trung Doanh Vương không có tiếp tục đuổi giết đi lên.
-
-Tửu Phong Tử mang theo Trương Nhược Trần bọn người chạy ra Di Khí Thâm Hải, leo lên một chiếc Vong Linh cổ thuyền, mới là ngừng lại, đem bọn hắn bốn người từ trong tay áo phóng xuất.
-
-"Trương Nhược Trần, lão phu vì cứu các ngươi, thế nhưng là bỏ ra giá cả to lớn, ngươi tùy tiện xuất ra một chút đồ vật bồi thường lão phu là được. Tỉ như, Thủy Tinh Hồ Lô."
-
-Tửu Phong Tử ngược lại là rất không khách khí, trực tiếp liền lên tay, ở trên thân Trương Nhược Trần bốn phía sờ loạn, tìm kiếm Thủy Tinh Hồ Lô.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1287
-
-Chương 1284: Thần khí xuất thế
-
-Thủy Tinh Hồ Lô là Tiên Thiên Linh Bảo, có thể to như tinh thần, cũng có thể nhỏ như điểm sáng, một mực bị Trương Nhược Trần cất giữ trong khí hải, Tửu Phong Tử tự nhiên là không có tìm được.
-
-Trương Nhược Trần bị Tửu Phong Tử mò được rất khó chịu, đơn giản chính là cùng một cái lão vô lại, địa phương tư ẩn nào cũng dám sờ, một chút cố kỵ đều không có.
-
-Trương Nhược Trần trên trán toát ra một đống hắc tuyến, tức giận: "Ngươi phải thừa dịp cháy nhà hôi của sao?"
-
-"Lấy lão phu nhân phẩm cùng hành vi thường ngày, làm sao có thể làm ra chuyện như vậy? Ta lại không đoạt Thủy Tinh Hồ Lô, chỉ là muốn mò ra nhìn xem."
-
-Tửu Phong Tử một cái tay khô héo, luồn vào vạt áo Trương Nhược Trần, lần nữa sờ soạng đứng lên.
-
-"Lão Tửu Quỷ, Trương Nhược Trần bị thương rất nặng, tốt nhất cút cho ta xa một chút, đừng ép ta cùng ngươi liều mạng."
-
-Hoàng Yên Trần cũng không nhận ra Tửu Phong Tử, rút ra một thanh Thánh Kiếm, vung chém tới, lôi ra một đạo kiếm khí màu trắng.
-
-Tửu Phong Tử vội vàng hướng về sau nhanh chóng thối lui, tránh đi kiếm khí , nói: "Làm gì, muốn qua sông đoạn cầu sao? Vừa rồi, lão phu vì cứu các ngươi, đem trân tàng 200 năm một loại kỳ tửu đều uống xong, chẳng lẽ liền không thể hướng các ngươi yêu cầu một ít thù lao?"
-
-Thanh Mặc thật sự là có chút nhìn không được , nói: "Lão gia gia, Trương công tử thể nội huyết mạch, kinh mạch, thánh mạch đều bị chấn nát, quận chúa điện hạ là lo lắng ngươi làm bị thương hắn, cho nên mới sẽ ra tay với ngươi. Lại nói, ngươi cứ uống một bình rượu của mình, cũng không tính là đại giới lớn gì, không cần thiết công phu sư tử ngoạm hướng Trương công tử yêu cầu Thủy Tinh Hồ Lô bảo vật như vậy a?"
-
-"Một bầu rượu mà thôi?"
-
-Tửu Phong Tử tức giận đến đấm ngực dậm chân , nói: "Tiểu nha đầu, ngươi có biết hay không đó là một loại kỳ tửu, sau khi uống xong, có thể cho tu sĩ bộc phát ra mấy chục lần tốc độ, gặp được bất luận đại địch gì đều có thể đào tẩu. Lúc đầu, lão phu là chuẩn bị về sau thời điểm chính mình gặp được nguy hiểm, lại uống xuống chạy trốn, không nghĩ tới lại lãng phí ở trên thân các ngươi."
-
-Một bầu rượu, đại biểu một lần chạy trối chết thủ đoạn.
-
-Thanh Mặc vểnh vểnh lên miệng, nghiêng nghiêng khuôn mặt nhỏ nhắn trứng, cười nói: "Vừa rồi, ngươi không phải liền là gặp phải nguy hiểm, cũng coi là tại tự cứu."
-
-"Ta. . ."
-
-Tửu Phong Tử cảm thấy trước mắt cái nha đầu này hoàn toàn chính là không tim không phổi , nói: "Lão phu nếu không phải vì cứu các ngươi, làm sao lại cùng mấy nhân vật hung ác kia đối đầu? Thế nào lại gặp nguy hiểm? Làm sao lại uống xong ấm kỳ tửu kia? Cho nên tất cả căn nguyên, toàn bộ đều là bởi vì các ngươi."
-
-"Thật muốn truy cứu căn nguyên, vậy cũng không phải là bởi vì chúng ta." Thanh Mặc nói.
-
-Tửu Phong Tử cảm giác kinh ngạc , nói: "Không phải là bởi vì các ngươi?"
-
-Thanh Mặc mười phần nghiêm túc nhẹ gật đầu , nói: "Chúng ta tiến vào Âm Dương Hải mục đích, là giúp Tiểu Hắc tìm về bị phong ấn nhục thân. Nếu không phải bởi vì nó, chúng ta cũng sẽ không tiến vào Âm Dương Hải, càng thêm sẽ không gặp phải nguy hiểm. Cho nên, chân chính thiếu ngươi nhân tình, hẳn là nó. Ngươi có thể đi tìm nó đòi hỏi bồi thường."
-
-"Con Phì Miêu kia?"
-
-Tửu Phong Tử hơi sửng sốt, cẩn thận nghĩ nghĩ, nhẹ nhàng gật đầu, cảm thấy cái tiểu nha đầu này nói đến tựa hồ có mấy phần đạo lý. Nhưng là, hắn lại cảm thấy rất không thích hợp, đến cùng là lạ ở chỗ nào đâu?
-— QUẢNG CÁO —
-
-
-Hẳn là thật đi tìm con Phì Miêu kia lấy yêu cầu bồi thường?
-
-Hoàng Yên Trần kiểm tra Trương Nhược Trần tình trạng cơ thể, thương thế khá là nghiêm trọng, cơ hồ không có phục hồi như cũ khả năng.
-
-Đối với một thiên tài tâm tính kiêu ngạo mà nói, tu vi bị phế, là một sự tình sống không bằng chết. Rất nhiều người đều lại bởi vì không thể nào tiếp thu được sự thật này, mà cam chịu, thậm chí lựa chọn tự sát.
-
-"Trương Nhược Trần. . ."
-
-Hoàng Yên Trần hai mắt phiếm hồng, lệ quang lấp lóe, có chút lo lắng Trương Nhược Trần cũng sẽ bước những tiền nhân kia đường lui.
-
-Trương Nhược Trần gian nan giật giật bờ môi, lộ ra một đạo ý cười , nói: "Ta lại không có chết, khóc cái gì khóc? Trong không gian giới chỉ có Phùng Xuân Đan, giúp ta lấy ra một hạt."
-
-Hoàng Yên Trần lắc đầu , nói: "Không được, trong cơ thể ngươi kinh mạch cùng thánh mạch toàn bộ đều đã vỡ vụn, ăn vào Phùng Xuân Đan, đan khí phát ra, căn bản là không có biện pháp tại thể nội vận chuyển, sẽ chỉ bốn phía tán loạn, ngược lại sẽ để cho ngươi thân thể tổn thương trở nên càng thêm nghiêm trọng."
-
-"A, đúng a, ta đã không có kinh mạch cùng thánh mạch, căn bản không có cách nào vận chuyển thánh khí." Trương Nhược Trần cười cười, không có lộ ra sa sút cảm xúc, tận lực để cho mình bảo trì một loại bình hòa tâm tính.
-
-Hoàng Yên Trần ý thức được mình nói sai, vội vàng nói: "Ngươi đừng nghĩ nhiều, trở lại Đệ Nhất Trung Ương đế quốc, ta nhất định mời tốt nhất Đan Dược sư, giúp ngươi tục tiếp thể nội ba mạch."
-
-Ngao Tâm Nhan hàm răng nhẹ nhàng cắn môi đỏ , nói: "Tổ trưởng, cùng ta về Thần Long Bán Nhân tộc, ta nhất định khiến người đi tìm kiếm tốt nhất thánh dược chữa thương, vô luận bỏ ra bao lớn đại giới, cũng muốn đưa ngươi thương thế chữa cho tốt."
-
-Thân thể của mình, Trương Nhược Trần so với ai khác đều càng rõ ràng hơn, ba mạch vỡ vụn còn muốn khôi phục như lúc ban đầu, cơ hồ là việc không thể nào, trừ phi xuất hiện kỳ tích.
-
-Tửu Phong Tử đi tới, ánh mắt phức tạp nhìn Trương Nhược Trần xem nằm tại trong ngực Hoàng Yên Trần, vừa rồi, mặt ngoài hắn là đang tìm kiếm Thủy Tinh Hồ Lô, trên thực tế, đã đem Trương Nhược Trần thương thế kiểm tra một lần.
-
-Hắn nói: "Tiểu tử, lão phu nhận biết một vị Đan Đạo Thánh Sư, quan hệ tâm đầu ý hợp, hiện tại chúng ta liền đi tìm hắn, lão gia hỏa kia y thuật tại toàn bộ Côn Lôn Giới đều có thể đứng hàng danh hào, nói không chắc có thể làm cho ngươi khôi phục như lúc ban đầu."
-
-Ngao Tâm Nhan cùng Hoàng Yên Trần đều là nhãn tình sáng lên, hướng Tửu Phong Tử nhìn chằm chằm đi qua.
-
-Hoàng Yên Trần thái độ đối với Tửu Phong Tử phát sinh một trăm tám mươi độ bước ngoặt lớn , nói: "Tiền bối thật nhận biết một vị Đan Đạo Thánh Sư?"
-
-Chỉ có nhân vật đem tinh thần lực cường độ, tu luyện tới cấp 55 trở lên, đồng thời, tại trên Đan Đạo có được thành tựu cực cao, mới có tư cách xưng là Đan Đạo Thánh Sư.
-
-Mỗi một vị Đan Đạo Thánh Sư thân phận địa vị, cũng là có thể cùng Thánh Vương đánh đồng, muốn tìm được một vị cũng không phải một chuyện dễ dàng.
-
-Huống hồ, coi như tìm tới một vị, người khác cũng chưa chắc sẽ cho một cái Thánh cảnh tiểu bối trị liệu.
-
-Tửu Phong Tử di nhiên tự đắc cười một tiếng , nói: "Lão phu bằng hữu mặc dù không nhiều, thế nhưng là, lại đều có bản lĩnh thật sự. Lúc còn trẻ, lão phu cùng vị Đan Đạo Thánh Sư kia thân như huynh đệ, chỉ cần là lão phu mở miệng, hắn khẳng định sẽ cho Trương Nhược Trần trị liệu."
-
-"Lúc còn trẻ thân như huynh đệ, hiện tại thế nào?"
-
-Ngao Tâm Nhan cảm thấy Tửu Phong Tử có chút không đáng tin cậy, muốn hỏi thăm rõ ràng.
-
-Tửu Phong Tử hơi dừng một chút, cười nói: "Tự nhiên là so huynh đệ còn muốn thân. Đi thôi, tin tưởng lão phu, lấy Đan Đạo Thánh Sư thủ đoạn, coi như Trương Nhược Trần ba mạch vỡ vụn, cũng không phải không thể tục tiếp."
-
-"Ầm ầm."
-
-Một cỗ cường đại vô cùng thánh khí ba động, từ trong Di Khí Thâm Hải truyền tới, chấn động đến Vong Linh cổ thuyền đều mãnh liệt lay động một cái.
-
-"Rốt cục bộc phát đại chiến sao?"
-
-Trương Nhược Trần để Hoàng Yên Trần đỡ lấy hắn đứng dậy, nhìn ra xa phương hướng Di Khí Thâm Hải.
-
-Bầu trời hoàn toàn bị hỏa diễm bao trùm, biến thành xích hồng sắc, kịch liệt thánh khí ba động, chính là từ trong hỏa vân dũng mãnh tiến ra, cho dù cách xa nhau xa xôi như thế khoảng cách, cũng làm cho lòng người kinh lạnh mình.
-
-Trên mặt biển sóng nước càng ngày càng cao, như là muốn đem Vong Linh cổ thuyền đều muốn lật tung.
-
-Trong lúc mơ hồ, đám người trông thấy, trên mặt biển dâng lên một tòa sơn phong khổng lồ vô cùng, tản mát ra năm màu quang hoa, tách ra ánh lửa, khiến cho toàn bộ Âm Dương Hải đều biến thành năm màu.
-
-"Làm sao đột nhiên toát ra một ngọn núi to lớn như vậy? Chúng ta đều đã đi vào bên ngoài Di Khí Thâm Hải, còn có thể nhìn thấy sơn phong hình dáng, ngọn núi kia đến đến cỡ nào cao ngất, nguy nga?"
-
-Tửu Phong Tử trừng lớn một đôi mắt hạt châu, nhìn chằm chằm ngọn núi kia hư ảnh, luôn cảm giác có điểm giống là một tòa tháp.
-
-Thế nhưng là, quá xa, căn bản thấy không rõ.
-
-Thời khắc này Trương Nhược Trần, Ngao Tâm Nhan, Hoàng Yên Trần, Thanh Mặc đều chấn kinh đến tột đỉnh, trợn mắt hốc mồm, liền hô hấp cũng không thể, thật chẳng lẽ chính là trong truyền thuyết Thần Long Nhật Nguyệt Hỗn Độn Tháp xuất thế?
-
-Một kiện Thần khí xuất thế, tuyệt đối là kinh thiên sự kiện lớn, đủ để cải biến Côn Lôn Giới hiện tại cách cục.
-
-Tin tức truyền đi, lập tức liền có thể chấn động thiên hạ.
-
-Tửu Phong Tử hai mắt tỏa ánh sáng, lộ ra nóng bỏng thần sắc, không ngừng xoa tay , nói: "Có thể hấp dẫn Trung Doanh Vương, Lôi Bộ Thiên Vương, Sát Tẫn Vương những kẻ tàn nhẫn này tiến vào Di Khí Thâm Hải, khẳng định là có bảo vật khó lường xuất thế, rốt cuộc là thứ gì, liền ngay cả lão phu đều có chút muốn trở về nhìn một chút, nói không chắc có thể nhặt nhạnh chỗ tốt."
-
-Tửu Phong Tử phát giác được Trương Nhược Trần đám người thần sắc có chút không đúng, hồ nghi nói: "Các ngươi có phải hay không biết một chút cái gì? Các ngươi tiến vào Âm Dương Hải, thật chỉ là giúp con Phì Miêu kia tìm kiếm nhục thân?"
-
-Trương Nhược Trần chuẩn bị giấu diếm đi qua, không hy vọng Tửu Phong Tử biết Thần Long Nhật Nguyệt Hỗn Độn Tháp tin tức.
-— QUẢNG CÁO —
-
-
-Tửu Phong Tử nếu là biết Thần Long Nhật Nguyệt Hỗn Độn Tháp xuất thế, chỗ nào còn đuổi theo rời đi Âm Dương Hải, khẳng định sẽ đi tranh đoạt. Cùng Trung Doanh Vương cùng Sát Tẫn Vương nhân vật như vậy tranh đoạt Thần khí, không thể nghi ngờ là đoạt thức ăn trước miệng cọp, hơi không cẩn thận liền sẽ vẫn lạc.
-
-Trương Nhược Trần còn chưa mở lời, Thanh Mặc lại trước một bước nói ra: "Đó là Thần Long Nhật Nguyệt Hỗn Độn Tháp."
-
-"Cái gì?"
-
-Tửu Phong Tử tròng mắt đều muốn rớt xuống đất, hét lên một tiếng, tiến lên bắt lấy bả vai Thanh Mặc, lời nói không có mạch lạc nói: "Tiểu. . . Tiểu nha đầu. . . Ngươi mới vừa nói cái gì?"
-
-"Thần Long Nhật Nguyệt Hỗn Độn Tháp."
-
-Thanh Mặc không có cảm thấy chỗ nào không ổn, lặp lại một câu, lại nói: "Tiểu Hắc nói, một trong thập đại Thần Khí Thần Long Nhật Nguyệt Hỗn Độn Tháp ngay tại Âm Dương Hải. Di Khí Thâm Hải trung tâm, toà sơn phong trồi lên mặt biển kia thực sự quá to lớn, phát ra khí tức quá kinh khủng, khẳng định là Thần Long Nhật Nguyệt Hỗn Độn Tháp xuất thế."
-
-Tửu Phong Tử kích động đến run rẩy, cười như điên nói: "Ta liền nói mấy nhân vật hung ác kia làm sao lại bốc lên tử vong nguy hiểm tiến vào Âm Dương Hải, nguyên lai là vì Thần Long Nhật Nguyệt Hỗn Độn Tháp. Các ngươi làm sao không nói sớm?"
-
-Trương Nhược Trần nhìn ra Tửu Phong Tử muốn trở về Di Khí Thâm Hải, vội vàng nhắc nhở một câu: "Thần khí xuất thế, khẳng định sẽ dẫn tới một trận gió tanh mưa máu, coi như may mắn đoạt tới tay, cũng chưa hẳn là một chuyện tốt."
-
-"Lão phu đương nhiên minh bạch, thế nhưng là, một kiện Thần khí trong truyền thuyết ngay tại trước mặt, lão phu lại ngay cả nó hình dạng thế nào đều không có thấy rõ liền rời đi, khẳng định sẽ hối hận cả một đời."
-
-Tửu Phong Tử lấy ra một khối cổ ngọc màu vàng, đưa cho Trương Nhược Trần, lại nói cho Trương Nhược Trần một cái địa danh, để hắn chính mình đi tìm vị Đan Đạo Thánh Sư kia.
-
-"Hoa —— "
-
-Tửu Phong Tử bay lên đứng lên, hóa thành một đạo lưu quang, hướng Di Khí Thâm Hải chỗ sâu phóng đi.
-
-Trương Nhược Trần nắm vuốt màu vàng cổ ngọc, nhìn chằm chằm Tửu Phong Tử bóng lưng, lại hướng nơi xa trên mặt biển hình "Núi" hình dáng nhìn chằm chằm một chút, cuối cùng chỉ là nhẹ nhàng thở dài.
-
-Đối mặt một kiện Thần khí, ai có thể không động tâm?
-
-Nếu không phải tu vi quá thấp, Hoàng Yên Trần cùng Ngao Tâm Nhan đoán chừng cũng sẽ xông vào tiến Di Khí Thâm Hải tìm vận may. Vạn nhất vận khí tốt, may mắn đạt được Thần Long Nhật Nguyệt Hỗn Độn Tháp đây?
-
-Tửu Phong Tử tâm tình, đám người tự nhiên cũng đều có thể lý giải.
-
-Vong Linh cổ thuyền khởi động, mở ra từng tầng từng tầng sóng nước, dần dần rời xa Di Khí Thâm Hải.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1288
-
-Chương 1285: Chạy ra Âm Dương Hải
-
-Di Khí Thâm Hải phương hướng, không ngừng truyền ra đinh tai nhức óc tiếng oanh minh, giống như từng đạo Thiên Lôi, khiến cho Âm Dương Hải nước biển mãnh liệt quay cuồng.
-
-Đám sinh linh kia thực lực quá cường đại, có được năng lực phiên giang đảo hải, nếu là, Trương Nhược Trần bọn người còn tại Di Khí Thâm Hải, vẻn vẹn chỉ là chiến đấu phát ra dư ba, cũng có thể để bọn hắn tan thành mây khói.
-
-"Cũng không biết ai có thể đoạt đến Thần Long Nhật Nguyệt Hỗn Độn Tháp? Nếu để cho Tổ Long sơn, hoặc là Bất Tử Huyết tộc đạt được, lập tức liền sẽ cải biến Côn Lôn Giới hiện tại cách cục, toàn bộ Nhân tộc đều sẽ vô cùng nguy hiểm." Hoàng Yên Trần lầu bầu nói.
-
-Thanh Mặc đôi mắt nháy, nhìn qua bầu trời màu lửa đỏ: "Ta bỗng nhiên nhớ ra, Bất Tử Điểu cách mỗi năm ngàn năm liền sẽ tự thiêu mà chết, mỗi chết một lần, đều giống như một lần tân sinh. Tiểu Hắc rất có thể chính là Bất Tử Điểu, chỉ bất quá, nó sau khi dục hỏa trùng sinh, khí tức trên thân trở nên cùng trước kia hoàn toàn khác biệt."
-
-"Bất Tử Điểu? Ngươi nói là, dị điểu màu lửa đỏ kia, chính là trong truyền thuyết Bất Tử Điểu?" Ngao Tâm Nhan lộ ra kinh ngạc thần sắc.
-
-Thanh Mặc nhẹ gật đầu , nói: "Ta từng tại trên sách thấy qua liên quan tới Bất Tử Điểu ghi chép, có thể khẳng định, nó chính là một con Bất Tử Điểu."
-
-Nghe được Thanh Mặc lời nói, Trương Nhược Trần cũng cẩn thận hồi tưởng, nhớ lại một chút liên quan tới Bất Tử Điểu tin tức.
-
-Dị điểu màu lửa đỏ kia, nếu như thật là Bất Tử Điểu, như vậy nó thật là có có thể là Tiểu Hắc nhục thân.
-
-Đầu tiên, trên cầu đá đóng băng nhiều như vậy sinh linh, lại duy chỉ có nó tỉnh lại, khẳng định là có ngoại lực kích thích nó. Nói không chắc, chính là Tiểu Hắc thánh hồn, tiến nhập xác chim thể nội.
-
-Thứ yếu, Bất Tử Điểu thức tỉnh một khắc này, chính là thời điểm cảm ứng ở giữa Trương Nhược Trần cùng Tiểu Hắc biến mất, không khỏi cũng quá đúng dịp a?
-
-Trương Nhược Trần nói: "Coi như Bất Tử Điểu thật là Tiểu Hắc, đối với chúng ta mà nói, cũng chưa hẳn là một chuyện tốt. Trước kia, Tiểu Hắc sở dĩ nghe theo ý chí của ta làm việc, đó là bởi vì ta nắm trong tay Càn Khôn Thần Mộc Đồ, có thể khắc chế nó. Mà lại, nó cũng cần mượn nhờ lực lượng của ta, giúp nó tìm kiếm nhục thân. Bây giờ, nó chặt đứt cùng Càn Khôn Thần Mộc Đồ ở giữa liên hệ, triệt để thoát ly khỏi đi, lại có lực lượng cường đại như thế, ai còn có thể áp chế được nó?"
-
-Tu Di Thánh Tăng sẽ đem Tiểu Hắc nhục thân phong ấn đến Âm Dương Hải cùng Càn Khôn Thần Mộc Đồ, khẳng định là có nguyên nhân, gia hoả kia năm đó tuyệt đối không phải loại thiện nam tín nữ gì. Nói không chắc, thật như nó chính mình nói như vậy, đã từng tàn sát thương sinh, làm hại nhân gian, giết rồng lấy gan, phần thiên chử hải.
-
-"Vô luận Bất Tử Điểu có phải hay không Tiểu Hắc, chúng ta cũng không thể đối với nó ôm hi vọng quá lớn. Tại trong mắt nó cường giả như vậy, hiện tại chúng ta, cùng một bầy kiến hôi cũng không có gì khác nhau. Mau rời khỏi Âm Dương Hải, giữ được tính mạng mới là chính sự." Hoàng Yên Trần nói ra.
-
-Ba mạch vỡ vụn, Trương Nhược Trần không cách nào vận dụng Võ Đạo lực lượng, cũng vô pháp vận dụng nhục thân lực lượng, có thể, còn có cường đại tinh thần lực.
-
-Trương Nhược Trần từ đầu đến cuối đều không có từ bỏ, ý chí kiên định, điều động tinh thần lực, tại thể nội, cưỡng ép tạo dựng ra từng đầu hư ảo huyết mạch.
-
-Không phải chân chính huyết mạch, chỉ là từng cây vô hình mạch máu, có thể cho thể nội huyết dịch một lần nữa lưu động đứng lên, để thân thể kết cấu cùng tổ chức lần nữa khôi phục một chút hoạt tính.
-
-Đương nhiên, nhân thể huyết mạch khá phức tạp, bao quát ức vạn đầu mao mạch mạch máu, lấy Trương Nhược Trần hiện tại cấp 51 cường độ tinh thần lực, chỉ là tạo dựng ra trọn bộ huyết mạch hệ thống một hai thành mà thôi.
-
-Chỉ có gặp được càng cường đại hơn Tinh Thần Lực Thánh Giả, mới có thể một lần nữa giúp hắn tạo nên ra hoàn chỉnh huyết mạch hệ thống.
-
-Hiện tại, Trương Nhược Trần huyết mạch trong cơ thể hệ thống tương đương yếu ớt, nhất định phải tùy thời tùy chỗ sử dụng tinh thần lực duy trì, mất đi tinh thần lực chèo chống, trong nháy mắt liền sẽ vỡ nát.
-— QUẢNG CÁO —
-
-
-Thời gian dần trôi qua, làn da màu đỏ ngòm, dần dần khôi phục bình thường nhan sắc.
-
-Đồng thời, hắn có thể bằng vào lực lượng của mình, bảo trì đứng thẳng cùng hành tẩu, cùng một cái bình thường tu sĩ không hề khác gì nhau.
-
-"Tranh thủ thời gian nằm xuống, lấy tình trạng của ngươi bây giờ, tuyệt đối không nên gượng chống." Hoàng Yên Trần nói.
-
-Trương Nhược Trần cười lắc đầu, lấy ra Thánh Ngọc cùng Thánh Thạch, tại Vong Linh cổ thuyền boong thuyền bố trí truyền tống trận.
-
-"Triều đình cùng Bất Tử Huyết tộc tu sĩ, khẳng định biết ta trốn ra Di Khí Thâm Hải, bằng vào ta trạng thái hiện tại, không có cách nào cùng bọn hắn giao thủ, chỉ có thể bằng tốc độ nhanh nhất rời đi Âm Dương Hải, tránh đi bọn hắn."
-
-Trương Nhược Trần trạng thái hiện tại, so với hắn trong tưởng tượng còn bết bát hơn, vẻn vẹn chỉ là kiên trì nửa canh giờ, liền mệt mỏi không được, không thể không ngồi xuống nghỉ ngơi.
-
-Sau đó, Trương Nhược Trần ngồi ở một bên chỉ đạo, do Hoàng Yên Trần cùng Ngao Tâm Nhan đi sắp đặt Thánh Ngọc cùng Thánh Thạch, chỉ có khắc hoạ không gian trận pháp Minh Văn thời điểm, hắn mới có thể tự mình động thủ.
-
-Một tòa Không Gian Truyền Tống Trận, ròng rã tốn hao hai ngày một đêm mới bố trí thành công, may mà chính là, trong khoảng thời gian này cũng không có gặp được Bất Tử Huyết tộc cùng nhân mã của triều đình.
-
-Trong Di Khí Thâm Hải chiến đấu, vẫn không có kết thúc, đánh cho thiên hôn địa ám, ai cũng không biết kết cục sẽ như thế nào.
-
-"Hoa —— "
-
-Không gian trận pháp vận chuyển lại, tản mát ra hào quang rực rỡ.
-
-Chờ đến quang mang tiêu tán, Trương Nhược Trần bọn người vẫn như cũ đứng tại trong trận pháp, thế nhưng là, đã không ở trên Vong Linh cổ thuyền, vượt qua một mảnh bát ngát hải vực, đi vào Âm Dương Hải biên giới.
-
-Tiến vào Âm Dương Hải trước đó, Trương Nhược Trần ngay ở chỗ này bố trí một tòa Không Gian Truyền Tống Trận, không nghĩ tới thật xếp lên công dụng.
-
-"Chúng ta hẳn là so với bọn hắn đi trước ra Âm Dương Hải, hiện tại liền rời đi." Trương Nhược Trần nói.
-
-Không có một tia dừng lại, Trương Nhược Trần một đoàn người thông qua lỗ sâu không gian, một lần nữa trở lại Thần Mộng trạch phụ cận Man Hoang vùng núi.
-
-"Tổ trưởng, ngươi cùng ta cùng đi một chuyến Thần Long Bán Nhân tộc, trong tộc có lẽ có thánh dược có thể giúp ngươi chữa thương." Ngao Tâm Nhan nói ra.
-
-Thần Mộng trạch, vốn là thánh địa cực kỳ màu mỡ, hàng năm đều sẽ đản sinh ra một chút hi hữu thánh dược, Thần Long Bán Nhân tộc một mực chiếm cứ tại Thần Mộng trạch, trong bảo khố bọn hắn, không nhất định thật có thánh dược có thể trợ giúp tu sĩ tục tiếp ba mạch.
-
-Trương Nhược Trần không muốn từ bỏ bất luận cái gì một tia hi vọng, thế là, đi theo Ngao Tâm Nhan cùng một chỗ, tiến vào Thần Mộng trạch, lần nữa đi vào đầm lầy nội địa Long Linh đảo.
-
-Biết được Trương Nhược Trần gặp phải, Thần Long Bán Nhân tộc tộc trưởng Ngao Dịch thở dài trong lòng, vốn là một vị tuyệt thế kỳ tài, tương lai có khả năng sẽ trở thành Đế Hoàng cấp bậc tồn tại, nhưng không có nghĩ đến vậy mà chết yểu.
-
-Ba mạch vỡ vụn, không có khả năng còn có cơ hội khôi phục.
-
-Đương nhiên, Ngao Dịch cũng không phải một người ánh mắt thiển cận, cũng không có bởi vì Trương Nhược Trần mất đi trưởng thành là cường giả Chí Tôn tiềm lực, liền đem hắn cự tại ngoài cửa.
-
-Chí ít, lần này tiến vào Âm Dương Hải, Ngao Tâm Nhan đích thật là tu vi đột nhiên tăng mạnh, đã đạt tới Thánh cảnh, đồng thời còn đem Chân Long Chi Thể tu luyện tới đại thành.
-
-Đây hết thảy đều là bái Trương Nhược Trần ban tặng, Thần Long Bán Nhân tộc cũng coi là thiếu hắn một nhân tình không nhỏ.
-
-Ngao Dịch hạ lệnh , nói: "Ngao Chiến, ngươi đi đem vạn năm Đoạn Tục Kim Liên cùng Ngân Tuyến Thánh Đằng mang tới, đưa cho Trương Nhược Trần."
-
-Đoạn Tục Kim Liên cùng Ngân Tuyến Thánh Đằng đều là trị liệu kinh mạch cùng Thánh Mạch bảo dược, sinh trưởng vạn năm trở lên, dược lực cường đại, mười phần hiếm thấy.
-
-Có thể xuất ra hai gốc thánh dược này đi ra, Ngao Dịch vẫn rất có thành ý.
-
-"Đa tạ tộc trưởng." Trương Nhược Trần ôm quyền nói ra.
-
-Hai gốc thánh dược kia đích thật là có tục tiếp kinh mạch cùng thánh mạch dược lực, thế nhưng là, Trương Nhược Trần kinh mạch cùng thánh mạch cũng không phải là gãy mất, mà là toàn bộ vỡ vụn, ngay cả một đoạn hoàn hảo kinh mạch cùng thánh mạch đều không có bảo tồn lại.
-
-Coi như ăn vào hai gốc thánh dược, cũng sẽ không có quá lớn hiệu quả.
-
-Ngao Dịch tự nhiên là biết điểm này, thở dài: "Lão phu có thể làm, cũng chỉ có nhiều như vậy. Trương Nhược Trần, ngươi tiếp xuống có tính toán gì? Nếu là không có khác chỗ đi, liền lưu tại Thần Long Bán Nhân tộc dưỡng thương. Mặc dù, Thần Long Bán Nhân tộc không tính là đứng đầu nhất thế lực, nhưng là, cũng có thủ đoạn tự vệ, không phải là người nào đều có thể xông được tiến đến."
-
-Ngao Tâm Nhan ngay cả vội vàng nói: "Tổ trưởng, gia gia nói không sai, ngươi liền lưu tại Thần Mộng trạch an tâm dưỡng thương, ta hiện tại liền phái người đi Bắc Vực xin mời vị Đan Đạo Thánh Sư kia đến Thần Mộng trạch."
-
-Tửu Phong Tử nói tới vị Đan Đạo Thánh Sư kia, ở tại Bắc Vực, cùng Thần Mộng trạch cách xa nhau vô cùng xa xôi khoảng cách. Ngao Tâm Nhan lo lắng Trương Nhược Trần trên đường gặp được ngoài ý muốn, muốn đem hắn lưu lại.
-
-Trương Nhược Trần cừu gia thực sự quá nhiều, một khi biết hắn ba mạch tẫn phế, khẳng định có rất nhiều người sẽ đi giết hắn, cướp đoạt bảo vật trên người hắn.
-
-Từ Đông Vực đi Bắc Vực, đường xá xa xôi, coi như ẩn tàng đến cho dù tốt, cũng có khả năng sẽ bị phát hiện.
-
-Trương Nhược Trần nhẹ nhàng lắc đầu , nói: "Ta lưu tại Thần Long Bán Nhân tộc, chỉ làm cho các ngươi rước lấy bất tận mầm tai vạ."
-— QUẢNG CÁO —
-
-Lúc trước, Ngao Dịch chỉ là trên lễ tiết giữ lại Trương Nhược Trần, cũng không phải là thật hi vọng Trương Nhược Trần lưu tại Thần Mộng trạch. Trương Nhược Trần đắc tội cường địch quá nhiều, Tổ Long sơn, Cửu Lê cung, Bất Tử Huyết tộc, còn có trong Nhân tộc một chút thế lực , bất kỳ một cái nào thế lực đều có được thực lực tiêu diệt Thần Long Bán Nhân tộc.
-
-Trương Nhược Trần chính là nhìn ra điểm này, cho nên, mới dự định rời đi.
-
-Ngao Tâm Nhan muốn lần nữa giữ lại, Trương Nhược Trần lại đánh gãy nàng, cười nói: "Công chúa điện hạ sẽ không thật cho là ta đã là một người phế nhân a? Yên tâm , bình thường địch nhân, còn không làm gì được ta. Lại nói, có Yên Trần cùng Thanh Mặc cùng ta đồng hành, ai có thể làm gì ta?"
-
-Ngao Tâm Nhan biết lưu không được Trương Nhược Trần, thế là, hạ một cái quyết định , nói: "Ta đi chung với ngươi Bắc Vực, vô luận như thế nào, cũng muốn đưa ngươi thương thế chữa cho tốt."
-
-Ngao Dịch tự nhiên là sẽ không để Ngao Tâm Nhan rời đi, để nàng cùng Trương Nhược Trần cùng đi Bắc Vực thực sự quá nguy hiểm, đang muốn mở miệng đưa nàng lưu lại. . .
-
-"Ầm ầm."
-
-Thông hướng Âm Dương Hải lỗ sâu không gian phương hướng, truyền ra một đạo kinh thiên động địa thanh âm.
-
-Thần Long đại điện hơi rung nhẹ một chút, Thần Mộng trạch nước hồ, càng là nhấc lên mười mấy mét cao sóng nước, trong phương viên mấy vạn dặm thiên địa linh khí đều đang chấn động.
-
-Chuyện gì xảy ra?
-
-"Chẳng lẽ mấy nhân vật hung ác kia, từ trong Âm Dương Hải lui đi ra?"
-
-Trương Nhược Trần, Hoàng Yên Trần, Thanh Mặc, Ngao Tâm Nhan lập tức đi ra Thần Long đại điện, đi vào một chỗ địa thế tương đối cao vị trí, nhìn ra xa Man Hoang bí cảnh phương hướng.
-
-Thanh âm mới vừa rồi, đích thật là từ trống rỗng trùng động phương hướng truyền tới.
-
-Bỗng dưng, một mảnh đám mây màu đỏ như máu, từ không trung bay qua. Trong huyết vân, có một tòa rách rưới bạch cốt tế đàn, Trung Doanh Vương đứng tại trên tế đàn, toàn thân đều là vết thương, đang liều mạng hướng nơi xa đào vong.
-
-"Lấy Trung Doanh Vương tu vi, vậy mà bị thương nặng như vậy, đến cùng là ai đem hắn đả thương?" Trương Nhược Trần có chút giật mình.
-
-Lấy Trung Doanh Vương tu vi, coi như không đoạt tới được Thần Long Nhật Nguyệt Hỗn Độn Tháp, thế nhưng là, toàn thân trở ra hẳn không phải là việc khó. Nhưng mà, hắn lại bị đánh cho gần chết, bạch cốt tế đàn đều bị đánh rách rưới.
-
-Chẳng lẽ có người đoạt lấy Thần Long Nhật Nguyệt Hỗn Độn Tháp, vận dụng Thần khí lực lượng?
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1289
-
-Chương 1286: Long Vương chi uy
-
-Trung Doanh Vương trong tay nắm giữ bạch cốt tế đàn cùng Bách Thánh Huyết Khải, đã có thể bộc phát ra không có gì sánh kịp công kích, cũng có được lực phòng ngự cường đại, đồng thời còn đem Bất Tử Huyết tộc đệ nhất chưởng pháp "Hoàn Vũ Thần Bi Chưởng" tu luyện tới đại thành, nhân vật như vậy, tại dưới Đại Thánh, có thể xưng vô địch.
-
-Cũng không phải là mỗi người đều có Khổng Lan Du tu vi cao thâm như vậy, muốn đem Trung Doanh Vương trọng thương đến trình độ như vậy, nói nghe thì dễ?
-
-Trương Nhược Trần trước tiên liền nghĩ đến, có người thu phục Thần Long Nhật Nguyệt Hỗn Độn Tháp, vận dụng Thần khí sức mạnh vô thượng, trọng thương Trung Doanh Vương, làm cho hắn chạy ra Âm Dương Hải.
-
-Như vậy, sẽ là ai đoạt đến Thần Long Nhật Nguyệt Hỗn Độn Tháp?
-
-Trong Man Hoang bí cảnh, có năng lượng ba động cường đại tiếp tục không ngừng truyền tới, từng tòa sơn phong đều tại lay động, phi cầm tẩu thú toàn bộ đều đang chạy trốn, khoảng cách gần nhất Thần Mộng trạch, càng là đụng phải trực tiếp nhất trùng kích.
-
-Bầu trời mây đen dày đặc, thỉnh thoảng liền có lôi điện xuyên thẳng qua mà qua, phát ra "Đùng đùng" tiếng nổ lớn. Gió lớn ào ạt, phát ra thanh âm ô ô, giống như Mãng Hoang cự thú đang gầm thét.
-
-Thần Long Bán Nhân tộc tộc nhân, chỉ cảm thấy tận thế hàng lâm đồng dạng, dọa đến nhiếp nhiếp phát run.
-
-Lúc trước, Ngao Dịch đã nghe Ngao Tâm Nhan nói qua, các đại thế lực cự phách ở trong Âm Dương Hải tranh đoạt Thần khí, giờ phút này, trong Man Hoang lại truyền vào năng lượng ba động kịch liệt như thế, hắn tự nhiên cũng liền có chút nơm nớp lo sợ, sợ những kẻ tàn nhẫn kia chiến đấu lan tràn đến Thần Mộng trạch.
-
-"Đem tất cả phòng ngự đại trận toàn bộ mở ra."
-
-"Hoa —— "
-
-Liên miên tám vạn dặm Thần Mộng trạch, dâng lên từng cây quang trụ, tất cả trận pháp toàn bộ đều kích hoạt, hình thành lồng ánh sáng này đến lồng ánh sáng khác, như là từng cây bọt khí, đem mảnh thánh địa linh khí dư thừa này bao khỏa đi vào, thủ hộ tại lồng ánh sáng nội bộ.
-
-"Ngao."
-
-Phòng ngự đại trận còn không có hoàn toàn mở ra, liền có một đạo điếc tai long ngâm, từ lỗ sâu không gian phương hướng truyền tới.
-
-Lập tức, trên bầu trời xuất hiện một mảnh chói lọi màu bạc đám mây, một đầu dài tới mấy chục dặm Dực Long màu bạc bay ở trong đám mây, hai cánh triển khai đằng sau, đem bầu trời đều hoàn toàn che đậy.
-
-Trên thân Dực Long màu bạc phát ra khí tức, hóa thành một cỗ cường đại lực áp bách, rơi trên mặt đất trên thân mỗi một sinh linh, cho dù là Bán Thánh cấp bậc sinh linh, gặp cỗ lực lượng kia áp chế, cũng đều miệng phun máu tươi, ngã trên mặt đất.
-
-Đây là một Long tộc sinh linh cùng Trung Doanh Vương một dạng cường đại.
-
-Nhưng là, Dực Long màu bạc trên thân, lại chịu cực nặng thương thế, phần bụng vị trí bị lợi khí xé rách ra một đạo vết thương hơn một ngàn mét dáng dấp, không cách nào khép lại, không ngừng có long huyết từ trong vết thương vương xuống tới.
-
-Long huyết ẩn chứa có mạnh mẽ hàn băng năng lượng, dù là chỉ là một giọt, rơi xuống đất, cũng đem một mảng lớn thổ địa băng phong.
-
-Dực Long màu bạc bay vào tiến Thần Mộng trạch, nhấc lên gió lốc, khiến cho nước hồ xoay tròn đến cao hơn.
-
-"Bành bành."
-
-Những đại trận không có hoàn toàn khởi động phòng ngự kia, giống như vỏ trứng đồng dạng bị nó đụng nát, căn bản ngăn không được nó.
-— QUẢNG CÁO —
-
-"Đó là Dực Long bộ tộc Long Vương, Tổ Long sơn bá chủ một trong."
-
-Ngao Dịch sắc mặt có chút khó coi, bởi vì, trước đây không lâu có hai cái Dực Long tộc Thánh Long Sứ chết tại Thần Mộng trạch, Dực Long Vương rất có thể là đến hưng sư vấn tội.
-
-Thánh Giả cấp bậc sinh linh, cần tiêu tốn rất nhiều tài nguyên mới có thể bồi dưỡng được đến, tại bất luận thế lực nào đều là đại nhân vật.
-
-Chết một vị Thánh cảnh sinh linh, khẳng định là sự kiện lớn, không có khả năng không giải quyết được gì.
-
-"Dực Long Vương khẳng định cũng là ở trong Âm Dương Hải tranh đoạt Thần Long Nhật Nguyệt Hỗn Độn Tháp, đoán chừng là bởi vì tranh đoạt thất bại, cho nên, mới tới Thần Mộng trạch, muốn đem lửa giận phát tiết đến trên thân Thần Long Bán Nhân tộc." Ngao Dịch có tâm lý chuẩn bị.
-
-"Ầm ầm."
-
-Thủ hộ Long Linh đảo Viễn Cổ đại trận mở ra, từng đạo hình rồng cột sáng, dọc theo đảo biên giới dâng lên, kích xạ ra từng cây xiềng xích hình dạng Minh Văn, xuyên thẳng qua tại thiên không cùng đại địa ở giữa, đem trọn cái hòn đảo bao phủ.
-
-Nhìn thấy Viễn Cổ đại trận mở ra, Ngao Dịch cuối cùng là có chút thở dài một hơi.
-
-Toà Viễn Cổ đại trận này, là do một đầu Thần Long bố trí đi ra, một mực thủ hộ lấy Thần Long Bán Nhân tộc, đủ để ngăn trở Đại Thánh cấp bậc sinh linh, từ ngoại bộ, không có khả năng đưa nó công phá.
-
-Cho dù năm đó Thần Long Bán Nhân tộc kém một chút diệt tộc, cũng là bởi vì nội bộ xảy ra vấn đề, có người phá hủy Viễn Cổ đại trận, mới khiến cho Thần Long Bán Nhân tộc gặp phải nguy cơ trước đó chưa từng có.
-
-"Ngao."
-
-Dực Long Vương xông phá từng tầng từng tầng phòng ngự trận pháp, đi vào Long Linh đảo bên ngoài, bay ở trên bầu trời, thân thể cao lớn tản mát ra chói lọi ánh sáng màu bạc, khiến cho phía dưới nước hồ đều biến thành màu bạc.
-
-Chính như Ngao Dịch phỏng đoán một dạng, Dực Long Vương đích thật là tranh đoạt Thần Long Nhật Nguyệt Hỗn Độn Tháp thất bại, mới có thể đi vào Thần Mộng trạch.
-
-Bất quá, nó không chỉ có riêng chỉ là đến hưng sư vấn tội đơn giản như vậy, còn có mục đích khác.
-
-"Ngao Dịch, nhìn thấy bản Long Vương đi vào Thần Mộng trạch, không có nghênh đón thì cũng thôi đi, lại còn dám mở ra trận pháp ngăn cản, ngươi là không muốn sống sao?"
-
-Dực Long Vương thanh âm chấn thiên động địa, mỗi một chữ đều ẩn chứa vô cùng cường đại lực lượng kình khí, để sinh linh trên Long Linh đảo sợ mất mật.
-
-"Long tộc quả nhiên đều rất bá đạo." Trương Nhược Trần thầm nghĩ.
-
-Thánh Long Sứ, Long tộc Thiếu Quân, Thôn Thiên Ma Long, Dực Long Vương, chỉ cần là Trương Nhược Trần thấy qua Long tộc, thật là một cái so một cái bá đạo, giống như bọn chúng chính là trên đời cao quý nhất sinh linh, sinh linh khác đều là sinh vật cấp thấp.
-
-Ngao Dịch dù sao cũng là bộ tộc tộc trưởng, tự nhiên cũng có ngạo khí, nhìn thấy Dực Long Vương như vậy hưng sư vấn tội dáng vẻ, trong lòng tương đương không vui.
-
-Hắn nói: "Lúc trước, bản thánh cũng không biết là Long Vương đại nhân giá lâm Thần Mộng trạch, còn tưởng rằng là Man Hoang bí cảnh hung thú xâm nhập tiến đến, cho nên mới sẽ sắp mở ra phòng ngự trận pháp."
-
-Dực Long Vương âm thanh lạnh lùng nói: "Nếu biết là bản Long Vương giá lâm, còn không lập tức mở ra trận pháp?"
-
-Ngao Dịch lắc đầu , nói: "Không được, trong Man Hoang phát sinh rung chuyển lớn, nếu là mở ra phòng ngự đại trận, vạn nhất đem con hung thú nào đó bỏ vào đến, đại hưng giết chóc, đối với toàn bộ Thần Long Bán Nhân tộc chính là một trận hủy diệt tính tai nạn."
-
-Dực Long Vương nghe ra được Ngao Dịch ý ở ngoài lời, chỉ là một cái huyết mạch hỗn tạp Bán Long, vậy mà đem đường đường một vị Long Vương ví von thành hung thú, thật vô pháp vô thiên.
-
-Dực Long Vương không còn nói nhảm, đi thẳng vào vấn đề, cường thế nói: "Diệp Phong Thánh Long Sứ cùng Diệp Vân Thánh Long Sứ đều là chết tại Thần Mộng trạch, làm Thần Mộng trạch chủ nhân, ngươi có phải hay không hẳn là cho bản Long Vương một cái công đạo?"
-
-"Không có cái gì tốt bàn giao, cái chết của bọn nó không có quan hệ gì với Thần Long Bán Nhân tộc." Ngao Dịch nói.
-
-Ngao Dịch thái độ, để Dực Long Vương càng thêm tức giận , nói: "Bản Long Vương biết bọn chúng là bị một cái Nhân tộc tiểu bối giết chết, tên tiểu bối kia hiện tại hẳn là liền ẩn thân tại Thần Mộng trạch a? Nếu là, ngươi đem hắn giao ra, bản Long Vương không chỉ có tha cho ngươi vô tội, đồng thời còn có thể cho ngươi nhớ một phần công lao, tương lai Tổ Long sơn thống nhất Man Hoang, không thể thiếu các ngươi Thần Long Bán Nhân tộc một phần chỗ tốt."
-
-Dực Long Vương tranh đoạt Thần Long Nhật Nguyệt Hỗn Độn Tháp thất bại, thế là, lùi lại mà cầu việc khác, chuẩn bị cướp đoạt trên người Trương Nhược Trần món Thần Di Cổ Khí kia.
-
-Thôn Thiên Ma Long đưa tin nói cho nó biết, Trương Nhược Trần trên thân không chỉ có Thần Di Cổ Khí, còn có khác một chút bí bảo, bao quát Giới Tử Ấn, Phật Đế Xá Lợi Tử cùng Thanh Long Khư Giới Thế Giới Chi Linh.
-
-Những bảo vật này, mặc dù so ra kém Thần khí, thế nhưng là , bất kỳ một kiện nào ại đều để Dực Long Vương đỏ mắt. Chỉ cần đem Trương Nhược Trần trên người bảo vật cướp đi, coi như không có vào tay Thần khí, cũng coi là chuyến đi này không tệ.
-
-"Nguyên lai là vì ta mà tới."
-
-Trương Nhược Trần cười lắc đầu, ánh mắt hướng Ngao Dịch chằm chằm đi qua, muốn biết vị Thần Long Bán Nhân tộc tộc trưởng này đến cùng sẽ làm ra như thế nào quyết định?
-
-Trương Nhược Trần cùng Thần Long Bán Nhân tộc giao tình cũng không tính thâm hậu, vì hắn, đắc tội một vị Long Vương, hiển nhiên không phải một sự tình có lời.
-
-Ngao Tâm Nhan sợ Ngao Dịch sẽ đồng ý Dực Long Vương điều kiện, ngay cả vội vàng nói: "Gia gia, không thể đem Trương Nhược Trần giao ra, hắn chém giết hai vị Thánh Long Sứ, hoàn toàn chính là tại giúp Thần Long Bán Nhân tộc ra mặt. Chúng ta tại sao có thể tại hắn gian nan nhất thời điểm, đem hắn giao ra, bảo toàn chính mình?"
-
-"Ta lúc nào nói qua muốn đem Trương Nhược Trần giao ra?" Ngao Dịch nói.
-
-"Tạ ơn gia gia."
-
-Ngao Tâm Nhan hơi thở dài một hơi, sau đó, lại hướng Trương Nhược Trần trông đi qua, nhẹ nhàng điểm một cái vầng trán, lộ ra một đạo ánh mắt để hắn yên tâm.
-
-Ngao Dịch biết Tổ Long sơn thủ đoạn tàn nhẫn, coi như hắn đem Trương Nhược Trần giao ra, Dực Long Vương cũng không có khả năng buông tha Thần Long Bán Nhân tộc.
-
-Dực Long Vương gặp Ngao Dịch không có trả lời, thế là, bắt đầu cường công Long Linh đảo.
-
-Dực Long Vương duỗi ra một cái vuốt rồng, đầu ngón tay tản mát ra quang mang màu bạc, lập tức, phạm vi ngàn dặm thiên địa linh khí đều tràn vào vuốt rồng, ngưng tụ thành một viên quang cầu màu bạc.
-
-Quang cầu phát ra quang mang, cùng một vòng liệt nhật một dạng mãnh liệt, đâm vào phía dưới sinh linh con mắt thấy đau.
-
-"Ầm ầm."
-— QUẢNG CÁO —
-
-Quang cầu cùng Viễn Cổ đại trận đụng vào nhau, bạo liệt mà ra, lập tức từng đạo băng lãnh hình rồng hàn khí dũng mãnh tiến ra, tiếp tục cùng trận pháp đụng nhau.
-
-Một lát sau, Long Linh đảo tứ phương nước hồ, toàn bộ đều đông kết thành băng.
-
-Quang cầu tiêu tán, trận pháp vẫn như cũ hoàn hảo không chút tổn hại, rất hiển nhiên, tu vi cường đại đến Dực Long Vương cảnh giới dạng này, cũng vô pháp rung chuyển Viễn Cổ Thần Long bố trí trận pháp.
-
-"Nhân tộc tiểu bối, ngươi cho rằng trốn ở trong trận pháp, liền có thể trốn qua một kiếp?"
-
-Dực Long Vương tâm tính bạo ngược, tăng thêm tại Âm Dương Hải bị Sát Tẫn Vương kích thương, vốn là nhẫn nhịn một bụng hỏa khí, đi vào Thần Long Bán Nhân tộc lại còn bị cự tại ngoài cửa, lập tức, một cỗ sát ý ngập trời bạo phát đi ra.
-
-Dực Long Vương triển khai một đôi long dực to lớn, thân thể cao lớn hướng về sau nhất chuyển, rời đi trên không Long Linh đảo.
-
-"Dực Long Vương rút lui sao?"
-
-Ngao Tâm Nhan nhìn xem từ từ đi xa Dực Long Vương, hơi thở dài một hơi.
-
-"Ầm ầm."
-
-Một tiếng vang thật lớn, từ đằng xa trên mặt hồ truyền đến.
-
-Chỉ gặp, Dực Long Vương công phá phòng ngự trận pháp một hòn đảo nhỏ trong Thần Mộng trạch, bay đến trên không đảo nhỏ.
-
-Hòn đảo nhỏ kia, cũng không nhỏ, chỉ là cùng Long Linh đảo so ra mới biểu hiện rất nhỏ bé, kỳ thật, đảo dài rộng đều nắm chắc trăm dặm, sinh hoạt hơn một trăm vạn vị Thần Long Bán Nhân tộc tộc nhân.
-
-Dực Long Vương thi triển ra một loại thôn phệ thánh thuật, khiến cho toàn bộ đảo nhỏ đều thổi lên gào thét gió lốc, trên đảo Thần Long Bán Nhân tộc tộc nhân bị thổi làm bay lên, cuốn vào tiến trong miệng của nó.
-
-"Cứu mạng. . ."
-
-"Thật là lớn gió, Long Vương giáng xuống trừng phạt, tất cả mọi người muốn chết."
+"Chỉ cần ngươi còn sống, ta tuyệt đối sẽ không làm việc ngốc gì."
 
 . . .
 
-Ở trên đảo, tiếng kêu cứu, tiếng la khóc, tiếng cầu xin tha thứ đan vào một chỗ, nhưng mà Dực Long Vương lại làm như không thấy, mười phần tàn nhẫn, căn bản không có ý định tha thứ bọn hắn.
+"Người của Mộc gia, rất không thích ngươi sao?"
 
-Một lát sau, trên đảo nhỏ, hơn một trăm vạn vị Thần Long Bán Nhân tộc tộc nhân, toàn bộ đều bị nó nuốt vào trong bụng, biến thành món ăn sống của nó.
+"Xin nhờ, nếu là lão gia hỏa như vậy thích ta, liền sẽ không điều động ta ẩn núp tiến Vũ Thị Học Cung. Đó là chuyện cỡ nào nguy hiểm, một khi thân phận bại lộ, ngươi hẳn là so ta rõ ràng hơn là kết cục gì."
 
-Nuốt vào một hòn đảo nhỏ Thần Long Bán Nhân tộc đằng sau, Dực Long Vương thét dài một tiếng, lại bay về phía Long Linh đảo, lãnh ngạo nói: "Ngao Dịch, Thần Long Bán Nhân tộc tộc nhân hương vị rất không tệ, vừa rồi bản Long Vương chỉ là ăn một nửa no bụng, hòn đảo trên Thần Mộng trạch thế nhưng là còn có trăm ngàn tòa. Hiện tại, ngươi suy tính được như thế nào?"
+. . .
+
+Nghĩ đi nghĩ lại, Trương Nhược Trần trong mắt, lộ ra một đạo thần tình có chút phức tạp, lầu bầu nói: "Thiếu hứa hẹn, tự nhiên là cần phải trả."
+
+Yên vui thời gian, chung quy là không cách nào tiếp tục.
+
+Vô luận là vì Mộc Linh Hi, vẫn là vì A Nhạc, Trương Nhược Trần đều nhất định muốn đi một chuyến Ma giáo tổng đàn, tự mình leo lên Vô Đỉnh sơn, đòi một câu trả lời hợp lý, còn một cái hứa hẹn.
+
+Nếu là không có A Nhạc, Trương Nhược Trần mẫu thân, cũng sớm đã bị Trương Thiên Khuê giết chết, làm sao có thể sống đến bây giờ?
+
+Năm đó, là A Nhạc một người một kiếm, mang theo Lâm Phi, giết ra Vân Võ quận quốc vương cung, bảo vệ tính mạng của nàng.
+
+A Nhạc là một cái bị tình bị thương cực sâu Tuyệt Tình kiếm khách, cũng là một cái sớm đã quên mất sinh tử tuyệt mệnh kiếm khách, tại trong tính mạng của hắn, ngoại trừ kiếm, chỉ có Trương Nhược Trần một người bạn.
+
+Bằng hữu chân chính, cho dù một vạn năm không thấy , chờ đến bằng hữu cần hắn thời điểm, hắn cũng khẳng định sẽ đi phó núi đao, xông biển lửa, dù chết không chối từ.
+
+Trương Nhược Trần bằng hữu cũng không nhiều, bây giờ, A Nhạc cũng là bị người sống sờ sờ đánh chết, chết không toàn thây, coi như trên mặt biểu hiện được lại bình tĩnh, nhưng trong lòng đã là sát khí lăng nhiên.
+
+Đạt được Trương Nhược Trần khẳng định trả lời chắc chắn, Thần Ma Thử trong lòng đại hỉ , nói: "Quá tốt rồi! Có Trần gia cùng Hắc gia xuất mã, Tiểu Thánh Nữ được cứu rồi!"
+
+Trương Nhược Trần liếc xéo hắn một chút , nói: "Tiểu Hắc đến cùng ở nơi nào?"
+
+"Hắc gia nói, nó sẽ ở thời khắc mấu chốt nhất xuất thủ, lấy cường thế tư thái, quét ngang hết thảy cường địch." Thần Ma Thử hết sức kích động nói.
+
+Trương Nhược Trần tự nhiên là sẽ không đem hi vọng ký thác vào Tiểu Hắc trên thân, nó nếu là thật sự có thể quét ngang hết thảy, lấy nó cùng Mộc Linh Hi quan hệ, cũng sớm đã leo lên Vô Đỉnh sơn, đem Mộc Linh Hi mang đi, lại thế nào khả năng để Thần Ma Thử tới tìm hắn?
+
+Tửu Phong Tử dựng râu trừng mắt, nộ khí rất thịnh , nói: "Trương Nhược Trần, lão phu cùng đi với ngươi Vô Đỉnh sơn, trong thần giáo đám oắt con kia, càng ngày càng khiến người ta thất vọng, nên dạy huấn luyện giáo huấn bọn hắn."
+
+Trương Nhược Trần nhìn vấn đề, đem so với Tửu Phong Tử càng thêm sâu xa , nói: "Ngươi đi cũng vô dụng, chỉ làm cho ta thêm phiền phức. Hay là lưu tại Vân Võ quận quốc, tiếp tục luyện chế Lục Thánh Đăng Thiên Tửu."
+
+"Lấy lão phu tu vi, sẽ cho ngươi thêm phiền phức?" Tửu Phong Tử quát.
+
+Cổ Tùng Tử đi tới, nghiêm nghị nói: "Trương Nhược Trần nói không sai, ngươi đi, không có bất kỳ chỗ dùng nào. Ngươi cho rằng, thần giáo lại bởi vì nguyên nhân của ngươi, cùng Hỏa tộc cùng Ngô Đồng Thần Thụ trở mặt? Nói không chắc, thần giáo sẽ còn xuất thủ bắt ngươi, từ trong miệng của ngươi, ép hỏi tung tích của ta."
+
+"Thạch Thiên Tuyệt là một vị tuyệt đại hùng chủ, tu vi cực cao, tâm cảnh chi sâu, dã tâm to lớn, không phải ngươi cùng ta có thể tưởng tượng. Ngươi cùng hắn sư huynh đệ giao tình, làm sao có thể so ra mà vượt Hóa Thánh Đan giá trị?"
+
+Tửu Phong Tử cũng là tỉnh táo lại , nói: "Thần giáo cường đại đến cỡ nào, ngươi giống như ta rõ ràng, chẳng lẽ cứ như vậy để Trương Nhược Trần một người đi? Đây không phải để hắn đi chịu chết?"
+
+"Trương Nhược Trần so ngươi thông minh không chỉ gấp mười lần, làm sao có thể đi chịu chết?"
+
+Cổ Tùng Tử đối với Tửu Phong Tử lắc đầu, bắt đầu từ trên thân lấy ra ba tấm phù lục màu vàng, đưa cho Trương Nhược Trần , nói: "Lão phu tạo nghệ tại trên trận pháp, tương đương thô thiển. Thế nhưng là, tạo nghệ tại trên Phù Đạo, nhưng vẫn là có mấy phần lòng tin. Ba tấm hộ thân phù này, đủ để bảo đảm ngươi ba lần tính mệnh, nhất định phải dùng cẩn thận."
+
+Trương Nhược Trần trong lòng biết Cổ Tùng Tử rất giảo hoạt, không nguyện ý nhìn xem Tửu Phong Tử đi mạo hiểm, mới nói những lời kia.
+
+Trên thực tế, Cổ Tùng Tử trong lòng, hơn phân nửa cũng là cho rằng, Trương Nhược Trần lần này đi chính là dữ nhiều lành ít, như là lấy trứng chọi đá.
+
+Cổ Tùng Tử có thể sống đến bây giờ, chính là bởi vì hắn phần chú ý cẩn thận này.
+
+Vốn là Trương Nhược Trần sự tình của riêng mình, không cần thiết lôi kéo bọn hắn đi mạo hiểm, bọn hắn cũng không có tất yếu đi mạo hiểm. Cổ Tùng Tử có thể đưa cho Trương Nhược Trần ba tấm trân quý hộ thân phù lục, đã là hết lòng quan tâm giúp đỡ.
+
+"Đa tạ."
+
+Trương Nhược Trần không có khước từ, đem ba tấm hộ thân phù lục thu vào.
+
+Cùng Trương Thiếu Sơ cùng Trương Vũ Hi cáo biệt đằng sau, Trương Nhược Trần mới cùng Thần Ma Thử đi Trung Vực, lần nữa bước vào Đệ Nhất Trung Ương Hoàng Thành cương thổ.
+
+Lại là hai ngày đi qua, rốt cục đến Đồng Lô Nguyên, đứng tại trên vùng quê mênh mông bát ngát, có thể trông thấy một tòa nguy nga đại sơn hình dáng, xuất hiện ở cuối chân trời.
+
+"Đó chính là Vô Đỉnh sơn." Thần Ma Thử nói ra.
+
+Vô Đỉnh sơn ngọn núi vô cùng to lớn, không giống như là núi, ngược lại giống như là một tòa cao nguyên . Bình thường tu sĩ, căn bản không biết Vô Đỉnh sơn đỉnh núi ở nơi nào, cũng không biết Vô Đỉnh sơn xung quanh mọc ra bao dài.
+
+Chỉ có cảnh giới cực kỳ cao thâm tu sĩ, đứng tại bên ngoài mấy vạn dặm, mới có thể bằng vào phi phàm thị lực, thấy rõ Vô Đỉnh sơn hình dáng.
+
+Thần Ma Thử cùng sau lưng Trương Nhược Trần , nói: "Trần gia, chúng ta cứ như vậy trực tiếp đi tổng đàn?"
+
+"Ừm." Trương Nhược Trần nói.
+
+Thần Ma Thử nuốt nước miếng một cái, lại nói: "Nếu không chờ đến tối, ta biết một đầu lối đi bí mật, có thể lặng lẽ tiến vào Vô Đỉnh sơn."
+
+Trương Nhược Trần uống xong một ngụm rượu , nói: "Chẳng lẽ lấy ngươi ở trong thần giáo thân phận, còn không thể mang một người tiến vào Vô Đỉnh sơn?"
+
+"Trần gia, ngươi hãy tha cho ta đi! Ta đang còn muốn thần giáo tiếp tục tiếp tục chờ đợi, tiếp tục vì ngươi cùng Hắc gia làm việc. . . Ta trung thành tuyệt đối, còn không muốn chết. . ."
+— QUẢNG CÁO —
+
+
+Thần Ma Thử quỳ trên mặt đất cầu khẩn, dùng đến tội nghiệp ánh mắt nhìn chằm chằm Trương Nhược Trần.
+
+"Tốt a! Ta cũng không làm khó ngươi, ta tìm một người khác người dẫn đường cho ta."
+
+Trương Nhược Trần phất phất tay, ra hiệu Thần Ma Thử có thể rời đi.
+
+"Đa tạ Trần gia."
+
+Thần Ma Thử như được đại xá, lập tức chui vào tiến lòng đất, biến mất tại trong cảm giác của Trương Nhược Trần, trước một bước trốn vào tiến Vô Đỉnh sơn.
+
+. . .
+
+Tại dưới Vô Đỉnh sơn, có một tòa thành trì, tên là Bái Nguyệt thành.
+
+Nơi đây, từng là Ma giáo đệ tử lẫn nhau giao dịch đan dược, binh khí phiên chợ, theo trên vạn năm phát triển, thời gian dần trôi qua, mới là biến thành thành trì.
+
+"Tề sư tỷ, đã lâu không gặp."
+
+Trong Bái Nguyệt thành, Tề Phi Vũ vốn là tới mua một loại đan dược, đột nhiên nghe được đạo thanh âm này, trong lòng chính là hơi giật mình. Lập tức xoay người, nàng hướng về đối diện trong một gian tửu quán nhìn lại, nhìn thấy một bóng lưng đã là quen thuộc, mà xa lạ.
+
+Đầu người nọ phát rất rối tung, ăn mặc cũng rất mộc mạc, thế nhưng là, lại cho nàng tạo thành rất lớn áp lực.
+
+Tề Phi Vũ là Thánh Nữ cung phó cung chủ Lâm Tố Tiên nữ nhi, từng tại Lưỡng Nghi tông tu luyện, cùng hóa thân thành "Lâm Nhạc" Trương Nhược Trần, cũng coi như có một ít giao tình cùng ân oán. Đồng thời, Lâm Phi Vũ cũng là Ma giáo một vị Thánh Nữ, có cực cao thiên tư.
+
+"Ngươi là. . . Lâm Nhạc, không, ngươi là Trương Nhược Trần. . ."
+
+Tề Phi Vũ trong một đôi mắt đẹp, lộ ra thần sắc kinh ngạc, rất khó tin tưởng, Trương Nhược Trần vậy mà lại xuất hiện ở đây.
+
+Trương Nhược Trần xoay người, hướng nàng nhìn sang , nói: "Tề sư tỷ lại còn nhớ kỹ thanh âm của ta, như vậy, hẳn phải biết ta mục đích tới nơi này a? Ta muốn đi Ma giáo tổng đàn, sư tỷ, dẫn đường đi!"
+
+Tại thời khắc này, Tề Phi Vũ giật mình phát hiện, chung quanh Ma giáo tu sĩ toàn bộ đều biến mất không thấy, chỉ còn lại có nàng cùng Trương Nhược Trần hai người, rất hiển nhiên, nàng là bị Trương Nhược Trần kéo xuống trong Không Gian lĩnh vực.
+
+Đừng nói là trốn, liền xem như lớn tiếng kêu cứu, cũng không có khả năng có người nghe được.
+
+Lúc này, Trương Nhược Trần muốn giết chết nàng, như là bóp ra một con kiến đồng dạng dễ dàng, không cho phép nàng phản kháng cùng cự tuyệt.
+
+Đánh giá điểm 9-10 cuối chương để ủng hộ Converter
 
 Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
 Phong Lưu Chân Tiên Vô địch lưu đã full.
 ---------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1290
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1377
 
-Chương 1287: Đến Bắc Vực
+Chương 1374: Thái Cực Sinh Tử Ấn
 
-Thần Long Bán Nhân tộc nhiều hơn phân nửa tộc nhân đều là ở tại Long Linh đảo, nhưng vẫn là có bộ phận tộc nhân ở tại đảo nhỏ khác, chưa kịp rút lui.
+Một người biến mất một năm, tất cả mọi người cho là hắn đã chết đi, nhưng hắn vậy mà lại xuất hiện.
 
-Lúc này, Dực Long Vương chính là muốn sử dụng những Thần Long Bán Nhân tộc trên đảo nhỏ kia uy hiếp Ngao Dịch, bức bách hắn giao ra Trương Nhược Trần.
+Mặc cho là ai, cũng sẽ tương đương giật mình.
 
-Hơn một trăm vạn Thần Long Bán Nhân tộc đều bị thôn phệ, biến thành Dực Long Vương thực vật, có thể nói là tương đương thê thảm, coi là huyết tinh đại đồ sát.
+200 năm trước, Lâm Tố Tiên danh xưng "Côn Lôn giới đệ nhất mỹ nhân", làm nữ nhi của nàng, Tề Phi Vũ hoàn toàn kế thừa mỹ mạo của nàng, đứng tại trên đường phố, cũng giống là tiên nữ đứng trong tranh.
 
-Ngao Dịch lửa giận ngút trời, tức giận đến run rẩy, rống lên một tiếng: "Dực Long Vương, ngươi lão thất phu này, thật sự cho rằng Thần Long Bán Nhân tộc dễ ức hiếp sao?"
+Tề Phi Vũ tâm trí cùng thiên phú, đều là cao cấp nhất cấp bậc, rất nhanh liền bình tĩnh trở lại , nói: "Ngươi là vì Mộc sư muội mà đến? Kỳ thật, ngươi hẳn là tiếp tục mai danh ẩn tích, đừng cho bất luận kẻ nào biết ngươi còn sống. Có nhiều thứ, một khi có kết quả, liền ai cũng không có khả năng cải biến."
 
-Dực Long Vương hừ lạnh một tiếng: "Bản Long Vương đã đem nói giảng được rất rõ ràng, giao ra Nhân tộc tiểu tử kia, từ nay về sau, Tổ Long sơn liền sẽ che chở Thần Long Bán Nhân tộc. Nếu là không giao ra, Thần Long Bán Nhân tộc hạ tràng, chính là diệt tộc."
+"Tựa như năm đó, mẹ của ngươi cùng Lạc Hư tiền bối?" Trương Nhược Trần nói.
 
-Ngao Dịch sắc mặt khi thì xanh, khi thì tím , nói: "Khởi động Vạn Tinh Công Kích đại trận."
+Tề Phi Vũ nhẹ nhàng thở dài , nói: "Năm đó, Lạc Hư tiền bối, chí ít còn có mẫu thân cùng Lăng cung chủ bảo vệ hắn tính mệnh, cho nên, hắn có thể sống rời đi Vô Đỉnh sơn."
 
-Lúc trước, Thần Long Bán Nhân tộc chỉ là mở ra phòng ngự trận pháp trong Thần Mộng trạch, căn bản không có ý định cùng Dực Long Vương khai chiến, bây giờ lại khác biệt, Dực Long Vương khinh người quá đáng, đã không có biện pháp thỏa hiệp.
+"Nhưng, ngươi nếu là bắt chước Lạc Hư tiền bối, ai cũng không gánh nổi tính mạng của ngươi. Thu Vũ không phải Tề Hướng Thiên, Hỏa tộc cũng không phải Tề gia, bây giờ Bái Nguyệt thần giáo giáo chủ cũng không phải năm đó vị giáo chủ kia, ngươi cũng không phải Lạc Hư tiền bối. Thế cục hôm nay, so 200 năm trước, hung hiểm đâu chỉ gấp trăm lần."
 
-Chỉ có thể chiến.
+Tại Tề Phi Vũ trong giọng nói, Trương Nhược Trần nghe được rất nhiều thứ.
 
-"Ầm ầm."
+Câu kia "Bây giờ Bái Nguyệt thần giáo giáo chủ cũng không phải năm đó vị giáo chủ kia", cũng không phải là nói giáo chủ đổi người, mà là nói, bây giờ Thạch Thiên Tuyệt cùng 200 năm trước Thạch Thiên Tuyệt, đã là khác nhau một trời một vực.
 
-Liên miên tám vạn dặm Thần Mộng trạch lòng đất truyền ra trầm muộn thanh âm, nước hồ mãnh liệt lắc lư, lập tức từng khối dài đến mấy ngàn thước cự thạch đại sơn, nổi lên mặt nước, dâng lên, bay đến giữa không trung.
+Nếu là nói, 200 năm trước Bái Nguyệt ma giáo còn không có khôi phục nguyên khí, 200 năm trước Thạch Thiên Tuyệt còn không có tu vi hiện tại, sẽ còn bị quản chế tại người, còn sẽ có khác một chút lo lắng.
 
-Cự thạch đại sơn mặt ngoài, hiện ra lít nha lít nhít Minh Văn, tản mát ra hào quang rực rỡ, giống như hơn vạn ngôi sao đang nhấp nháy.
+Nhưng là bây giờ, trong Ma giáo, đã không có người có thể ngăn được Thạch Thiên Tuyệt, Ma giáo hiện tại thế lực cũng là hơn xa năm đó.
 
-Đây là một tòa đại trận từ Viễn Cổ để lại, mặc dù tàn khuyết không đầy đủ, thế nhưng là, vẫn như cũ có thể tru sát tất cả cường địch xâm nhập tiến Thần Mộng trạch.
+Trương Nhược Trần nói: "Nếu ta xuất hiện ở đây, cũng liền không có khả năng lại quay đầu."
 
-Dực Long Vương hiển nhiên cũng là biết Vạn Tinh đại trận lợi hại, cũng không cùng trận pháp liều mạng, mà là bay đến trên không một hòn đảo khá lớn, công phá hòn đảo kia phòng ngự đại trận, xâm nhập đi vào.
+"Tốt a! Nếu khuyên không được ngươi, đi theo ta, ta mang ngươi tiến Vô Đỉnh sơn."
 
-Trên hòn đảo kia, chừng hơn tám triệu Thần Long Bán Nhân tộc.
+Tề Phi Vũ lộ ra ôn nhuận như ngọc, đi ở phía trước, trên thân tản ra một cỗ nhàn nhạt mùi thơm, thực là đem Trương Nhược Trần trên người mùi rượu đều áp chế xuống.
 
-Vạn Tinh đại trận muốn công kích hắn, tất nhiên sẽ trước giết chết trên đảo Thần Long Bán Nhân tộc.
+Lấy nàng thân phận, mang một người tiến vào Vô Đỉnh sơn, tự nhiên là chuyện dễ như trở bàn tay, căn bản không có người dám kiểm tra.
 
-"Muốn khởi động trận pháp tới đối phó lão phu, nhưng là muốn bỏ ra giá cao thảm trọng." Dực Long Vương cuồng tiếu một tiếng, không có sợ hãi, căn bản không tin tưởng Ngao Dịch dám cầm gần ngàn vạn Thần Long Bán Nhân tộc tính mệnh nói đùa.
+Đồng thời, lấy Trương Nhược Trần hiện tại bộ dáng, trừ phi là tu sĩ đã từng thấy qua bản thân hắn, bằng không, chỉ sợ là không có người có thể đem hắn nhận ra.
 
-Trên Long Linh đảo, Thần Long Bán Nhân tộc một vị Thái Thượng trưởng lão xuất quan, ngăn cản lại Ngao Dịch , nói: "Dực Long Vương tu vi cực kỳ thâm hậu, coi như vận dụng Vạn Tinh đại trận cũng chưa chắc diệt được nó. Lấy trí tuệ của nó, chỉ sợ Thần Long Bán Nhân tộc ngược lại sẽ tổn thất nặng nề."
+"Mang ta đi Thánh Nữ cung." Trương Nhược Trần nói ra.
 
-Ngao Dịch thần sắc trầm ngưng , nói: "Hiện tại cũng không có những biện pháp khác, chỉ có thể vận dụng Vạn Tinh đại trận, coi như tổn thất nặng nề, cũng so mặc nó xâm lược mạnh một chút."
+Tề Phi Vũ nói: "Mộc sư muội đã không tại Thánh Nữ cung, bị Mộc gia tiếp trở về Thiên Mộc phong."
 
-"Chưa hẳn không có lựa chọn khác."
+"Ta đi Thánh Nữ cung, là muốn trước gặp thấy một lần các ngươi cung chủ." Trương Nhược Trần nói ra.
 
-Một vị Thần Long Bán Nhân tộc Thánh Giả khác nói ra, nói ra lời này thời điểm, ánh mắt của hắn, còn hướng phương hướng Trương Nhược Trần nhìn chằm chằm một chút.
+Tề Phi Vũ tự nhiên là biết, Trương Nhược Trần cùng Lăng Phi Vũ có quan hệ không giống bình thường, bởi vậy, cũng liền không cần phải nhiều lời nữa, trực tiếp mang theo Trương Nhược Trần leo lên Thiên Thủy phong, hướng về đỉnh núi một tòa thánh điện bước đi.
 
-"Vì một người đã phế bỏ, lại phải bồi thường hơn ngàn vạn tộc nhân tính mệnh, đại giới này thực sự quá lớn!"
+Đến ngoài thánh điện, Tề Phi Vũ ngừng lại, nhìn xem đã mở ra hai phiến thánh môn, như có điều suy nghĩ nói: "Cung chủ một mực tại bế quan, rất ít chủ động mở ra thánh môn. Xem ra, cung chủ đã biết ngươi đi vào Thiên Thủy phong."
 
-Thần Long Bán Nhân tộc nội bộ xuất hiện khác nhau, một chút Thánh Giả cho là nên đem Trương Nhược Trần giao ra, dù sao hắn đã phế bỏ, coi như đem hắn giao cho Dực Long Vương, cũng không phải việc ghê gớm gì.
+Lăng Phi Vũ ngồi tại thánh điện trên cùng trên một tòa đảo nhỏ lơ lửng, người mặc Điện Mẫu Tử Bào, toàn thân có từng sợi giao hình điện quang đang lưu động, giống như là có hơn một trăm đầu Tử Giao tại quay chung quanh nàng phi hành.
+
+Trương Nhược Trần cùng Tề Phi Vũ đồng thời đi vào, đứng tại lơ lửng dưới đảo nhỏ.
+
+"Bái kiến cung chủ."
+
+Tề Phi Vũ hướng Lăng Phi Vũ khom mình hành lễ.
 — QUẢNG CÁO —
 
+"Ngươi có thể đi xuống!"
 
-Bọn hắn tiếng nói rất vang dội, cố ý để Trương Nhược Trần nghe được.
+Lăng Phi Vũ vẫn như cũ nhắm hai mắt, nhàn nhạt nói một câu.
 
-"Nếu là, Trương Nhược Trần là một nam nhân có đảm đương, liền không nên để cho chúng ta Thần Long Bán Nhân tộc như vậy khó xử, hẳn là chính mình chủ động đứng ra đi." Có người nói như thế.
+Tề Phi Vũ lần nữa hành lễ, mới là lui xuống. Cùng lúc đó, thánh điện hai phiến thánh môn, cũng là trùng điệp khép lại.
 
-"Ngươi có ý tứ gì? Trương Nhược Trần là Thần Long Bán Nhân tộc khách nhân, không phải công cụ dùng để đổi lấy Thần Long Bán Nhân tộc nhất thời an ổn."
+Trong thánh điện, trở nên có chút lờ mờ, chỉ còn lại có màu tím điện mang còn tại lấp lóe.
 
-Ngao Tâm Nhan rất phẫn nộ, rút ra Thánh Kiếm, hướng lời mới vừa nói vị Thánh Giả kia chém tới, Thần Long Bán Nhân tộc Thái Thượng trưởng lão lại ngăn cản nàng.
+"Ta cho là ngươi sẽ ở Vân Võ quận quốc đợi cả một đời." Lăng Phi Vũ nói.
 
-Hoàng Yên Trần thờ ơ lạnh nhạt nhìn xem đây hết thảy, cười cười, hướng Trương Nhược Trần truyền âm , nói: "Xem ra ngươi lúc trước lựa chọn rất sáng suốt, hoàn toàn chính xác không nên lưu tại Thần Long Bán Nhân tộc dưỡng thương."
+Trương Nhược Trần tìm tới một tấm cái ghế ngọc chất, trực tiếp ngồi xuống, lòng bàn tay nâng bầu rượu , nói: "Nói như thế, ngươi đi qua Vân Võ quận quốc?"
 
-"Đi thôi, nên rời đi!"
+"Đi qua." Lăng Phi Vũ nói.
 
-Trương Nhược Trần thần sắc không buồn không vui, hướng Ngao Tâm Nhan đi tới, cùng nàng thấp giọng giao lưu.
+Trương Nhược Trần nói: "Tới lặng lẽ, lại đi lặng lẽ, không giống như là Lăng cung chủ phong cách làm việc."
 
-"Tổ trưởng, thật muốn đi? Ta cùng ngươi cùng rời đi." Ngao Tâm Nhan trong lòng có thẹn, cũng biết lấy Thần Long Bán Nhân tộc tình huống hiện tại, tiếp tục giữ lại Trương Nhược Trần, hiển nhiên là không thực tế.
+Lăng Phi Vũ lại nói: "Ngươi đến Vô Đỉnh sơn, là vì gặp ta, vẫn là vì mang đi Mộc Linh Hi?"
 
-Thế nhưng là, nàng lại cũng không e ngại nguy hiểm, quyết định đi theo tại bên người Trương Nhược Trần, trợ giúp hắn trị liệu tốt thương thế trên người.
+"Có khác nhau sao?"
 
-Trương Nhược Trần lắc đầu , nói: "Ngươi nhất định phải lưu lại, giúp ta thủ hộ Không Gian Truyền Tống Trận, hiện tại, ta chỉ tin tưởng ngươi."
+"Đương nhiên là có. Nếu là vì cái trước, hôm nay, ta có thể bảo đảm ngươi một mạng. Nếu là vì cái sau, trong thiên hạ, không ai có thể bảo trụ tính mạng của ngươi. Lấy giáo chủ bây giờ tu vi, tại ngươi bước vào Vô Đỉnh sơn một khắc này, hắn cũng đã cảm giác được."
 
-Trương Nhược Trần gỡ xuống nhẫn không gian, đưa cho Ngao Tâm Nhan, để nàng từ bên trong đem Không Gian Truyền Tống Trận trận bàn lấy ra.
+Lăng Phi Vũ hỏi: "Ngoài ý muốn a?"
 
-Tại Vô Tận Thâm Uyên cấp độ bậc thang thứ nhất, Trương Nhược Trần thu lấy một tòa Không Gian Truyền Tống Trận, một mực mang theo ở trên người. Toà Không Gian Truyền Tống Trận này, liên tiếp lấy vực ngoại, có thể rời đi Côn Lôn Giới chỗ mảnh tinh không này, tiến về vũ trụ mênh mông chỗ sâu.
+"Không ngoài ý muốn."
 
-Không đến vạn bất đắc dĩ, Trương Nhược Trần không muốn sử dụng nó.
+Trương Nhược Trần thản nhiên nói: "Không có bước vào Vô Đỉnh sơn thời điểm, ta liền đã phát hiện Vô Đỉnh sơn thiên địa linh khí, bắt đầu hướng thiên địa thánh khí chuyển biến, xông lên ráng mây, bên dưới tiếp vực sâu. Không hề nghi ngờ, Thạch Thiên Tuyệt đã đạt tới Đại Thánh cảnh giới, có thể phong làm một đời mới Ma Đế. Một người thành đế, gà chó lên trời. Bây giờ Bái Nguyệt ma giáo, đã nhanh muốn khôi phục lại cường thịnh nhất thời kì."
 
-Trương Nhược Trần đi vào tiến không gian trận pháp nội bộ, cũng không có tiến về vực ngoại, mà là cải biến trong trận pháp một chút Không Gian Minh Văn, đại khái khóa chặt Bắc Vực một cái tọa độ không gian nào đó.
+Phải biết, Đại Thánh thế nhưng là tiếu ngạo Cửu Thiên tồn tại, một câu có thể định ức vạn sinh linh sinh tử.
 
-Lần này, hắn sử dụng, cũng không phải là xác định vị trí truyền tống, mà là đơn hướng truyền tống, sai sót sẽ rất lớn.
+Mỗi một vị Đại Thánh sinh ra, đều là ảnh hưởng một thời đại sự kiện lớn.
 
-Khởi động không gian trận pháp trước thời khắc cuối cùng, Trương Nhược Trần lần nữa căn dặn Ngao Tâm Nhan , nói: "Toà Không Gian Truyền Tống Trận này tương đối quan trọng, nhất định phải hảo hảo giúp ta thủ hộ , chờ ta thương thế khỏi hẳn, sẽ còn đưa nó thu hồi."
+800 năm trước, Nhân tộc mặc dù có Cửu Đế Tam Hậu, thế nhưng là, đó là mấy ngàn năm tích lũy kết quả. Trong đó tuổi tác dài nhất Đạo Đế cùng Văn Đế, tại 800 năm trước liền có tiếp cận 4000 tuổi tuế nguyệt.
 
-"Tổ trưởng yên tâm, ai dám đánh toà Không Gian Truyền Tống Trận này chủ ý, ta liền chém ai." Ngao Tâm Nhan hai con ngươi phiếm hồng, nhìn chằm chằm đứng ở trong trận thân ảnh có chút tiều tụy kia, ôn nhu nói: "Tổ trưởng, ngươi nhất định phải tốt."
+Nếu không phải thiên địa quy tắc xuất hiện biến hóa, Thạch Thiên Tuyệt cùng Khổng Lan Du liền xem như kinh thế kỳ tài, muốn đạt tới Đại Thánh cảnh giới, chỉ sợ cũng còn đến hướng về sau trì hoãn trăm năm, thậm chí mấy trăm năm.
 
-Trương Nhược Trần đối với nàng cười cười, lập tức, khởi động Không Gian Truyền Tống Trận.
+Thạch Thiên Tuyệt đột phá đến Đại Thánh cảnh giới, có thể nói, có ý nghĩa không giống bình thường.
+
+"Biết rõ cục phải chết, ngươi hay là nghĩa vô phản cố xông vào, thật như vậy không thương tiếc tính mạng của mình?" Lăng Phi Vũ mở ra hai mắt, trong mắt mang theo vài phần nhu sắc cùng không hiểu.
+
+"Thiên hạ hôm nay, ngươi nhất định là một trong những người hiểu rõ ta nhất. Ngươi hẳn là rất rõ ràng, nếu làm ra quyết định, ta liền nhất định sẽ kiên trì tới cùng." Trương Nhược Trần nói.
+
+Lăng Phi Vũ trầm mặc một lát , nói: "Vậy ngươi tới tìm ta làm gì? Ngươi cũng hẳn là minh bạch, việc này, đã vượt qua phạm vi năng lực của ta, căn bản không giúp được ngươi."
+
+"Ta đến đòi một người thi thể."
+
+"Ai thi thể?"
+
+"A Nhạc." Trương Nhược Trần nói.
+
+Lăng Phi Vũ thật sâu nhìn chằm chằm Trương Nhược Trần một chút, sau đó, đứng dậy, toàn thân phát ra lốp ba lốp bốp thanh âm, có một cỗ cuồn cuộn vô biên lực lượng, từ trên người nàng tuôn ra.
+
+Từ đầu đến cuối, Trương Nhược Trần nhãn thần đều rất bình tĩnh, không có một tia biến hóa.
+
+"Tĩnh như tùng, ngồi như chuông, bất động như núi. Xem ra một năm này, tâm của ngươi, đã phát sinh thuế biến, vượt qua người khác tu luyện ngàn năm thành quả. Đã ngươi như vậy lòng mang chí lớn, liền đi theo ta!"
+
+Lăng Phi Vũ hóa thành một đạo lôi điện quang toa, bay ra thánh điện, sau một khắc, chính là rơi xuống Mộc Linh Hi đã từng động phủ tu luyện bên ngoài, đứng tại bên cạnh một mảnh linh hồ.
 
 "Hoa —— "
 
-Không Gian Truyền Tống Trận chuyển động đứng lên, tản mát ra chói mắt ánh sáng màu trắng, cho dù là đứng ở đằng xa Dực Long Vương, cũng đều cảm nhận được trên Long Linh đảo truyền ra mạnh mẽ không gian ba động.
+Cơ hồ là trong cùng một lúc, Lăng Phi Vũ bên cạnh, không gian xuất hiện từng vòng từng vòng gợn sóng, Trương Nhược Trần từ gợn sóng trung tâm đi ra.
 
-Thần Long Bán Nhân tộc Chư Thánh toàn bộ đều có chút thất thần, cảm thấy không thể tưởng tượng nổi.
+Trương Nhược Trần nhìn về phía dưới chân nước hồ, chỉ gặp, nước hồ bày biện ra màu đỏ như máu, vậy mà tại sôi trào, toát ra từng cái bọt khí.
 
-"Trương Nhược Trần không phải đã biến thành một tên phế nhân, làm sao còn có thể sử dụng không gian thủ đoạn?"
+"Thi chìm đáy hồ." Lăng Phi Vũ nói.
 
-"Đó chính là trong truyền thuyết Không Gian Truyền Tống Trận sao?"
+Trương Nhược Trần nói: "Không có người thay hắn nhặt xác sao?"
+
+"Ngô Đồng Thần Thụ hỏa diễm, còn tại trong hồ thiêu đốt, tu sĩ dưới Thánh cảnh, dính vào nước hồ liền sẽ tan thành mây khói. Tu sĩ trên Thánh cảnh, ai lại sẽ đi cho một người xa lạ đắc tội Thu Vũ nhặt xác?" Lăng Phi Vũ hai tay chắp sau lưng, thản nhiên nói.
+
+"Phù phù."
+
+Trương Nhược Trần nhảy xuống linh hồ, biến mất tại mặt nước.
+
+Một lát sau, hắn ôm một bộ thi hài, vọt ra khỏi mặt nước, bay xuống bên bờ.
+
+Lăng Phi Vũ hai mắt, có chút ngưng tụ, lộ ra một đạo thần sắc khác thường , nói: "Nghe nói, đầu của hắn đã bị đánh nát, bị Ngô Đồng Thần Thụ thiêu đến hòa tan, tại sao lại một lần nữa mọc đi ra?"
+
+Trương Nhược Trần bàn tay, nâng ở A Nhạc sau lưng, có thể cảm nhận được, trong cơ thể hắn có một cỗ màu trắng sinh mệnh chi khí cùng một cỗ màu đen tử vong chi khí, tại lẫn nhau chuyển hóa, hình thành một cái huyền bí Thái Cực ấn ký.
+
+Chỉ bất quá, sinh tử chi khí tương đương yếu ớt, chỉ có nhân vật tinh thần lực khá cường đại, mới có thể loáng thoáng cảm giác được. Nếu không, sẽ chỉ cho rằng, hắn là một bộ âm u đầy tử khí thi thể.
+
+"Nghe nói qua « Cửu Chuyển Sinh Tử Quyết » sao?" Trương Nhược Trần nói.
+
+Lăng Phi Vũ nói: "Hắn tu luyện đúng là loại kỳ công này."
+
+"Năm đó, ta truyền cho hắn."
+
+Trương Nhược Trần tiếp tục nói ra: "Tại hắn tu luyện tới thứ năm chuyển thời điểm, thể nội liền đã tu luyện ra sinh tử chi khí. Chỉ cần sinh tử chi khí không tiêu tan, tinh thần ý chí bất diệt, sẽ không phải chết. Mà bây giờ, trong cơ thể của hắn, xuất hiện Thái Cực Sinh Tử Ấn, sinh tử chi khí, sinh sôi không ngừng, cũng nhanh muốn đạt tới thứ bảy chuyển."
+
+"Cái gì gọi là sắp đạt tới thứ bảy chuyển?"
+
+Trương Nhược Trần ánh mắt, trở nên có chút phức tạp , nói: "Sống lại, chính là thứ bảy chuyển. Không sống được, chính là chết."
+
+Trương Nhược Trần cũng không có đem A Nhạc thi thể thu nhập vào Càn Khôn giới, lo lắng Càn Khôn giới mở ra thời điểm, bị vị giáo chủ đại nhân kia phát giác được.
+
+Thế là, hắn ôm A Nhạc thi thể, rời đi Thánh Thủy phong, trực tiếp hướng về Thánh Mộc phong mà đi.
+— QUẢNG CÁO —
+
+Bái Nguyệt ma giáo chính là bảy đại cổ giáo đứng đầu, thế lực khổng lồ, trải rộng thiên hạ, trong giáo lại là có mười hai cái Trung Cổ thế gia, mấy trăm cái Thánh Giả môn phiệt, Bán Thánh gia tộc và nhỏ hơn gia tộc thì là vô số kể.
+
+Mộc gia, chính là mười hai cái Trung Cổ thế gia một trong, Thánh Mộc phong là Mộc gia nhân vật trọng yếu chỗ tu luyện, linh khí dồi dào trình độ, có thể cùng chín đại cung đạo tràng, đánh đồng.
+
+Trương Nhược Trần đứng tại dưới Thánh Mộc phong, nhìn xem phía trên từng tòa rộng lớn kiến trúc, cất giọng nói: "Đoan Mộc sư tỷ, Trương Nhược Trần đến trả lời hứa năm đó, không biết có thể hiện thân gặp mặt?"
+
+Từng đạo sóng âm tuôn ra đi, truyền khắp toàn bộ Thánh Mộc phong, chấn động toàn bộ Mộc gia, tất cả Thánh cảnh cao thủ cơ hồ trong cùng một lúc bị bừng tỉnh.
+
+Khoảng cách Thánh Mộc phong hơi gần Ma giáo tu sĩ, cũng đều giật nảy mình.
+
+"Ai? Trương Nhược Trần? Cái nào Trương Nhược Trần?"
+
+"Đoan Mộc sư tỷ là ai?"
 
 . . .
 
-Trương Nhược Trần, Hoàng Yên Trần, Thanh Mặc đã rời đi, trên mặt đất, chỉ còn lại có một tòa Không Gian Truyền Tống Trận, Ngao Tâm Nhan liền tranh thủ trận bàn thu nhập vào nhẫn không gian, giữ đứng lên.
+Rất nhiều tu sĩ, đều hướng Thánh Mộc phong chạy tới, luôn cảm giác là có đại sự muốn phát sinh.
 
-Ngao Tâm Nhan biết Trương Nhược Trần thương thế gần như không có khả năng khỏi hẳn, lần này cùng hắn tách ra, cũng không biết còn có hay không cơ hội gặp lại?
+"Trương Nhược Trần, hắn vậy mà thật đến rồi!"
 
-Nàng nhìn qua phương bắc, trở nên thất thần.
+Trong Thánh Mộc phong, trong một tòa cung điện do Huyền Thiết rèn đúc, Mộc Linh Hi cũng nghe đến Trương Nhược Trần thanh âm, ánh mắt lộ ra kích động cùng may mắn thần sắc, lập tức hướng về ngoài cửa phóng đi.
 
-Trong Thần Long Bán Nhân tộc, hoàn toàn chính xác có một ít Thánh Giả rất muốn đạt được Không Gian Truyền Tống Trận, nhưng là, nhưng không ai dám đắc tội Ngao Tâm Nhan, đành phải thu liễm ý nghĩ trong lòng.
+Thế nhưng là, còn không có xông ra đại môn, Mộc Linh Hi liền bị Vân Tranh ngăn cản trở về.
 
-Dực Long Vương cũng biết Trương Nhược Trần đã đào tẩu, trong lòng càng thêm tức giận, rống to một tiếng, thi triển ra thôn phệ thánh thuật, ở trên đảo đại hưng giết chóc, đem Thần Long Bán Nhân tộc tộc nhân xem như đồ ăn, không ngừng nuốt vào trong miệng.
+"Ngươi muốn đi đâu?"
 
-"Không có biện pháp khác, chỉ có thể vận dụng Vạn Tinh đại trận lực lượng đối phó hắn."
+Vân Tranh sắc mặt lạnh nhạt trầm xuống, trừng Mộc Linh Hi một chút.
 
-Ngao Dịch hai mắt toát ra hỏa diễm, không lại chờ đợi, đang muốn hạ lệnh phát động công kích, bỗng dưng, Thần Mộng trạch trên không trở nên một vùng tăm tối.
+Mộc Linh Hi trong đôi mắt linh động, tất cả đều là ước ao và cảm động , nói: "Trương Nhược Trần đến rồi! Ta liền biết hắn nhất định sẽ tới, hắn đã nói, cho tới bây giờ đều là nhất ngôn cửu đỉnh, cho tới bây giờ cũng sẽ không gạt ta. Phụ thân, ngươi thả ta ra ngoài gặp hắn. . ."
 
-Từng tầng từng tầng đám mây màu đen hiển hiện ra, tại thiên không xoay tròn, liền ngay cả bay ở giữa không trung cự thạch sơn nhạc phát ra quang mang cũng biến thành có chút tối nhạt.
+"Ngươi còn muốn gặp hắn? Ngươi bây giờ là Thu Vũ công tử vị hôn thê, tốt nhất thu liễm chính mình . Còn Trương Nhược Trần, hừ, hắn là đến tìm cái chết, phó giáo chủ cùng gia chủ đã chạy tới, rất nhanh ngươi liền có thể trông thấy đầu của hắn."
 
-"Chuyện gì xảy ra?"
+Nhìn thấy nữ nhi như vậy bất tranh khí, Vân Tranh tức giận đến một chưởng đánh ra ngoài, bộp một tiếng, đánh cho Mộc Linh Hi ngã trên mặt đất.
 
-Trên Long Linh đảo, Thần Long Bán Nhân tộc tu sĩ, toàn bộ đều lộ ra vẻ khó hiểu, không rõ ràng vì sao ban ngày trong nháy mắt biến thành đêm tối.
+Nếu là, nàng tiếp tục cùng Trương Nhược Trần ngẫu đứt tơ còn liền, chọc giận Thu Vũ công tử làm sao bây giờ?
 
-Trên hòn đảo nhỏ kia, Dực Long Vương ngừng lại, bản năng cảm giác được một luồng khí tức nguy hiểm, trừng lớn một đôi long nhãn, nhìn chăm chú về phía trên không đám mây màu đen.
+Vân Tranh không dám tưởng tượng hậu quả đáng sợ kia, đóng lại Huyền Thiết trọng môn, khởi động giam cầm trận pháp, sau đó, lập tức hướng dưới Thánh Mộc phong tiến đến, vô luận như thế nào, cũng muốn giết Trương Nhược Trần, không thể bởi vì hắn, hủy chính mình cùng Mộc gia huy hoàng tương lai.
+
+"Phụ thân. . . Ngươi thả ta ra ngoài. . . Các ngươi không thể như vậy đối với Trương Nhược Trần. . . Các ngươi tại sao có thể bộ dạng này. . ."
+
+Trong Huyền Thiết cung điện, truyền ra Mộc Linh Hi mười phần bất lực cùng bi thương thanh âm, cùng trước kia hoạt bát và lạc quan, tạo thành sự chênh lệch rõ ràng. Thế nhưng là, vô luận nàng như thế nào khóc cầu, cũng nghe không đến bất luận cái gì đáp lại.
+
+. . .
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1378
+
+Chương 1375: Lập thệ
+
+Converter: DarkHero
+
+Từng đạo cường đại Thánh Đạo khí tức, từ trong Thánh Mộc phong phát ra, khiến cho không gian chung quanh đều đang rung động nhè nhẹ. Trong đó, sắc bén nhất hai đạo khí tức, từ đỉnh núi xông ra, hóa thành hai mảnh thánh vân, lơ lửng tại Trương Nhược Trần hướng trên đỉnh đầu.
+
+Trừ cái đó ra, Mộc gia nhân vật trọng yếu, cũng đều nhao nhao xuống núi, như lâm đại địch nhìn chằm chằm đối diện Trương Nhược Trần. Tu vi yếu nhất Mộc gia tu sĩ, cũng đều đạt tới Bán Thánh cảnh giới.
+
+Bởi vậy cũng là có thể nhìn ra, một cái Trung Cổ thế gia nội tình là bực nào kinh người.
+
+Trương Nhược Trần ôm A Nhạc thi thể, bình tĩnh nhìn Mộc gia chư vị cường giả, ánh mắt khóa chặt ở trên thân Vân Tranh , nói: "Vân Tranh tiền bối, từ khi chia tay đến giờ không có vấn đề gì chứ?"
+
+Vân Tranh từ trong mọi người đi ra, toàn thân có từng tầng từng tầng thánh quang đang cuộn trào, tản mát ra khí thế cường đại, âm thanh lạnh lùng nói: "Trương Nhược Trần, thiếu cùng bản thánh bấu víu quan hệ, ta cùng ngươi không quen."
+
+Trương Nhược Trần mặt không đổi sắc , nói: "Ta muốn gặp Đoan Mộc sư tỷ một mặt."
+
+"Linh Hi hiện tại là Hỏa tộc Thu Vũ công tử vị hôn thê, mùng bảy tháng sau, liền sẽ thành hôn. Tiểu bối, Thánh Mộc phong không phải địa phương ngươi nên tới, Thu Vũ công tử cũng không phải người ngươi đắc tội nổi, về sau tốt nhất cách Linh Hi xa một chút." Vân Tranh nói ra.
+
+"Ta hiểu được, ngươi không làm chủ được." Trương Nhược Trần nói.
+
+"Ngươi. . ."
+
+Nghe nói như thế, Vân Tranh sắc mặt vô cùng khó xử, cắn chặt răng răng, ánh mắt lộ ra một cỗ tức giận.
+
+Trương Nhược Trần ngẩng đầu lên, nhìn chằm chằm bay ở thiên khung hai mảnh thánh vân , nói: "Âu Dương Hoàn, ngươi cũng không dưới tới gặp thấy một lần ta người bạn cũ này?"
+
+Một cỗ thánh xa màu bạc, bay ra thánh vân, tản ra hào quang sáng chói, bay xuống trên mặt đất.
+
+Âu Dương Hoàn ngồi trên Ngân Loan Thánh Xa, mặc một thân trắng tinh không tì vết thánh bào, tóc dài đen nhánh chỉnh chỉnh tề tề buộc ở đỉnh đầu, vẫn như cũ tương đương tuổi trẻ, tuấn dật, ưu nhã, tựa như là một vị tuyệt đại Trích Tiên.
+
+Mộc gia những Bán Thánh kia, thậm chí Thánh cảnh lão tổ cấp bậc nhân vật, toàn bộ khom mình hành lễ: "Bái kiến phó giáo chủ."
+
+Âu Dương Hoàn nhìn chằm chằm Trương Nhược Trần, cười nói: "Ngắn ngủi thời gian một năm, ngươi vậy mà nghèo túng đến trình độ như vậy."
+
+"Còn không phải nhờ ngươi ban tặng?" Trương Nhược Trần nói.
+
+Âu Dương Hoàn lắc đầu , nói: "Ngươi biết, một năm trước, sư huynh đệ chúng ta chín người, vì sao muốn liều chết ngăn cản ngươi? Không phải muốn giết ngươi, mà là vì cứu ngươi. Nếu là, ngày đó ngươi vượt qua Tử Vi cung cửa cung, hẳn phải chết không nghi ngờ, làm sao có thể còn có thể đứng ở chỗ này?"
+
+Trương Nhược Trần nói: "Lập Địa, Tuyết Vô Dạ, Cái Thiên Kiều, Bắc Cung Lam, Tuế Hàn, thậm chí Trì Vạn Tuế, đều có thể là đang cứu ta. Nhưng là, tuyệt không bao quát ngươi. Ngươi một chưởng kia, là muốn làm cho ta vào chỗ chết, hơn nữa còn muốn giết ta tại trong tay nữ nhân chính mình đã từng, dụng tâm của ngươi, không thể bảo là không hung ác."
+— QUẢNG CÁO —
+
+
+Âu Dương Hoàn lâm vào trầm mặc , nói: "Ngươi hay là rất thông minh, đáng tiếc làm việc quá xúc động. Hôm nay, leo lên Vô Đỉnh sơn, cùng ngày xưa xông vào Tử Vi cung, một dạng ngu xuẩn."
+
+"Ta làm việc như thế nào, không cần ngươi đến đánh giá."
+
+Trương Nhược Trần lại hỏi: "Thu Vũ ở nơi nào?"
+
+"Thu Vũ không tại Vô Đỉnh sơn, nếu là, ngươi có thể chủ động đem Giới Tử Ấn trả lại cho ta, ta có thể mời ngươi tham gia mùng bảy tháng sau tiệc cưới, đến lúc đó, ngươi tự nhiên có thể nhìn thấy hắn." Âu Dương Hoàn nói.
+
+"Mùng bảy tháng sau đúng không? Ta nhất định đúng giờ chạy đến đi gặp."
+
+Trương Nhược Trần ánh mắt, lần nữa nhìn chăm chú về phía cao vút trong mây Thánh Mộc phong, phun ra một ngụm sóng âm , nói: "Đoan Mộc sư tỷ, ngươi nhất định phải trân quý chính mình sinh mệnh, không nên tùy tiện từ bỏ. Trương Nhược Trần ở đây lập thệ, mùng bảy tháng sau, nhất định chạy đến tiếp ngươi rời đi , bất kỳ người nào đều mơ tưởng ép buộc ngươi làm sự tình ngươi không nguyện ý làm."
+
+Trương Nhược Trần nói ra mỗi một chữ, đều là nói năng có khí phách, một mực truyền đến ở ngoài ngàn dặm, kinh động đến tất cả Ma giáo tu sĩ.
+
+Trương Nhược Trần đi vào Thánh Mộc phong, chính là vì nói một câu nói kia, nhất định phải cho Mộc Linh Hi một hy vọng, nếu không, lấy nàng tính cách, hơn phân nửa đợi không được mùng bảy tháng sau, liền sẽ tự sát.
+
+Thánh Mộc phong, trong một tòa Huyền Thiết cung điện, Mộc Linh Hi nằm rạp trên mặt đất, nghe được Trương Nhược Trần lời thề, trong lòng vô cùng cảm động. Chỉ cần có thể nghe được một câu nói như vậy, cho dù chết đi, cũng đã không có tiếc nuối.
+
+Đồng thời, Mộc Linh Hi cũng tương đương lo lắng Trương Nhược Trần an nguy, sợ hãi Trương Nhược Trần vì nàng, xông vào Vô Đỉnh sơn, làm ra lấy trứng chọi đá việc ngốc.
+
+"Đủ rồi, có một câu nói như vậy cũng liền đủ. . . Trương Nhược Trần, ngươi không dùng để, không dùng xong lời hứa năm đó, đã đủ. . ."
+
+Mộc Linh Hi tự lẩm bẩm, trong mắt chảy nước mắt, trên mặt lại hiện ra một vòng nụ cười hạnh phúc.
+
+Đáng tiếc, không có người thay Mộc Linh Hi truyền lời, Trương Nhược Trần cũng nghe không đến thanh âm của nàng.
+
+Lâm Tố Tiên đứng cách Thánh Mộc phong không xa một tòa linh sơn đỉnh chóp, trên mặt mang theo lụa trắng, nhìn qua dưới Thánh Mộc phong từng đạo thánh quang, trong một đôi mắt đẹp, lộ ra phức tạp cùng ưu thương thần sắc , nói: "Thấy không, lại là một người trẻ tuổi không biết tự lượng sức mình, cùng năm đó Lạc Hư cỡ nào giống. Đáng tiếc, hiện thực căn bản không phải nhân lực có thể chống lại, cuối cùng lại chính là một đoạn bi kịch."
+
+Lâm Phi Vũ đứng sau lưng Lâm Tố Tiên , nói: "Mẫu thân không phải vẫn luôn nói, có thể gặp được một vị nam tử giống Lạc Hư tiền bối như thế vì ngươi liều chết mà chiến, đã không cầu gì khác? Mộc Linh Hi có thể gặp được Trương Nhược Trần, không phải là không khiến người vô cùng hâm mộ."
+
+Trương Nhược Trần ôm A Nhạc thi thể, chuẩn bị rời đi.
+
+Vân Tranh sắc mặt biến đổi, vội vàng hướng Mộc gia Thánh Chủ truyền âm , nói: "Trương Nhược Trần là Linh Hi tâm bệnh, hắn không chết, Linh Hi sẽ không hết hi vọng."
+
+Lập tức, trên không trong một mảnh thánh vân, truyền ra một đạo thanh âm đinh tai nhức óc: "Thánh Mộc phong há lại địa phương ngươi muốn tới thì tới, muốn đi thì đi?"
+
+Trương Nhược Trần hướng về trên không liếc đi, nhìn thấy một cái chừng 50 tuổi nam tử, đứng tại thánh vân trung tâm, cho người ta một loại ngưỡng mộ núi cao cảm giác, tuyệt đối là một vị cường giả số một.
+
+Từ trên người hắn, có hơn vạn đạo thánh quang xiềng xích từ thiên khung rủ xuống đến, mỗi một đạo thánh quang xiềng xích đều là do Thánh Đạo quy tắc xen lẫn mà thành.
+
+"Mộc gia Thánh Chủ, cũng là thành danh mấy trăm năm Thánh Đạo bá chủ, vậy mà đối với một tên tiểu bối xuất thủ, cũng không sợ bị thiên hạ tu sĩ chế nhạo?" Một đạo sáng tỏ kiếm quang, từ đằng xa bay tới, kéo lấy thật dài quang toa, rơi xuống đất, ngưng tụ thành Lăng Phi Vũ thân hình.
+
+Nhìn thấy Lăng Phi Vũ hiện thân, ở đây Ma giáo tu sĩ, toàn bộ đều quỳ xuống hành lễ.
+
+Mộc gia Thánh Chủ hừ lạnh một tiếng , nói: "Lăng cung chủ, Mộc gia việc nhà, ngươi cũng muốn quản sao?"
+
+Lăng Phi Vũ hai con ngươi lạnh lẽo, như là kiếm một dạng sắc bén , nói: "Bản cung chủ đã từng thiếu Trương Nhược Trần một cái nhân tình, hôm nay, vô luận như thế nào cũng muốn bảo đảm hắn rời đi Vô Đỉnh sơn."
+
+Một vị Thánh Vương tự mình ra mặt, từ trên người nàng phát ra thánh uy, chấn nhiếp toàn trường, liền xem như Vân Tranh như thế Thánh Giả, cũng đều là toàn thân không cách nào động đậy, tựa như là có thập trọng sơn nhạc đè ở trên người.
+
+Thánh Vương chính là Vương giả trong Thánh Đạo, tùy tiện một kích, cũng có thể diệt thánh.
+
+Vương giả trong Thánh Đạo đều hiện thân, ai còn dám làm trái?
+
+Thế nhưng là, đúng lúc này, một cỗ khác không kém gì Lăng Phi Vũ thánh uy, từ trong Thánh Mộc phong truyền ra. Hai cỗ thánh uy đụng thẳng vào nhau, lập tức, làm cho vùng thiên địa này đều thổi lên gió lốc.
+
+Lăng Phi Vũ hai con ngươi ngưng tụ, hướng về nơi xa nhìn lại, chỉ gặp, một người mặc trường bào màu đen yểu điệu thân ảnh, giống như quỷ mị đồng dạng, đứng tại gió lốc trung tâm, giống như là một cái lỗ đen, đem chung quanh tia sáng toàn bộ đều thôn phệ.
+
+"Dạ Tiêu Tương, ngươi lại muốn nhúng tay chuyện này?" Lăng Phi Vũ nói.
+
+Đạo thân ảnh màu đen kia, chính là Ma giáo Cửu Cung một trong Ám Dạ cung cung chủ, Dạ Tiêu Tương.
+
+Dạ Tiêu Tương khẽ cười một tiếng , nói: "Bản cung chủ chẳng qua là cảm thấy, cách làm của ngươi, đối với Mộc gia quá không công bằng, muốn nói một câu lời công đạo."
+
+"Làm sao không công bằng?" Lăng Phi Vũ nói.
+
+Dạ Tiêu Tương nói: "Trương Nhược Trần cũng không phải là thần giáo đệ tử, lại dám xông vào vào đến Thánh Mộc phong, kêu gào muốn phá hư Mộc gia một vị tiểu bối hôn sự, không thể nghi ngờ là đang gây hấn với Mộc gia. Nếu là Mộc gia cứ như vậy thả hắn rời đi, sau này còn thế nào trong giáo đặt chân? Lăng cung chủ, ngươi cũng không thể vì trả nhân tình của mình, liền để Mộc gia tiếp nhận lớn như vậy khuất nhục a?"
+
+Mộc gia Chư Thánh, nhao nhao mở miệng , nói: "Không sai, Mộc gia tuyệt không thể nhịn xuống khẩu khí này."
+— QUẢNG CÁO —
+
+"Lăng cung chủ, Mộc gia cũng là Trung Cổ thế gia, hi vọng ngươi có thể cho chúng ta Mộc gia lưu một chút mặt mũi, miễn cho ngoại nhân đều cảm thấy Mộc gia dễ ức hiếp."
+
+. . .
+
+Dạ Tiêu Tương trong hai con ngươi, lộ ra một đạo ý cười , nói: "Lăng cung chủ tu vi cao thâm, ở trong Thánh Đạo phong vương, thế nhưng là, cũng không thể khinh người quá đáng. Dù sao, Mộc gia vị lão tổ tông kia, cũng là Vương giả trong Thánh Đạo. Chờ đến lão nhân gia ông ta trở về, ngươi nên như thế nào hướng hắn bàn giao?"
+
+Lăng Phi Vũ nói: "Ngươi không cần như thế âm dương quái khí, nói đi, lấy ý của ngươi, làm sao mới tính công bằng?"
+
+"Trương Nhược Trần nếu là có thể tiếp được Mộc gia Thánh Chủ ba chiêu mà không chết, bản cung chủ cùng ngươi cùng một chỗ bảo vệ hắn tính mệnh, đồng thời tự mình tặng hắn xuống núi. Như thế nào?" Dạ Tiêu Tương nói.
+
+"Không được. Mộc Kình Thiên tu vi, đã đạt tới Chân Thánh hậu kỳ, tu vi cỡ nào thâm hậu, ba chiêu đằng sau, Trương Nhược Trần chỗ nào còn có thể sống được?" Lăng Phi Vũ nói.
+
+Lăng Phi Vũ có thể nhìn ra, cho dù là mỗi ngày uống rượu, Trương Nhược Trần tu vi cũng không có hoang phế, một năm này, Trương Nhược Trần tu vi có thể nói là đột nhiên tăng mạnh, đã đạt tới Huyền Hoàng cảnh đỉnh phong.
+
+Năm đó, Lăng Phi Vũ từ Huyền Hoàng cảnh sơ kỳ, tu luyện tới đỉnh phong, thế nhưng là ròng rã hao tốn thời gian năm năm.
+
+Lấy Trương Nhược Trần tăng lên tốc độ, cùng phục dụng vô số đan dược Âu Dương Hoàn so sánh, cũng là mảy may đều không chậm.
+
+Nhưng là, Chân Thánh cảnh giới lại là không thể coi thường, từ sơ kỳ đến trung kỳ, từ đó kỳ đến hậu kỳ, mỗi một cái tiểu cảnh giới, đều là trên trời dưới đất chênh lệch.
+
+Một cái Huyền Hoàng cảnh Thánh Giả, coi như có được lại nghịch thiên thể chế, cường đại tới đâu thiên tư, muốn ngăn trở một vị Chân Thánh hậu kỳ cường giả ba đòn, cũng không thực tế sự tình.
+
+Trương Nhược Trần tự nhiên là không muốn để cho Lăng Phi Vũ khó xử, dù sao, nàng tại Ma giáo tình cảnh cũng rất gian nan, thế là, đứng ra ngoài , nói: "Ba chiêu, đúng không? Ta tiếp."
+
+"Không hổ là Thời Không truyền nhân, hảo phách lực." Dạ Tiêu Tương phát ra một đạo tiếng cười như chuông bạc.
+
+Âu Dương Hoàn nhìn ra Dạ Tiêu Tương mưu đồ, khóe miệng có chút nhất câu, lầu bầu nói: "Trương Nhược Trần quá tự phụ, Chân Thánh hậu kỳ nhân vật, như thế nào Chân Thánh sơ kỳ nhân vật có thể so sánh với?"
+
+Nơi xa, Lâm Tố Tiên nhẹ nhàng lắc đầu , nói: "Vốn còn muốn nhìn một chút, mùng bảy tháng sau, hắn muốn thế nào nghiêng trời lệch đất, vì Mộc Linh Hi nghịch thiên cải mệnh. Đáng tiếc, hắn lại là sống không quá đêm nay."
+
+Đánh giá điểm 9-10 cuối chương để ủng hộ Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1379
+
+Chương 1376: Nhược Trần Kiếm Thánh
+
+Lăng Phi Vũ ánh mắt tương đương trầm ngưng, nghiêm túc nói: "Chân Thánh chi đạo, chính là hóa hư làm thật Thánh Đạo quy tắc chi đạo. Đưa ngươi Thánh Đạo quy tắc so sánh là lỏng lẻo bùn đất, Chân Thánh Thánh Đạo quy tắc chính là cứng rắn nham thạch, Chân Thánh hậu kỳ Thánh Đạo quy tắc thì là tinh thiết bền chắc không thể phá được. Bùn đất như thế nào chống đỡ được tinh thiết?"
+
+Trương Nhược Trần cùng Chân Thánh sơ kỳ Phong Ngân Ảnh giao thủ qua, minh bạch Chân Thánh cường đại, thế nhưng là, hắn cũng là xưa đâu bằng nay, cho dù là đối mặt Chân Thánh hậu kỳ nhân vật, cũng là không sợ hãi chút nào.
+
+"Ngăn không được, vậy liền không ngăn."
+
+Trương Nhược Trần nói một câu như vậy, liền đem A Nhạc thi thể, nhẹ nhàng để dưới đất, sau đó, thẳng tắp sống lưng, nhìn chăm chú về phía đứng tại trong thánh vân Mộc gia Thánh Chủ.
+
+Lăng Phi Vũ thoáng có chút ngạc nhiên, đang âm thầm suy nghĩ Trương Nhược Trần ý tứ của những lời này.
+
+Mộc gia Thánh Chủ cũng là không còn nói nhảm, cấp tốc vận chuyển thánh khí, trực tiếp động thủ.
+
+Từng đạo Hàn Băng Thánh Đạo quy tắc cùng thánh khí đồng thời từ trong cơ thể của hắn điên tuôn ra, hội tụ tại đôi thủ chưởng tâm, ngưng tụ thành một thanh quang mang vạn trượng chiến kiếm.
+
+Mộc gia Thánh Chủ hết sức rõ ràng Trương Nhược Trần chiến tích, kẻ này thế nhưng là có thể lấy lực lượng một người đánh bại chín đại Giới Tử, bởi vậy, đánh ra chiêu thứ nhất, chính là toàn lực ứng phó.
+
+"Hàn Quang Nghênh Khách Kiếm."
+
+"Mộc Kình Thiên quả nhiên chú ý cẩn thận, vậy mà trực tiếp thi triển ra thánh thuật. Đây là muốn dùng một chiêu, liền đem Trương Nhược Trần trấn sát, không cho hắn lưu nửa phần đường sống."
+
+. . .
+
+Một chiêu này thánh thuật, sức mạnh bùng lên ba động, trấn áp đến vô số Bán Thánh cảnh giới trở xuống tu sĩ quỳ rạp trên đất.
+
+Đứng tại thánh thuật trung tâm nhất Trương Nhược Trần, hiển nhiên là thừa nhận càng thêm áp lực cực lớn.
+
+Lăng Phi Vũ không cách nào bảo trì trấn định, muốn xuất thủ, lại bị Dạ Tiêu Tương kiềm chế lại.
+
+Dạ Tiêu Tương cười cười: "Lăng cung chủ hẳn là tin tưởng Trương Nhược Trần, chỉ là ba chiêu mà thôi, vạn nhất hắn có thể tiếp tục chống đỡ đâu?"
+
+Mộc gia Thánh Chủ chung quanh thân thể, có phong lôi âm thanh truyền ra, trong miệng phun ra một chữ: "Chết."
+
+Hai tay nhấn một cái, ngưng tụ ra thánh thuật "Hàn Quang Nghênh Khách Kiếm" hướng phía dưới đánh đi ra, lập tức, thanh chiến kiếm hàn quang bắn ra bốn phía này, như là một thanh hình kiếm sơn phong đồng dạng, rơi xuống dưới.
+
+Ánh mắt mọi người, đều là nhìn chăm chú về phía Trương Nhược Trần, rất muốn biết vị Thời Không truyền nhân này, sẽ như thế nào ngăn cản một kích này.
+
+Đã thấy, Trương Nhược Trần khí thế trên người, trong nháy mắt, phát sinh nghiêng trời lệch đất biến đổi lớn, từng đạo kiếm ý từ thể nội dũng mãnh tiến ra, ngưng tụ ra kiếm ảnh.
+
+Sau đó, những kiếm ảnh kia hội tụ vào một chỗ, ngưng tụ thành một thanh dài ba trượng Thánh Kiếm.
+
+Do kiếm ý ngưng tụ thành Thánh Kiếm.
+
+"Đây là. . ."
+
+Lăng Phi Vũ cùng Dạ Tiêu Tương sắc mặt, đều là hơi đổi.
+
+Coi bọn nàng tu vi, tự nhiên là ngay đầu tiên, phát hiện Trương Nhược Trần đạt đến Kiếm Thánh cảnh giới.
+— QUẢNG CÁO —
+
+"Hoa ——" Trương Nhược Trần cùng dài ba trượng Thánh Kiếm, hóa thành một đạo sắc bén kiếm quang, phóng lên tận trời, cùng "Hàn Quang Nghênh Khách Kiếm" đụng vào nhau.
+
+Kiếm quang thế như chẻ tre, đánh cho "Hàn Quang Nghênh Khách Kiếm" từng tấc từng tấc vỡ nát, có liên tiếp tiếng bạo liệt vang lên.
+
+"Ta rốt cuộc minh bạch hắn câu nói kia ý tứ, ngăn không được, cũng không cần cản, trực tiếp công trở về. Kiếm Thất đại viên mãn, chân chính Kiếm Thánh chi cảnh."
+
+Lăng Phi Vũ trên khuôn mặt trắng không tì vết kia, lộ ra một đạo hiếm thấy dáng tươi cười.
+
+Mộc gia Thánh Chủ trông thấy tật tốc tới gần kiếm quang, khóe miệng co quắp bỗng nhúc nhích, nhận ra Trương Nhược Trần sử dụng chính là Kiếm Thất.
+
+Đại viên mãn Kiếm Thất.
+
+Lấy Kiếm Thất đáng sợ lực xuyên thấu, liền xem như Chân Thánh hậu kỳ Thánh Đạo quy tắc, cũng là khó mà ngăn cản.
+
+"Phi Nguyệt Kính."
+
+Mộc gia Thánh Chủ mi tâm, xuất hiện một cái vòng xoáy màu đen, tựa như là một tòa hang động bày biện ra tới. Trong huyệt động, bay ra một mặt cổ kính màu đỏ rực.
+
+Đó là Mộc gia một kiện chí bảo, tại cổ kính nội bộ, có khắc một vạn ba ngàn đạo Minh Văn, đạt đến Vạn Văn Thánh Khí cấp bậc.
+
+Vạn Văn Thánh Khí uy lực, so Thiên Văn Thánh Khí không biết mạnh mẽ bao nhiêu lần.
+
+"Bành."
+
+Trương Nhược Trần trong tay ba trượng Thánh Kiếm, cùng Phi Nguyệt Kính đụng vào nhau, khiến cho thiên địa mãnh liệt chấn động, từng đạo gợn sóng năng lượng, tại va chạm đại địa.
+
+May mắn Lăng Phi Vũ cùng Dạ Tiêu Tương hai vị Thánh Vương hóa giải cỗ lực lượng kia, nếu không chiến đấu phát ra dư ba, khẳng định sẽ tạo thành thương vong to lớn.
+
+"Thật cường đại kiếm quyết, chỉ là một chiêu, chính là đánh nát Hàn Quang Nghênh Khách Kiếm."
+
+"Trương Nhược Trần thực lực, vậy mà kinh khủng như thế, thế mà làm cho Thánh Chủ sử dụng ra Phi Nguyệt Kính, mới có thể ngăn ở hắn một kiếm này."
+
+"Kiếm Thất, khẳng định là đại viên mãn Kiếm Thất, sau này chỉ sợ đến xưng hô Trương Nhược Trần là Nhược Trần Kiếm Thánh."
+
+. . .
+
+. . .
+
+Ma giáo tu sĩ, căn bản không nhìn thấy Trương Nhược Trần cùng Mộc gia Thánh Chủ thân ảnh, chỉ có thể nhìn thấy một vòng phi nguyệt kia cùng một đạo kiếm quang sáng chói.
+
+Một vị Trung Cổ thế gia gia chủ, tự mình xuất thủ, vậy mà không trấn áp được một cái tuổi trẻ tiểu bối, sao có thể không khiến người ta giật mình?
+
+Mộc gia Thánh Chủ hiển nhiên cũng là cảm thấy có chút mất mặt, hừ lạnh một tiếng, đột nhiên một chưởng đánh vào Phi Nguyệt Kính mặt sau, thể nội thánh khí dâng lên mà ra.
+
+Từ mặt đất nhìn lại, tựa như là phi nguyệt phát ra vạn trượng hào quang, đem phạm vi ngàn dặm đều chiếu rọi thành màu đỏ rực.
+
+"Bành."
+
+Thanh Thánh Kiếm dài ba trượng này, không chịu nổi Phi Nguyệt Kính lực lượng, bạo liệt thành mảnh vỡ.
+
+Mộc gia Thánh Chủ trên mặt, hiện ra một đạo vui mừng, một thủ chưởng khác cũng là ấn đi qua, điều khiển Phi Nguyệt Kính, hướng phía dưới trấn áp.
+
+Trương Nhược Trần mặt không đổi sắc, ngay tại kiếm ý Thánh Kiếm vỡ nát một khắc này, Trầm Uyên cổ kiếm bay ra, xuất hiện ở trong tay của hắn.
+
+"Chém."
+
+Một kiếm vung chém tới.
+
+Lập tức, Trương Nhược Trần cùng Mộc gia Thánh Chủ chung quanh tốc độ thời gian trôi qua, trở nên vô cùng chậm chạp. Vung chém ra đi Trầm Uyên cổ kiếm, vạch ra một cái đường cong, bộp một tiếng, chặt đứt Mộc gia Thánh Chủ đỉnh đầu phát quan.
+
+Mộc gia Thánh Chủ cấp tốc hướng về sau lùi lại, một mực thối lui đến Thánh Mộc phong đỉnh núi, mới là ổn định bước chân, trên đầu tóc dài rối tung xuống dưới, xốc xếch khoác lên trên mặt.
+
+Toàn bộ thiên địa đều là yên tĩnh im ắng, Ma giáo tu sĩ đều là cảm giác được toàn thân cứng ngắc, chấn kinh đến nói không ra lời.
+
+Một kiếm có thể gọt đi Mộc gia Thánh Chủ phát quan, khoảng cách chém xuống Mộc gia Thánh Chủ đầu lâu còn xa sao?
+
+"Ba chiêu kết thúc, ta phải đi!"
+
+Trương Nhược Trần hướng về Mộc gia Thánh Chủ lạnh lùng liếc qua, rơi xuống đất, thu hồi Trầm Uyên cổ kiếm, một lần nữa đem A Nhạc thi thể bế lên, thi triển ra Không Gian Đại Na Di, trong nháy mắt, đã tới bên ngoài ba trăm dặm.
+
+Liên tiếp mấy lần Đại Na Di đằng sau, Trương Nhược Trần rời đi Vô Đỉnh sơn khu vực, biến mất tại giữa thiên địa mịt mờ.
+
+Giờ phút này, Ma giáo một đám tu sĩ, mới là phản ứng lại, toàn bộ đều tại hít vào hàn khí.
+
+Lâm Phi Vũ một đôi trong đôi mắt đẹp, cũng là toát ra vẻ khiếp sợ , nói: "Thật là lợi hại, Mộc gia Thánh Chủ thâm hậu như vậy tu vi, vậy mà lại thua với Trương Nhược Trần."
+
+Lâm Tố Tiên cũng là có chút ngoài ý muốn , nói: "Kiếm Thất đại viên mãn, tuổi còn nhỏ vậy mà thành tựu Kiếm Thánh tôn vị, lấy tuổi của hắn, làm sao có thể lĩnh ngộ đạt được Kiếm Xuất Vô Hối cảnh giới?"
+
+"Vô luận như thế nào, trận chiến ngày hôm nay đằng sau, tên Trương Nhược Trần, chỉ sợ lại được chấn động thiên hạ." Lâm Phi Vũ nói ra.
+
+Lâm Tố Tiên cũng là nhẹ gật đầu , nói: "Ta rốt cục có chút chờ mong tháng sau mùng bảy."
+
+Dưới Thánh Mộc phong, Lăng Phi Vũ hướng Dạ Tiêu Tương liếc qua , nói: "Xem ra Trương Nhược Trần cũng không thích Dạ cung chủ tiễn hắn, hi vọng về sau còn có cơ hội."
+
+Sau khi nói xong, Lăng Phi Vũ hóa thành một đạo kiếm quang, bay trở về Thánh Nữ cung.
+
+Dạ Tiêu Tương mười ngón nắm chặt, ánh mắt vô cùng lăng lệ, hừ lạnh một tiếng, thân hình dần dần trở nên ảm đạm, cuối cùng biến mất ngay tại chỗ.
+
+Vân Tranh biết Trương Nhược Trần thực lực rất mạnh, lại không nghĩ rằng, vậy mà cường đại đến trình độ như vậy.
+
+Hắn bước nhanh đi đến Ngân Loan Thánh Xa bên cạnh , nói: "Phó giáo chủ, không thể thả Trương Nhược Trần rời đi, kẻ này đã trở thành Kiếm Thánh, tương lai nhất định là giáo ta đại địch."
+
+Âu Dương Hoàn ánh mắt cũng có một chút ngưng trọng, trầm tư một lát , nói: "Đã như vậy, ngươi đi chặn đường hắn."
+— QUẢNG CÁO —
+
+Vân Tranh sắc mặt biến đổi , nói: "Bản thánh. . . Làm sao có thể là đối thủ của hắn. . ."
+
+Âu Dương Hoàn lộ ra một đạo lạnh buốt ý cười: "Biết liền tốt. Một vị Kiếm Thánh còn muốn chạy, nào có dễ dàng như vậy lưu được, Thánh Vương xuất thủ còn tạm được. Thế nhưng là, Lăng cung chủ hạ quyết tâm muốn bảo đảm hắn, Dạ cung chủ lại làm ra hứa hẹn. Hiện tại chúng ta đuổi theo giết Trương Nhược Trần, chẳng phải là muốn đồng thời đắc tội các nàng hai vị?"
+
+Vân Tranh nói: "Thế nhưng là, Trương Nhược Trần thực lực cường đại như thế, vạn nhất mùng bảy tháng sau tới quấy rối làm sao bây giờ?"
+
+Âu Dương Hoàn nói: "Trương Nhược Trần rất thông minh, không có cưỡng ép đi xông Thánh Mộc phong, cũng không có cưỡng ép mang đi Mộc Linh Hi. Cho nên, hôm nay hắn có thể sống đi ra Vô Đỉnh sơn. Thế nhưng là, mùng bảy tháng sau, hắn còn dám tới quấy rối, chính là tại phá hư thần giáo hạch tâm lợi ích. Trong giáo những đại nhân vật kia, há có thể cho phép chuyện như vậy phát sinh?"
+
+"Nói cách khác, mùng bảy tháng sau, hắn dám leo lên Vô Đỉnh sơn, cũng liền hẳn phải chết không nghi ngờ? Vạn nhất. . . Lăng cung chủ lại tiếp tục che chở hắn đâu?" Vân Tranh nói.
+
+"Đến một bước kia, Lăng Phi Vũ còn dám cưỡng ép ra mặt. Đừng nói là nàng, chính là toàn bộ Lăng gia, đều có diệt tộc chi họa."
+
+Âu Dương Hoàn nhẹ nhàng cười một tiếng, trong mắt có một đạo âm trầm quang mang lóe lên một cái rồi biến mất.
+
+Trương Nhược Trần xông tới Vô Đỉnh sơn tin tức, rất nhanh liền truyền khắp thiên hạ, tại tu luyện giới, nhấc lên một cỗ ngập trời sóng lớn.
+
+"Trương Nhược Trần vậy mà sử dụng ba kiếm, liền đánh bại Mộc Kình Thiên, còn chặt đứt Mộc Kình Thiên phát quan? Thật hay giả? Mộc Kình Thiên thế nhưng là một tôn cái thế lão ma, vậy mà liền như thế lật thuyền trong mương?"
+
+"Thời Không truyền nhân Trương Nhược Trần vậy mà không có chết, còn tu vi tiến mạnh?"
+
+"Nghe nói, mùng bảy tháng sau, Trương Nhược Trần còn phải lại trèo lên Vô Đỉnh sơn, đi Ma giáo tổng đàn cướp cô dâu."
+
+"Như thế kình bạo? Trương Nhược Trần thật đúng là không ra tay thì thôi, vừa ra tay nhất định long trời lở đất."
+
+"Các ngươi đoán một chút cướp dâu của ai, bảo đảm dọa các ngươi kêu to một tiếng."
+
+. . .
+
+Tin tức truyền đi cực nhanh, ngay tại vào lúc ban đêm, thân ở trong Tử Vi cung Thánh Thư Tài Nữ, cũng là nhận được tin tức.
+
+Nhìn xem trong tay đưa tin ngọc phù, Thánh Thư Tài Nữ trên khuôn mặt đẹp đẽ không tì vết kia, hiện ra một đạo nụ cười nhàn nhạt: "Cuối cùng là từ trong khói mù đi ra, bất quá. . . Đi Bái Nguyệt ma giáo cướp cô dâu, lại không phải một kiện sáng suốt sự tình. Cùng Thu Vũ là địch, cùng cùng toàn bộ Côn Lôn giới là địch, khác nhau ở chỗ nào đâu?"
+
+Thu Vũ chính là Ngô Đồng Thần Thụ, tương lai có khả năng sẽ trưởng thành là Côn Lôn giới Thiên Địa Linh Căn, xưa nay không cùng bất kỳ thế lực nào trở mặt, ngược lại có vô số thế lực cùng hắn giao hảo.
+
+Trương Nhược Trần đoạt Thu Vũ tân nương, không thể nghi ngờ là cùng toàn bộ thiên hạ là địch.
+
+Thánh Thư Tài Nữ trầm tư một lát, sau đó, cầm Truyền Tin Quang Phù, hướng về Nguyên Sơ Thánh Điện bước đi, chuẩn bị đem việc này nói cho Hoàng Yên Trần, do nàng đến định đoạt.
+
+. .
+
+(ổn định đổi mới lâu như vậy, rốt cục có ý tốt cầu một cầu phiếu. Các vị thư hữu, xem hết chương tiết đằng sau, xin đem phiếu đầu cho cá con, đầu cho Vạn Cổ Thần Đế đi! )
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1380
+
+Chương 1377: Quần long đến hữu thủ
+
+Một năm trước, Khổng Lan Du sử dụng một đạo thủ ấn, đánh nát Nữ Hoàng tượng thần trong Tử Vi cung.
+
+Bây giờ, tôn tượng thần này lần nữa đứng vững đứng lên, tản mát ra từng sợi thất thải sắc thần mang, khiến cho toàn bộ Trung Ương Hoàng Thành bao phủ tại trong thiên địa thánh khí nồng đậm.
+
+Chỉ cần Nữ Hoàng không chết, tượng thần bất diệt, thần lực liền có thể chiếu rọi thiên địa.
+
+Nguyên Sơ Thánh Điện khoảng cách tượng thần gần nhất, bị Thần Linh chi khí bao trùm, có thể nói là toàn bộ Côn Lôn giới tốt nhất chỗ tu luyện. Tại Nguyên Sơ Thánh Điện tu luyện, không chỉ tu luyện tốc độ viễn siêu ngoại giới, mà lại, còn có thể tùy thời lĩnh hội Thần Linh chi đạo.
+
+Lúc này, Hoàng Yên Trần ngồi ở trong Nguyên Sơ Thánh Điện, tiếp kiến Thánh Thư Tài Nữ.
+
+Xem hết Truyền Tin Quang Phù nội dung phía trên, Hoàng Yên Trần rơi vào trầm mặc, một lát sau, mới là nói ra: "Sư tôn trước khi rời đi, đặc biệt bàn giao, Thu Vũ là Côn Lôn giới tương lai hi vọng, có khả năng trưởng thành là mới Thiên Địa Linh Căn, triều đình nhất định phải cho hắn trợ giúp lớn nhất."
+
+"Không sai." Thánh Thư Tài Nữ nói ra.
+
+Hoàng Yên Trần nói: "Thánh Thư Tài Nữ danh xưng thiên hạ thông minh nhất nữ tử, ngươi cảm thấy, ta nên làm như thế nào?"
+
+Thánh Thư Tài Nữ nói ra: "Hết thảy do Giới Tử định đoạt."
+
+Hoàng Yên Trần hơi nhíu mày, trong đôi mắt, toát ra một đạo đắng chát thần sắc.
+
+Hoàng Yên Trần trong lòng rõ ràng, Thánh Thư Tài Nữ là Trương Nhược Trần hồng nhan tri kỷ, một năm trước, nàng một kiếm đâm xuyên qua tim Trương Nhược Trần, chỉ sợ Thánh Thư Tài Nữ đối với nàng cũng có một chút oán khí.
+
+Cho nên, Thánh Thư Tài Nữ mới đưa như vậy lưỡng nan một sự kiện, giao cho để nàng làm quyết định.
+
+Hoàng Yên Trần nhẹ nhàng cắn môi, hít một tiếng: "Nếu như là ngươi, ngươi sẽ làm như thế nào làm?"
+
+Thánh Thư Tài Nữ mỉm cười không nói, chỉ là nhẹ nhàng lắc đầu.
+
+"Trong triều đình, Đấu Chiến Thiên Vương, Lăng Tiêu Thiên Vương, Nam Vực Vương cùng Thu Vũ đều có cực kỳ thân mật quan hệ, thậm chí, tam đại vương phủ còn cùng Hỏa tộc thông gia, bây giờ có thể nói là đồng khí liên chi. Nếu là ta không hạ lệnh ngăn lại, tam đại vương phủ tất nhiên sẽ trợ giúp Thu Vũ cùng Hỏa tộc trấn áp Trương Nhược Trần. Nếu là ta hạ lệnh, tam đại vương phủ tất nhiên sẽ nghe theo mệnh lệnh, không dám nhúng tay vào đi. Thế nhưng là. . . Ta nên nghe theo sư tôn thần dụ, hay là giúp một tay hắn đâu?"
+
+Hoàng Yên Trần phảng phất là đang lầm bầm lầu bầu, lại như là tại hỏi thăm Thánh Thư Tài Nữ.
+
+Thánh Thư Tài Nữ vẫn như cũ không nói một lời.
+
+Đúng lúc này, một cái xích hồng sắc Phượng Hoàng thánh ảnh từ ngoài điện bay tiến đến, ngưng tụ thành Thương Lan Võ Thánh thân thể mềm mại, người mặc xích hồng sắc thánh giáp, trên lưng hai cánh giống như hai mảnh hỏa vân.
+
+"Giới Tử điện hạ, Hỏa tộc cùng Bái Nguyệt ma giáo đồng thời sử dụng Truyền Tin Quang Phù truyền đến tin tức, mời ngươi tham gia mùng bảy tháng sau tại Vô Đỉnh sơn tiệc cưới, sau đó, sẽ đưa tới thiếp mời."
+
+Thương Lan Võ Thánh đem hai viên Truyền Tin Quang Phù, hiện lên đưa đi lên.
+
+Nhìn thấy hai viên Truyền Tin Quang Phù này, Hoàng Yên Trần nụ cười trên mặt càng thêm cứng ngắc , nói: "Cũng không phải ta sắp kết hôn, lại đem ta đẩy lên đỉnh sóng ngọn gió. Tốt một cái Âu Dương Hoàn, tốt một cái Thu Vũ, vậy mà lợi dụng ta đi đối phó Trương Nhược Trần. Chỉ sợ trong triều đình rất nhiều đại nhân vật cũng nhận được mời, tất cả mọi người đang chờ xem ta như thế nào đối phó Trương Nhược Trần? Các ngươi hai vị cũng cảm thấy đây là một trận trò hay, đúng không?"
+
+Thánh Thư Tài Nữ cùng Thương Lan Võ Thánh liếc nhau một cái, đồng thời lắc đầu, lại đồng thời nói ra: "Giới Tử nếu là không muốn đi, không có người có thể miễn cưỡng ngươi."
+— QUẢNG CÁO —
+
+
+"Đi, vì cái gì không đi. Náo nhiệt như vậy tiệc cưới, bỏ qua lần này, không biết bao lâu mới có thể chờ đợi đến lần tiếp theo."
+
+Hoàng Yên Trần đứng dậy, toàn thân tản ra một cỗ khí thế bén nhọn.
+
+Thánh Thư Tài Nữ cùng Thương Lan Võ Thánh đều là hơi giật mình, ở trên thân Hoàng Yên Trần, phảng phất thấy được Trì Dao Nữ Hoàng bóng dáng. Cùng tu vi không quan hệ, chỉ là loại khí chất cùng ánh mắt kia, thực sự quá giống nhau.
+
+. . .
+
+. . .
+
+Trung Vực, Thánh Minh thành.
+
+Thánh Minh thành, từng là Thánh Minh Trung Ương đế quốc hoàng thành, địa linh nhân kiệt, linh mạch hội tụ, cho dù đế quốc đã diệt vong, thế nhưng là trong thành vẫn như cũ là một mảnh cảnh tượng phồn hoa, có từng đạo thánh khí bay thẳng Cửu Thiên.
+
+Thánh Minh thành tây ngoại ô, chính là Hoàng tộc mộ lâm.
+
+Rời đi Ma giáo tổng đàn về sau, Trương Nhược Trần liền đến đến Thánh Minh thành, tiến vào Hoàng tộc mộ lâm, cầm trong tay hương nến, tế bái mẫu hậu Vong Linh.
+
+Phượng Vũ cung cung chủ "Bạch Tô bà bà", Thánh Minh thành đệ nhất mỹ nhân "Tần Vũ Đồng", đứng sau lưng Trương Nhược Trần, cũng là quỳ trên mặt đất lễ bái phía trước lăng mộ.
+
+Bạch Tô bà bà 800 năm trước, từng là Trương Nhược Trần bên người cung nữ, bây giờ, là tại vì Minh Đế Thập Nhị đệ "Minh Giang Vương" làm việc, bởi vì tu vi cao thâm, trở thành Phượng Vũ cung cung chủ.
+
+Tế bái về sau, Bạch Tô bà bà mới là nói ra: "Điện hạ, một năm trước, Trung Ương Hoàng Thành phát sinh biến đổi lớn. . ."
+
+"Việc này, không cần nhắc lại."
+
+Trương Nhược Trần hai tay chắp sau lưng, thân hình đứng nghiêm , nói: "Ta muốn gặp Thập Nhị hoàng thúc, ngươi an bài một chút."
+
+Trước kia, Trương Nhược Trần không muốn gặp Minh Giang Vương, đó là bởi vì thời cơ còn không có thành thục. Nhưng là hiện tại, hắn lại là nhất định phải gặp một lần vị này Thập Nhị hoàng thúc.
+
+"Được, lão nô hiện tại liền thông tri Thập Nhị gia, để hắn lập tức chạy đến Thánh Minh thành."
+
+Bạch Tô bà bà cùng Tần Vũ Đồng lui xuống, rời đi Hoàng tộc mộ lâm.
+
+Ngay sau đó, Trương Nhược Trần hướng trong mộ lâm một cái nào đó phương vị chằm chằm đi qua , nói: "Ra đi!"
+
+Sau một khắc, một cái tiên phong đạo cốt lão đạo, từ trong hư không đi ra, khom người hướng Trương Nhược Trần cúi đầu , nói: "Hộ Long các 36 Thiên Cương, Triệu Phu, bái kiến thái tử điện hạ. Xin hỏi thái tử điện hạ có cái gì phân phó?"
+
+Triệu Phu chính là phụng Hộ Long các các chủ mệnh lệnh, thủ hộ Thánh Minh Trung Ương đế quốc Hoàng tộc mộ lâm. Năm đó, Trương Nhược Trần cùng Khổng Lan Du tới đây tảo mộ thời điểm, từng gặp mặt hắn.
+
+Trương Nhược Trần nói: "Ta muốn gặp Hộ Long các các chủ, ngươi đến an bài."
+
+Triệu Phu nói ra: "Hộ Long các các chủ, không chỉ một vị. 36 Thiên Cương toàn bộ đều là tu sĩ Nhân tộc, nghe lệnh của Thiên Cương các chủ. 72 Địa Sát đều là Man thú, thực vật, dị chủng, nghe lệnh của Địa Sát các chủ cùng hai vị đế quốc đồ đằng."
+
+"Ngươi có thể liên hệ đến đâu một vị các chủ?" Trương Nhược Trần nói.
+
+Triệu Phu nói ra: "Thuộc hạ chỉ có thể liên hệ đến Thiên Cương các chủ."
+
+Trương Nhược Trần lấy một loại mệnh lệnh ngữ khí , nói: "Trong vòng ba ngày, để hắn đến Thánh Minh thành tới gặp ta."
+
+"Tốt, thuộc hạ hiện tại liền đi làm."
+
+Triệu Phu lần nữa khom người hướng Trương Nhược Trần hành lễ, sau đó, thân hình lắc lư một cái, chính là biến mất tại nguyên chỗ, tốc độ nhanh chóng, để Trương Nhược Trần đều có chút khó mà thấy rõ hắn là như thế nào rời đi.
+
+"Người này tu vi, còn tại vị kia Mộc gia Thánh Chủ phía trên, lại hạ thấp thân phận trong này thủ mộ. Hộ Long các a! Hộ Long các! Năm đó, các ngươi nếu là không có rời đi Thánh Minh thành, Thánh Minh Trung Ương đế quốc có phải hay không có thể chèo chống đến lâu hơn một chút? Năm đó phụ hoàng đến cùng cho các ngươi hạ mệnh lệnh gì?"
+
+Trương Nhược Trần lầm bầm lầu bầu đọc lên một câu, sau đó, lại là lắc đầu, lộ ra một đạo nụ cười tự giễu.
+
+Rời đi Hoàng tộc mộ lâm, Trương Nhược Trần đi vào Phượng Vũ cung.
+
+Tần Vũ Đồng biết Trương Nhược Trần thân phận chân thật, bởi vậy, không dám thất lễ, liền tranh thủ Trương Nhược Trần nghênh đón đến nội phủ, lấy thượng đẳng nhất phương thức phụng dưỡng hắn.
+
+"Bà bà đã đi liên hệ Thập Nhị gia, hẳn là chẳng mấy chốc sẽ có kết quả." Tần Vũ Đồng kinh sợ nói.
+
+Nếu là lúc trước, Tần Vũ Đồng còn có thể cùng Trương Nhược Trần ngang hàng luận giao, bây giờ lại chỉ có thể một mực cung kính hầu hạ Trương Nhược Trần, chỉ có thể làm một cái thị nữ. Vẻn vẹn chỉ là Trương Nhược Trần tự thân tu vi, liền để nàng cảm giác được áp lực cực lớn. Huống chi, Trương Nhược Trần còn có được hoàng thái tử thân phận tôn quý.
+
+Trương Nhược Trần khoanh chân ngồi tại bàn bên cạnh, lấy ra một viên Truyền Tin Quang Phù, điều động tinh thần lực cùng thánh khí, ở phía trên khắc lục văn tự.
+
+Tần Vũ Đồng đứng ở một bên, giống như hoa lan trong cốc vắng đồng dạng, lộ ra đặc biệt an tĩnh.
+
+Trương Nhược Trần ngẩng đầu lên, hướng nàng liếc qua , nói: "Biết tu chỉnh râu tóc sao?"
+
+Tần Vũ Đồng nhìn xem Trương Nhược Trần rối tung tóc cùng nồng đậm sợi râu, vội vàng nhẹ gật đầu , nói: "Nếu là điện hạ có cần, Vũ Đồng có thể thử một lần."
+
+Trương Nhược Trần lộ ra rất khiêm tốn , nói: "Đa tạ."
+
+Tần Vũ Đồng hai cái ngọc thủ vô cùng mỹ lệ, ngón tay thon dài, mềm mại không xương, cầm trong tay một thanh óng ánh sáng long lanh ngọc chất tiểu đao, thận trọng giúp Trương Nhược Trần tu chỉnh râu tóc.
+
+Đột nhiên, Trương Nhược Trần nói ra một câu: "Đế Hoàng gia thân tình nhất là mờ nhạt, vì quyền thế, vì lợi ích, thân huynh đệ đều sẽ tự giết lẫn nhau. Ngươi nói, Thập Nhị hoàng thúc khổ tâm kinh doanh 800 năm thế lực, hắn sẽ chắp tay giao cho ta tên tiểu bối này sao?"
+
+Tần Vũ Đồng ngón tay, hơi run lên, dọa đến sắc mặt hơi trắng bệch.
+
+"Ngươi không cần khẩn trương như vậy, ta liền theo miệng hỏi một chút." Trương Nhược Trần cười cười.
+— QUẢNG CÁO —
+
+
+Kỳ thật, Trương Nhược Trần đã sớm kỹ càng tìm đọc qua 800 năm trước Minh Đế sau khi mất tích, Thánh Minh Trung Ương đế quốc nội bộ phát sinh trận kia náo động.
+
+Không chỉ có là Khổng Tước sơn trang Khổng Thượng Lệnh, Trương Nhược Trần những hoàng thúc cùng hoàng cô kia cũng đều tham dự quyền lực tranh đoạt, toàn bộ Thánh Minh thành đều là gió tanh mưa máu, hỗn loạn không chịu nổi.
+
+Cuối cùng, dưới loạn trong giặc ngoài, một cái khổng lồ đế quốc, ngắn ngủi mấy chục năm liền hủy diệt.
+
+Nói cho cùng, hay là bởi vì Minh Đế mất tích, thái tử gặp chuyện, rắn mất đầu, mới có thể tạo thành cục diện như vậy.
+
+Đột nhiên, Tần Vũ Đồng quỳ gối Trương Nhược Trần trước người, cúi đầu , nói: "Điện hạ, bà bà lúc trước đã phân phó ta, nếu là điện hạ tới đến Phượng Vũ cung, để cho ta khuyên ngươi. . . Mau chóng rời đi."
+
+Trương Nhược Trần nghe hiểu trong lời nói của nàng ý tứ, lộ ra rất bình tĩnh , nói: "Thập Nhị hoàng thúc đối với các ngươi có ân, lại là các ngươi chủ nhân, các ngươi có thể nhắc nhở ta câu này, đã nói rõ các ngươi đối với Thánh Minh Trung Ương đế quốc mười phần trung tâm."
+
+Tần Vũ Đồng nói: "Điện hạ không đi sao?"
+
+"Tại sao phải đi? Nếu ta lựa chọn muốn gặp Thập Nhị hoàng thúc, cũng liền không sợ hắn, càng có lòng tin để hắn thần phục với ta. Rắn mất đầu cục diện, nên sửa lại!"
+
+Trương Nhược Trần trấn định tự nhiên, đem một đạo thánh khí, đánh vào tiến Truyền Tin Quang Phù.
+
+"Xoạt!"
+
+Truyền Tin Quang Phù mặt ngoài, tản mát ra bỏng mắt quang mang, từng cái văn tự hiện lên đi ra.
+
+Tần Vũ Đồng hướng Truyền Tin Quang Phù liếc qua, thấy được hai chữ, lập tức, lại giật nảy mình, lên tiếng kinh hô: "Tử Thiện."
+
+"Không sai. Tử Thiện lão tổ thiếu ân tình của ta, cũng là thời điểm trả lại cho ta."
+
+Trương Nhược Trần ống tay áo vung lên, Truyền Tin Quang Phù chính là hóa thành một đạo lưu quang bay ra ngoài.
+
+Trương Nhược Trần sờ lên cái cằm, phát hiện nồng đậm sợi râu đã sửa chữa sạch sẽ, tại trên gương đồng chiếu chiếu, nói với Tần Vũ Đồng: "Đi lấy một tấm tơ tằm gấm vóc cùng một cây bút."
+
+Tần Vũ Đồng hỏi: "Điện hạ là muốn viết cái gì?"
+
+"Viết một phong chiếu thư, một phong dùng để công bố thiên hạ « Thái Tử Chiếu »."
+
+Trương Nhược Trần ánh mắt, có chút sắc bén, tự nhủ: "Quần long đến hữu thủ, đã từng Thánh Minh bộ hạ cũ cũng đều nên trở về, mùng bảy tháng sau, bản thái tử cầm Khai Nguyên Lộc Đỉnh, tại Vô Đỉnh sơn tế thiên, tế thần, tế Vong Linh."
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1381
+
+Chương 1378: Chấn động thiên hạ
+
+Tại dưới Tần Vũ Đồng phụng dưỡng, tắm rửa, thay quần áo, đốt hương, sau đó, Trương Nhược Trần mới nâng bút bắt đầu viết « Thái Tử Chiếu ».
+
+Trương Nhược Trần thể nội, một bên vận chuyển Cửu Thiên Minh Đế Kinh, một bên hạ bút.
+
+Mỗi một bút viết đi lên, đều là ẩn chứa có một cỗ đặc biệt mà cường đại Thánh Đạo lực lượng, khiến cho không khí chung quanh có chút chấn động.
+
+Đã là « Thái Tử Chiếu », cũng là có ngưng tụ Trương Nhược Trần toàn thân thánh lực thánh chỉ.
+
+Chiếu thư nội dung, lời ít mà ý nhiều, một mặt là trình bày Trương Nhược Trần Thánh Minh hoàng thái tử thân phận, một phương diện thì là triệu tập năm đó Thánh Minh Trung Ương đế quốc quần thần cùng bộ hạ cũ, mùng bảy tháng sau, tại Vô Đỉnh sơn tế tự thiên địa.
+
+"Hô —— "
+
+Chiếu thư viết xong, trên bàn tấm gấm vóc tơ tằm kia, tản mát ra chói mắt thánh mang, chiếu sáng Phượng Vũ cung nội phủ.
+
+Thánh Minh thành là Thánh Minh Trung Ương đế quốc đô thành, mỗi một thời đại Minh Đế, mỗi một năm cũng sẽ ở nơi này tế tự thiên địa cùng Thần Linh.
+
+Tổ tiên của Trương gia, chính là một vị Thần Linh, danh xưng "Bất Động Minh Vương Đại Tôn" .
+
+Trừ cái đó ra, Trương gia trong lịch sử, còn từng sinh ra không chỉ một vị Đại Thánh.
+
+Thánh Minh thành kinh lịch tế tự lực lượng không ngừng tẩy lễ, lại có Bất Động Minh Vương Đại Tôn cùng lịch đại Đại Thánh đối với thiên địa quy tắc sửa chữa, vùng thiên địa này, đã sớm phát sinh thoát biến, ẩn chứa quốc vận chi lực cùng số mệnh chi lực.
+
+Liền xem như đến bây giờ, cỗ lực lượng kia, vẫn không có tiêu tán.
+
+Trương Nhược Trần viết chiếu thư, là dùng « Cửu Thiên Minh Đế Kinh » Thánh Đạo lực lượng viết, tự nhiên là sẽ cùng Thánh Minh Trung Ương đế quốc quốc vận cùng số mệnh phát sinh cộng minh, sinh ra không thể coi thường dị tượng.
 
 "Ầm ầm."
 
-Trong đám mây màu đen, một tòa Thần Tháp năm màu bay ra, từ trên trời giáng xuống.
+« Thái Tử Chiếu » phía trên, tản mát ra một cỗ hoàng đạo chi khí, sau đó, từ trên bàn mặt bay lên, xông phá nóc nhà, bay thẳng đến đến phía trên tầng mây.
 
-Dực Long Vương ánh mắt lộ ra thần sắc kinh khủng, lập tức triển khai hai cánh, dốc hết toàn lực, muốn bỏ chạy.
+Tơ tằm gấm vóc sụp đổ, hóa thành bột mịn.
 
-Thần Tháp năm màu, giống như một tòa khổng lồ sơn phong, kích ở trên thân nó, đưa nó trấn áp tại dưới tháp.
+Từng cái Thánh Đạo văn tự, sắp hàng chỉnh tề, khắc ở thiên khung, tản mát ra sáng chói hào quang màu vàng.
 
-"Ngao —— "
+Trong nháy mắt, toàn bộ Thánh Minh thành đều bị chiếu rọi thành màu vàng, cơ hồ tất cả tu sĩ đều bị kinh động, vọt tới trên đường phố, nhìn ra xa bầu trời.
 
-Dực Long Vương phát ra gào thét thanh âm, ra sức giương cánh, chấn động đến mấy trăm dặm dáng dấp hòn đảo mãnh liệt lắc lư, đại địa đều tại vỡ vụn, nhưng mà, nhưng căn bản không trốn thoát được.
+Một thiên chiếu thư, giống như đầy trời tinh thần.
+
+Trung Cổ thế gia Thái gia phủ trạch chỗ sâu, trong một tòa linh sơn hình trâu, truyền ra một cỗ cuồn cuộn thánh uy, ngay sau đó, một sợi thánh khí tiêu tán ra ngoài.
+
+Vẻn vẹn chỉ là một sợi thánh khí, đều giống như một con sông lớn, quấn chặt lấy linh sơn.
 — QUẢNG CÁO —
 
-Một đạo toàn thân tản mát ra màu vàng quang hoa bóng người, tựa như Thiên Thần đồng dạng, từ trên trời giáng xuống, đứng tại hư không, đầu đầy mái tóc dài vàng óng theo gió chập chờn, toàn thân tản mát ra uy lâm thiên hạ khí thế.
+Một vị vô cùng già nua lão tẩu, từ linh sơn lòng đất leo ra, đứng tại thánh khí sông lớn trung tâm, nhìn lên bầu trời, run giọng nói: "Thái Tử Chiếu, lại là thái tử chiếu thư, 800 năm trước. . . Thái tử không phải gặp chuyện bỏ mình sao?"
 
-Đó là một nam tử tuổi trẻ cực kỳ tuấn mỹ, trên đầu mọc ra một đôi sừng rồng màu vàng, ánh mắt thâm thúy, thần sắc lạnh lùng, có ngàn vạn đạo long ảnh quay chung quanh thân thể của hắn phi hành.
+Nhìn thấy lão tổ tông xuất quan, Thái gia Thánh Chủ cùng Thái gia Chư Thánh, nhao nhao đuổi tới dưới linh sơn hình trâu, khom người hướng lên phía trên hành lễ.
 
-Nếu là, Trương Nhược Trần còn tại Long Linh đảo, nhất định sẽ phi thường giật mình.
+"Lão tổ tông, Thánh Minh Trung Ương đế quốc đã diệt vong, coi như hoàng thái tử một lần nữa trở về, cũng không có khả năng phục quốc." Thái gia Thánh Chủ nói ra.
 
-Bởi vì, người này chính là bị băng phong tại trên cầu đá nam tử kia, hắn vậy mà không có chết đi, còn từ trong hàn băng đi ra.
+"Im miệng, thái tử điện hạ như thế nào ngươi có thể lời bình?"
 
-Nam tử tuấn mỹ bàn tay duỗi ra, Thần Tháp năm màu từ từ nhỏ dần, trở nên chỉ có cao nửa thước, xuất hiện tại lòng bàn tay của hắn.
+Thái gia lão tổ tông nổi giận gầm lên một tiếng, từng đạo sóng âm tuôn ra đi, tựa như là mấy chục đạo trọng quyền đánh vào Thái gia Thánh Chủ trên thân.
+
+Thái gia Thánh Chủ miệng phun máu tươi, quỳ sát trên mặt đất.
+
+Thái gia lão tổ tông đã từng là Thánh Minh Trung Ương đế quốc một vị các lão, quyền cao chức trọng, đối với Thánh Minh Trung Ương đế quốc tự nhiên là có cực sâu tình cảm.
+
+Chỉ bất quá, Minh Đế mất tích đằng sau, triều chính trên dưới phát sinh nghiêng trời lệch đất rung chuyển, sát phạt không ngừng, tranh đấu không ngừng, Thái gia lão tổ tông cảm thấy nản lòng thoái chí, mới chủ động lui cách triều đình, sau đó chính là thâm cư không ra ngoài, bế quan tu luyện.
+
+Về sau, vì bảo toàn ức vạn tộc nhân tính mệnh, Thái gia lão tổ tông bất đắc dĩ đầu hàng Trì Thanh Trung Ương đế quốc, bất quá, cũng không có tiếp nhận Trì Thanh Trung Ương đế quốc bất luận cái gì phong tứ.
+
+Không chỉ có là Thái gia, toàn bộ Thánh Minh thành, đều là sôi trào, sôi trào khắp chốn.
+
+"800 năm trước, Thánh Minh Trung Ương đế quốc hoàng thái tử Trương Nhược Trần, lại còn còn sống, hơn nữa còn ban bố chiếu thư, muốn triệu hồi đã từng thần tử cùng bộ hạ cũ."
+
+"Trương Nhược Trần? Cái tên này vậy mà. . . Vậy mà cùng vị kia Thời Không truyền nhân giống nhau như đúc, sẽ không trùng hợp như vậy a?"
+
+"Mùng bảy tháng sau, đi Vô Đỉnh sơn tế thiên, tế thần, tế Vong Linh. Vì sao không tại Thánh Minh thành tế tự, muốn đi Ma giáo tổng đàn?"
+
+"800 năm trước, Vô Đỉnh sơn cũng tại trong Thánh Minh Trung Ương đế quốc cương thổ phạm vi, vì sao không thể đi nơi đó tế tự?"
+
+"Mùng bảy tháng sau không phải Ma giáo Tiểu Thánh Nữ cùng Thu Vũ hôn lễ. . . Trời ạ, vị này Thánh Minh hoàng thái tử khẳng định chính là Trương Nhược Trần."
+
+. . .
+
+. . .
+
+Liền xem như lại ngu xuẩn tu sĩ, giờ phút này cũng đều minh bạch, Thánh Minh hoàng thái tử cùng Thời Không truyền nhân rõ ràng chính là cùng là một người.
+
+Tin tức này, bằng tốc độ nhanh nhất truyền ra ngoài, rất nhanh liền truyền khắp Đệ Nhất Trung Ương đế quốc.
+
+Nhân tộc các đại thế lực người cầm quyền, nghe nói việc này, đều chấn động.
+
+Thánh Thư Tài Nữ đã sớm đoán ra Trương Nhược Trần có thân phận này, thế nhưng là, khi nàng nhận được tin tức thời điểm, trong lòng hay là nhấc lên to lớn gợn sóng.
+
+Sau một lúc lâu, Thánh Thư Tài Nữ lắng lại tâm tình trong lòng, lầu bầu nói: "Trương Nhược Trần, ngươi đến cùng là muốn làm cái gì? Vì một nữ tử, đúng là thật muốn để Đệ Nhất Trung Ương đế quốc đều long trời lở đất?"
+
+Vạn gia trong phủ đệ, Vạn Triệu Ức cùng Thương Lan Võ Thánh đồng thời nhận được tin tức, hai người lẫn nhau liếc nhau một cái, đều có thể nhìn thấy trong mắt đối phương chấn kinh.
+
+Vạn Triệu Ức con mắt chuyển động một chút, sau đó, lộ ra một đạo dáng tươi cười: "Ta hiện tại rốt cục có chút minh bạch, Nữ Hoàng cùng Trương Nhược Trần ân oán. Thì ra là thế, thì ra là thế. . ."
+
+Thương Lan Võ Thánh hít một tiếng , nói: "Một năm trước, ta còn tại trước mặt Nữ Hoàng, hướng Trương Nhược Trần cầu tình, hiện tại nhớ tới, lúc ấy thật sự là buồn cười. Hai người bọn họ ân oán, như thế nào cầu tình liền có thể hóa giải?"
+
+Tại Đông Vực, Mộ Dung thế gia Thái Thượng lão tổ, từ trong một tòa tổ trạch đi ra, cùng Mộ Dung Nguyệt cùng một chỗ nhìn qua Trung Vực phương hướng.
+
+Mộ Dung Nguyệt trong mắt, lộ ra thần sắc mừng rỡ , nói: "Lão tổ, điện hạ rốt cục công bố thân phận, chúng ta có phải hay không cũng nên có hành động?"
+
+Mộ Dung thế gia Thái Thượng lão tổ, tên là Mộ Dung Diệp Phong, 800 năm trước Mộ Dung thế gia đệ nhất thiên tài, tức là Trương Nhược Trần ở kiếp trước bằng hữu duy nhất, cũng là Trương Nhược Trần thư đồng, thường xuyên cùng Trương Nhược Trần, Khổng Lan Du, Trì Dao cùng một chỗ nghe giảng bài.
+
+Bởi vì Mộ Dung Diệp Phong tuổi tác nhỏ nhất, Trương Nhược Trần, Khổng Lan Du, Trì Dao đều gọi hắn là "Tiểu Diệp Tử" .
+
+Mộ Dung Diệp Phong mặc dù sống 800 năm, lại cũng không lộ ra già nua, thoạt nhìn cũng chỉ chừng 30 tuổi. Hắn trong một đôi mắt tang thương kia, toát ra hồi ức cùng nụ cười khổ sở: "Điện hạ, đã ngươi lựa chọn làm về Thánh Minh hoàng thái tử, như vậy sau này Mộ Dung Diệp Phong liền tiếp tục đuổi tùy ngươi tả hữu."
+
+Trung Vực Cửu Châu một trong Thiên Thai châu, Thượng Quan thế gia cùng Huyết Thần giáo hai cái thế lực, cũng đều phát sinh chấn động to lớn.
+
+Huyết Thần giáo những Thánh cảnh nhân vật kia, hiển nhiên cũng đều biết, Trương Nhược Trần chính là giáo chủ của bọn hắn. Phát sinh chuyện lớn như vậy, bọn hắn sao có thể không kinh hãi?
+
+Ngay tại cùng ngày, hai vị Thánh trưởng lão lập tức tổ chức đại hội trưởng lão, bắt đầu thương lượng đối sách.
+
+Bởi vì một phong « Thái Tử Chiếu », Thượng Quan thế gia cũng bị đẩy lên đỉnh sóng ngọn gió.
+
+Bởi vì, Thượng Quan thế gia lão tổ tông "Khuyết Thánh Vương", là Thánh Minh Trung Ương đế quốc thái tử thái phó.
+
+Cái gọi là thái tử thái phó, chính là thái tử lão sư.
+
+Thái tử tuyên bố « Thái Tử Chiếu », thái tử lão sư lại nên như thế nào tự xử?
+
+Tây Vực, Phạm Thiên Đạo.
+
+Đại Tư Không cùng Nhị Tư Không nhận được tin tức về sau, vô cùng hưng phấn, tranh nhau chen lấn hướng trong một ngôi miếu cổ phóng đi.
+
+Đại Tư Không một bên chạy, một bên nói ra: "Sư tôn, sư thúc lần này là đang làm chuyện lớn a, đơn giản chính là muốn nhất cử san bằng Ma giáo, chúng ta nhất định phải đi tham gia náo nhiệt."
+
+Nhị Tư Không nói: "Ma giáo cao thủ nhiều như mây, Hỏa tộc càng là nội tình thâm hậu, sư thúc là đang đánh một trận trận đánh ác liệt. Sư tôn, chúng ta không thể khoanh tay đứng nhìn."
+— QUẢNG CÁO —
+
+
+Nhân Đà La đại sư giống như một tôn tượng đất, xếp bằng ở trên một chiếc bồ đoàn mặt, toàn thân không nhúc nhích.
+
+Đại Tư Không trên thân có một cỗ tặc khí, để trần hai đầu cánh tay, hồng quang đầy mặt nói ra: "Sư tổ chính là bị Nữ Hoàng giết chết, cùng chúng ta có thù không đội trời chung. Sư tôn, không bằng chúng ta đi theo sư thúc cùng một chỗ tạo phản?"
+
+"Im miệng, Nữ Hoàng đã thành thần, ai dám tạo phản?" Nhân Đà La đại sư quát lớn một tiếng.
+
+Đại Tư Không lẩm bẩm một câu , nói: "Nữ Hoàng đã rời đi Côn Lôn giới, nói không chắc đi Thần giới, căn bản liền sẽ không trở lại."
+
+Đạt tới Nhân Đà La cảnh giới, hết sức rõ ràng Thần Linh lực lượng đáng sợ đến cỡ nào, dù là Trì Dao Nữ Hoàng đã rời đi Côn Lôn giới. Thế nhưng là, nàng lưu tại Côn Lôn giới thần lực, cũng có thể nghiền ép hết thảy sinh linh.
+
+Nhị Tư Không càng thêm ổn trọng một chút, nói ra: "Sư thúc làm việc nhất quán đều chú ý cẩn thận, biết rõ Nữ Hoàng thành thần, vẫn còn dám công bố thân phận, chỉ có thể nói rõ một chút, hắn có lưu chuẩn bị ở sau, có thể bảo trụ tất cả mọi người an toàn."
+
+Đại Tư Không kinh hô một tiếng , nói: "Chẳng lẽ Càn Khôn giới đã đản sinh ra? Trong Càn Khôn giới, có Tiếp Thiên Thần Mộc, tu luyện hoàn cảnh thế nhưng là viễn siêu Côn Lôn giới. Chỉ cần chúng ta tiến vào Càn Khôn giới tu luyện, về sau cũng không cần lại trốn trốn tránh tránh."
+
+Đại Tư Không cùng Nhị Tư Không cùng Trương Nhược Trần cùng đi Thanh Long Khư Giới cướp đoạt Thế Giới Chi Linh, từng nghe đến Trương Nhược Trần nhấc lên, cướp đoạt Thế Giới Chi Linh, chính là vì để đồ quyển thế giới diễn biến thành Càn Khôn giới.
+
+Vực ngoại, trong một tòa thượng đẳng Khư Giới, Tử Thiện lão tổ nhận được Trương Nhược Trần Truyền Tin Quang Phù.
+
+Tử Thiện lão tổ cười một tiếng: "Trương Nhược Trần nhân tình này, thật đúng là không tốt trả."
+
+Tâm Thuật phật sư đứng ở phía dưới, tiếp nhận Truyền Tin Quang Phù, xem hết nội dung phía trên, trầm ngưng chỉ chốc lát , nói: "Ma giáo cùng Hỏa tộc đều là nhất đẳng thế lực lớn, thực lực gần với triều đình. Sư tôn hay là không nên nhúng tay cho thỏa đáng."
+
+"Không trả Trương Nhược Trần nhân tình, vi sư Thánh Tâm liền có tỳ vết, từ đầu đến cuối không cách nào vượt qua một bước cuối cùng kia." Tử Thiện lão tổ có chút bất đắc dĩ.
+
+Kỳ thật, coi như Trương Nhược Trần không chủ động đưa tin cho Tử Thiện lão tổ, Tử Thiện lão tổ cũng chuẩn bị đi tìm hắn, trả lại hắn nhân tình.
+
+Tâm Thuật phật sư nói ra: "Thế nhưng là, sư tôn đã lập thệ, không còn bước vào Côn Lôn giới."
+
+"Chân thân không thể tiến vào Côn Lôn giới, có thể sử dụng một bộ phân thân nha. Do phân thân mang theo Thần Thi tiến đến, bằng vào Thần Thi chiến lực, Trương Nhược Trần hẳn là sẽ hài lòng. Sớm đi chấm dứt tâm sự này, cũng tốt sớm một chút bước vào chân chính đại đạo chi môn."
+
+Tử Thiện lão tổ lần nữa cười một tiếng, buông xuống Truyền Tin Quang Phù, trên thân phật quang lóe lên một cái, lập tức, từ trong cơ thể của hắn, đi ra một bộ phân thân.
+
+Mặc dù là một bộ phân thân, nhưng là, lại cho người ta một loại có máu có thịt cảm giác, vô cùng thần thánh, toàn thân đều tản ra phật quang, cùng chân thân không hề khác gì nhau.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1382
+
+Chương 1379: Sinh Mệnh Chi Tuyền
+
+Nam Vực.
+
+Ngô Đồng Thần Thụ tự đốt về sau, lưu lại một phiến mấy chục vạn dặm rộng lớn Hỏa Cảnh. Trên đại địa Hỏa Cảnh, còn sót lại hỏa diễm, cho tới bây giờ cũng không có hoàn toàn dập tắt.
+
+Hỏa tộc chính là chiếm cứ tại Hỏa Cảnh nội bộ.
+
+Hỏa Cảnh trung tâm, bùn đất đều bị ngọn lửa nung khô thành màu vàng. Đào móc ra một khối bùn đất, mang đi ra ngoài, có thể dùng tới làm luyện chế chiến khí vật liệu.
+
+Một đoạn Ngô Đồng Thần Thụ cây khô, đứng ở phía trên đại địa.
+
+Cây khô đường kính, chừng hơn một trăm dặm thô, độ cao thì là vượt qua vạn mét, so sơn nhạc đều muốn càng thêm nguy nga. Từ trong cây khô tuôn ra thần quang, tựa như là từng đầu thác nước, từ trên chín tầng trời chảy xuôi xuống tới.
+
+Cây khô nội bộ, vang lên Thu Vũ tiếng cười: "Trương Nhược Trần, Thánh Minh hoàng thái tử. . . Ha ha, quả thật không để cho ta thất vọng. Cho tới bây giờ, ngươi mới xem như có tư cách làm đối thủ của ta."
+
+Hỏa tộc một vị trưởng lão, đứng ở phía dưới, mi tâm có một cái hỏa diễm ấn ký , nói: "Mười vạn năm trước, Tu Di Thánh Tăng đào đi Tiếp Thiên Thần Mộc rễ cây, muốn tỉnh lại trong rễ cây sinh cơ, bồi dưỡng ra mầm mống. Tu Di Thánh Tăng đã chết đi, thế nhưng là, Trương Nhược Trần là Tu Di Thánh Tăng truyền nhân, hơn phân nửa biết Tiếp Thiên Thần Mộc rễ cây ở nơi nào."
+
+Thu Vũ biến hóa thành nhân hình, mặc một thân áo xanh, tràn ngập tự tin , nói: "Vô luận là Thời Không truyền nhân, hay là Thánh Minh hoàng thái tử, Trương Nhược Trần nhất định sẽ là ta vật làm nền. Mà ta, thì sẽ giẫm ở trên người hắn, đạp vào con đường thành thần. Hiện tại, ta là càng ngày càng chờ mong tháng sau mùng bảy, ta muốn ngay trước mặt Trương Nhược Trần, cưới Mộc gia Băng Hoàng kia. Tiếp Thiên Thần Mộc rễ cây, cũng sẽ trở thành ta chất dinh dưỡng, khiến cho ta trở nên càng thêm cường đại."
+
+Bái Nguyệt ma giáo tổng đàn, Vô Đỉnh sơn.
+
+Trương Nhược Trần thân phận thực sự quá dọa người, toàn bộ Mộc gia đều phát sinh động đất.
+
+Phụ thân của Mộc Linh Hi, Vân Tranh, sắc mặt trở nên tương đương tái nhợt. Trước kia, hắn nghiêm trọng đánh giá thấp Trương Nhược Trần, ai có thể nghĩ tới, kẻ này, lại là Thánh Minh hoàng thái tử?
+
+Trương gia có thể thành lập một cái Trung Ương đế quốc, tự nhiên là có tương đương đáng sợ nội tình. Coi như Thánh Minh Trung Ương đế quốc đã hủy diệt, thế nhưng là, làm hoàng thái tử Trương Nhược Trần, có thể điều động năng lượng, chỉ sợ cũng là khá kinh người.
+
+Mộc gia Thánh Chủ coi như trấn định, lườm Vân Tranh một chút , nói: "Ngươi kinh hoảng như vậy làm gì? Giáo chủ đã đạt tới Đại Thánh cảnh giới, đủ để trấn áp hết thảy. Hỏa tộc có thể diệt Phong Đô Quỷ Thành, còn không diệt được một cái vong quốc thái tử? Lại nói, triều đình lại há có thể nhìn xem Thánh Minh Trung Ương đế quốc tro tàn lại cháy? Coi như Trương Nhược Trần là Thánh Minh Trung Ương đế quốc thái tử, có thể lật lên bao nhiêu sóng gió?"
+
+Vân Tranh có chút thở dài một hơi, bình tĩnh trở lại , nói: "Thánh Chủ nói không sai, lấy giáo chủ tu vi hiện tại, đủ để Phong Đế, đủ để trấn áp thiên hạ chúng sinh. Trương Nhược Trần dám đến Vô Đỉnh sơn tế tự, không thể nghi ngờ là đi tìm cái chết."
+
+. . .
+
+Thánh Minh thành trên không, từng cái Thánh Đạo văn tự thật lâu không tiêu tan, như là từng khỏa sáng chói tinh thần chiếu rọi đại địa.
+
+Đã từng Thánh Minh Trung Ương đế quốc hoàng cung, bây giờ trong Lăng Tiêu Thiên Vương Phủ, vang lên một đạo thần lôi đồng dạng rống to: "Thánh Minh dư nghiệt còn dám hiện thân, là muốn muốn chết sao?"
+
+"Ầm ầm."
+
+Một mảnh hào quang màu vàng, từ trong Lăng Tiêu Thiên Vương Phủ xông ra.
+— QUẢNG CÁO —
+
+Kim mang, ngưng tụ thành một cái sơn nhạc khổng lồ như vậy nắm đấm, đánh về phía lơ lửng bầu trời Thái Tử Chiếu thánh văn.
+
+Thánh Minh thành là Thánh Minh nghịch đảng hoạt động nhất tấp nập địa phương, triều đình điều động Lăng Tiêu Thiên Vương tọa trấn nơi đây, tự nhiên là bởi vì Lăng Tiêu Thiên Vương tu vi thâm hậu, thủ đoạn tàn nhẫn, đủ để chấn nhiếp loạn đảng.
+
+Bây giờ, Lăng Tiêu Thiên Vương tự mình xuất thủ, đánh ra quyền ấn, muốn hủy đi chiếu thư thánh văn.
+
+Lăng Tiêu Thiên Vương trên người thánh uy, mới vừa vặn bạo phát đi ra, trong Thánh Minh thành tu sĩ liền quỳ xuống một mảng lớn. Từ trên thân Lăng Tiêu Thiên Vương truyền ra khí tức, chấn nhiếp bọn hắn toàn thân run rẩy, khó mà thở dốc.
+
+Trương Nhược Trần đứng ở trong Phượng Vũ cung, nhìn qua Lăng Tiêu Thiên Vương Phủ phương hướng , nói: "Thật là lợi hại Lăng Tiêu Thiên Vương, vẻn vẹn chỉ là phát ra thánh uy, đều không phải là Thánh Giả bình thường chịu được."
+
+Tần Vũ Đồng đứng sau lưng Trương Nhược Trần, môi đỏ óng ánh mà gợi cảm, một đôi mắt đẹp như là lưu động khói sóng , nói: "Tại Đệ Nhất Trung Ương đế quốc Hoàng tộc, Lăng Tiêu Thiên Vương là gần với Trì Dao người mạnh nhất, một mực tọa trấn tại Thánh Minh thành, không biết giết chết bao nhiêu Thánh Minh Trung Ương đế quốc cựu thần, thủ đoạn huyết tinh, dùng bất cứ thủ đoạn nào, thậm chí còn có rất nhiều người vô tội cũng bị giết chết. Người này, có thể nói là chúng ta đệ nhất đại địch. Đáng tiếc, Lăng Tiêu Thiên Vương thực lực quá cường đại, không ai có thể giết được hắn."
+
+"Minh Đường Thánh Tổ không có xuất thủ?" Trương Nhược Trần hỏi.
+
+"Minh Đường Thánh Tổ xuất thủ qua một lần, một kích toàn lực, đem Lăng Tiêu Thiên Vương đánh thành trọng thương. Đánh ra kích thứ hai thời điểm, Trì Dao Nữ Hoàng cách không thi triển thánh thuật, đem hắn cứu lại."
+
+Có thể ngăn trở Khổng Lan Du một kích toàn lực, rất hiển nhiên, Lăng Tiêu Thiên Vương tu vi, tuyệt không kém Trung Doanh Vương.
+
+Trương Nhược Trần tròng mắt hơi híp, đột nhiên, đã nhận ra cái gì, ánh mắt hướng Hoàng tộc mộ lâm phương hướng nhìn lại.
+
+Chỉ gặp, Hoàng tộc trong mộ lâm, lịch đại Minh Đế lăng mộ, vậy mà phun ra cuồn cuộn thánh vụ, ngưng tụ ra hàng ngàn hàng vạn đầu long ảnh, phóng lên tận trời, cùng bầu trời Thái Tử Chiếu thánh văn phát sinh cộng minh.
+
+Lăng Tiêu Thiên Vương đánh ra thủ ấn, cùng Thái Tử Chiếu thánh văn đụng vào nhau.
+
+"Ầm ầm."
+
+Thái Tử Chiếu thánh văn vẫn như cũ lơ lửng tại hư không, Lăng Tiêu Thiên Vương thủ ấn lại chia năm xẻ bảy, căn bản là không có cách rung chuyển dù là một cái văn tự.
+
+Thái gia lão tổ tông kinh hô một tiếng: "Hoàng tộc trong mộ lâm lịch đại Minh Đế đều hiển thánh, bởi vậy có thể thấy được, nhất định là Chân Mệnh thái tử ban bố chiếu thư. Thái tử thật đã trở về, Minh Đế cũng quay về rồi sao?"
+
+Cùng lúc đó, trong Lăng Tiêu Thiên Vương Phủ, truyền ra một đạo thánh lệnh: "Khởi động hộ thành đại trận, phong bế cửa thành, chỉ được phép vào, không cho phép ra, toàn thành lùng bắt Thánh Minh hoàng thái tử cùng Thánh Minh dư nghiệt."
+
+Thánh Minh thành hộ thành đại trận mở ra, tất cả cửa thành đều bị bao phủ đi vào.
+
+Cùng lúc đó, số lớn quân đội bắt đầu ở trên đường phố tuần tra, toàn bộ Thánh Minh thành trở nên thần hồn nát thần tính.
+
+Bạch Tô bà bà từ ngoài cửa đi đến, nhìn thấy Trương Nhược Trần bóng lưng, chính là khom mình hành lễ, ý vị thâm trường nói ra: "Điện hạ thật không đi sao?"
+
+"Ta đều đã tuyên bố Thái Tử Chiếu, làm sao lại đi?" Trương Nhược Trần hỏi ngược một câu.
+
+Bạch Tô bà bà nhìn ra Trương Nhược Trần đã quyết định quyết tâm, cũng đều không còn khuyên , nói: "Thập Nhị gia đêm mai liền có thể đạt tới Thánh Minh thành. Điện hạ, những năm gần đây, Thập Nhị gia cũng không dễ dàng, lão nô hi vọng các ngươi có thể liên thủ đối kháng triều đình, đừng lại nội đấu."
+
+Trương Nhược Trần nói: "Ta ghét nhất nội đấu, cũng rất muốn hợp tác với Thập Nhị hoàng thúc, mấu chốt còn phải nhìn hắn lựa chọn như thế nào. Các ngươi đều ra ngoài đi, ta muốn bế quan. Thập Nhị hoàng thúc đến thời điểm, lại đến cho ta biết."
+
+Bạch Tô cùng Tần Vũ Đồng sau khi rời đi, Trương Nhược Trần khoanh chân ngồi dưới đất, một bên vận chuyển công pháp tu luyện, một bên ngưng tụ ra một bộ phân thân, tiến vào Càn Khôn giới.
+
+Gần nhất một năm đã qua, Trương Nhược Trần tại uống rượu đồng thời, cũng tại đem tự thân Thánh Đạo quy tắc hòa tan vào Càn Khôn giới.
+
+Bây giờ, Trương Nhược Trần Thánh Đạo quy tắc cùng Càn Khôn giới thiên địa quy tắc, đã dung hợp ba thành.
+
+Nói cách khác, Trương Nhược Trần có thể càng thêm dễ dàng điều động Càn Khôn giới lực lượng. Đại khái điều động mười lần, liền có thể thành công một lần.
+
+Trước kia điều động một trăm lần, cũng chưa chắc có thể thành công một lần.
+
+Đương nhiên, có thể điều động Càn Khôn giới lực lượng, cũng không có nghĩa là Trương Nhược Trần liền có thể vô địch.
+
+Thứ nhất, chỉ có tu vi cùng tinh thần lực càng là cường đại, Trương Nhược Trần có thể điều động thế giới chi lực mới có thể càng nhiều.
+
+Thứ hai, chỉ có nhục thân càng là cường đại, mới có thể chịu đựng lấy càng là thế giới cường đại chi lực. Tỉ như, Bán Thánh nhục thân, cưỡng ép đi thi triển Thánh Giả cấp bậc lực lượng, kinh mạch, thánh mạch, nhục thân đều sẽ sụp đổ.
+
+Đổi một câu nói, Trương Nhược Trần có thể điều động cùng thi triển thế giới chi lực, quyết định bởi với hắn tu vi, tinh thần lực, nhục thân, ba cái nhất định phải tề đầu tịnh tiến, mới có thể bộc phát ra thực lực cường đại nhất.
+
+Muốn vô địch thiên hạ, nói nghe thì dễ?
+
+Mà lại, Càn Khôn giới thế giới chi lực, cũng không thể tùy ý sử dụng. Một khi để người ta biết Trương Nhược Trần thể nội chứa một tòa thế giới, Đại Thánh cấp bậc nhân vật, chỉ sợ đều sẽ không để ý đến thân phận hướng hắn xuất thủ.
+
+Không có tu vi cường đại thủ hộ thể nội thế giới, Trương Nhược Trần liền cần càng cẩn thận e dè hơn.
+
+Trong Tiếp Thiên Thần Mộc rễ cây, xuất hiện một cái tuyền nhãn.
+
+Trong con suối, tuôn ra chính là Sinh Mệnh Chi Tuyền, mỗi một giọt Sinh Mệnh Tuyền Thủy đều ẩn chứa nồng hậu dày đặc sinh mệnh lực lượng. Dù là chỉ là phục dụng một giọt, cũng có thể để một vị sắp chết già tu sĩ, sống thêm mấy năm.
+
+Có thể dựng dục ra Sinh Mệnh Chi Tuyền, cũng liền nói rõ, Tiếp Thiên Thần Mộc đã trở nên khá cường đại.
+
+Đương nhiên, hiện tại Sinh Mệnh Chi Tuyền còn rất nhỏ, xa xa không cách nào cùng Trung Cổ thời kì so sánh, mỗi một ngày cũng chỉ có thể đản sinh ra mấy ngàn giọt mà thôi, tổng cộng cộng lại, hiện tại cũng mới tích lũy một ao nhỏ.
+
+Trung Cổ thời kỳ Sinh Mệnh Chi Tuyền, thế nhưng là một con sông lớn, cuồn cuộn chảy xuôi, cuồn cuộn không dứt.
+— QUẢNG CÁO —
+
+
+Lúc kia, Côn Lôn giới sinh linh thọ nguyên, cũng là vượt xa hiện tại, nhân loại bình thường đều có thể sống đến trăm tuổi.
+
+A Nhạc thi thể, chính là nằm tại trên Sinh Mệnh Chi Tuyền, đem nước suối liên tục không ngừng hấp thu tiến thể nội. Mà trong cơ thể hắn Thái Cực Sinh Tử Ấn, thì là chuyển động đến càng lúc càng nhanh, sinh tử chi khí càng ngày càng thịnh vượng.
+
+"Trần gia, ròng rã một ao Sinh Mệnh Tuyền Thủy, đều muốn bị hắn người chết này hấp thu hầu như không còn, có thể hay không lưu cho ta một ngụm? Liền một ngụm, ta còn không có dùng hưởng qua trong truyền thuyết Sinh Mệnh Chi Tuyền hương vị, để cho ta nếm thử đi!"
+
+Oa Oa đứng tại Sinh Mệnh Chi Tuyền bên cạnh, mười phần trông mà thèm, trong miệng không ngừng chảy lối ra nước.
+
+Thế nhưng là, nó mỗi một lần nhích tới gần, đều sẽ bị Tiếp Thiên Thần Mộc rễ cây quất bay, cho nên, chỉ có thể cầu khẩn Trương Nhược Trần.
+
+"Gấp cái gì? Hiện tại Sinh Mệnh Chi Tuyền còn rất thưa thớt, nhất định phải dùng cho người cần nhất. Theo Tiếp Thiên Thần Mộc tiếp tục trưởng thành, Sinh Mệnh Chi Tuyền cũng sẽ lưu động đến càng nhanh, đến lúc đó, không thể thiếu ngươi. Tiếp tục thủ tại chỗ này, A Nhạc tỉnh đằng sau, lập tức đưa tin cho ta."
+
+Nói xong lời này, Trương Nhược Trần hướng nhật nguyệt Thủy Tinh cung phương hướng bước đi.
+
+Ma giáo cùng Hỏa tộc có thể một mực truyền thừa đến bây giờ, tự nhiên là có được mười phần đáng sợ nội tình, không thể khinh thường.
+
+Trương Nhược Trần tương đối rõ ràng, mùng bảy tháng sau, nhất định là một trận trận đánh ác liệt.
+
+Trương Nhược Trần triệu hồi bộ hạ cũ, cũng không phải khiến bọn hắn cùng mình cùng đi chịu chết, mà là muốn đem bọn hắn tiếp nhập vào Càn Khôn giới, cho bọn hắn một cái mới tinh tương lai, sáng tạo một cái càng thêm huy hoàng Thánh Minh Trung Ương đế quốc.
+
+Muốn bảo vệ bọn hắn, để bọn hắn nhìn thấy tương lai, thì là cần một lực lượng khá cường đại làm chèo chống, lực lượng kia, nhất định phải có thể chống lại Ma giáo cùng triều đình Đại Thánh, thậm chí có thể đối kháng thành thần đằng sau Trì Dao.
+
+Hiện tại Trương Nhược Trần, còn không được.
+
+Hiện tại Tiếp Thiên Thần Mộc, cũng còn không được.
+
+Trương Nhược Trần đem ánh mắt khóa chặt ở trên Nhật Nguyệt Thủy Tinh Quan, con mắt ngưng tụ , nói: "Ta từ Âm gian, đưa ngươi mang ra ngoài. Ngươi lại không ngừng hấp thụ Tiếp Thiên Thần Mộc sinh mệnh chi khí, không ngừng lớn mạnh tự thân, hiện tại, lại còn cự tuyệt cùng ta đối thoại. Không thể phủ nhận ngươi rất cường đại, ta ở trong mắt ngươi, chỉ sợ cũng giống sâu kiến một dạng nhỏ bé. Nhưng là, làm Càn Khôn giới chi chủ, hôm nay, ta phải thật tốt cùng ngươi nói một chút."
+
+Nói xong lời này, Trương Nhược Trần ánh mắt lộ ra lãnh duệ quang mang, thể nội thánh khí mãnh liệt vận chuyển, song chưởng hướng về phía trước đẩy, lập tức, hai cây Tịnh Diệt Thần Hỏa hỏa trụ, hướng về Nhật Nguyệt Thủy Tinh Quan mạnh vọt qua.
+
+Nàng phải gìn giữ trầm mặc, Trương Nhược Trần lại muốn buộc nàng nói chuyện.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1383
+
+Chương 1380: Nhóm lửa đốt thần
+
+Màu xanh Tịnh Diệt Thần Hỏa, phun trào đi qua, thiêu đến không gian đều là có chút vặn vẹo, xua tán đi Nhật Nguyệt Thủy Tinh Quan chung quanh âm hàn lực lượng.
+
+"Hoa —— "
+
+Trong Nhật Nguyệt Thủy Tinh Quan tiêu tán ra một cỗ lực lượng thần bí, thúc đẩy mấy chục khối Tử tộc lão tổ bạch cốt , dựa theo một loại tinh thần quỹ ngấn sắp xếp, vậy mà hình thành một tầng lực lượng vô hình, chặn lại Tịnh Diệt Thần Hỏa.
+
+Lấy Trương Nhược Trần tu vi hiện tại, điều động Tịnh Diệt Thần Hỏa, có thể đem một chút Thiên Văn Thánh Khí đều luyện đến nóng chảy, lại không làm gì được mấy chục khối xương.
+
+Bởi vậy có thể thấy được, những xương cốt kia nhất định là khá là ghê gớm, rất có thể là thần cốt.
+
+"Phân thân lực lượng, hay là quá yếu."
+
+Trương Nhược Trần thu hồi hai tay, sau đó, lấy ngón trỏ tay phải chỉ hướng bầu trời, một cỗ cường đại tinh thần lực bạo phát đi ra, xông ra Càn Khôn giới, dẫn động trong khí hải Tịnh Diệt Thần Hỏa.
+
+Sau một khắc, Trương Nhược Trần trên đỉnh đầu tầng mây tản ra, một đầu Thần Hỏa thác nước từ trên trời giáng xuống, liên tục không ngừng hướng Nhật Nguyệt Thủy Tinh Quan mạnh vọt qua.
+
+Thấy cảnh này, Bạch Lê công chúa tương đương giật mình, khuyên can nói: "Tông chủ, ngươi làm như vậy có thể hay không quá mức cực đoan, vạn nhất đem nàng chọc giận làm sao bây giờ?"
+
+"Một số thời khắc, liền phải sử dụng thủ đoạn cực đoan." Trương Nhược Trần nói.
+
+Đại khái nung khô ba canh giờ, một cỗ lạnh lẽo khí kình, như là lật trời sóng lớn đồng dạng, từ trong Nhật Nguyệt Thủy Tinh Quan tuôn ra.
+
+"Ầm ầm."
+
+Trương Nhược Trần cùng Bạch Lê công chúa giống như trong gió hai mảnh lá rụng, bị chấn động đến hướng về sau ném đi cách xa mấy chục dặm. Cỗ lực lượng kia quá chấn động lòng người, bọn hắn căn bản là không có cách khống chế thân hình của mình.
+
+Trương Nhược Trần ổn định bước chân về sau, lần nữa hướng Nhật Nguyệt Thủy Tinh Quan phương hướng chằm chằm đi, con mắt đột nhiên co rụt lại, chỉ gặp, một cái toàn thân tản ra sáng chói ánh trăng tuyệt lệ nữ tử, nện bước ưu nhã bước chân, từ trong hỏa diễm đi ra.
+
+Thân hình của nàng thon dài, da thịt như là dùng Tiên Ngọc điêu khắc thành, mi tâm có một cái huyết nguyệt ấn ký, trên người lưu động lấy một cỗ lạnh lẽo lực lượng, khiến cho phương viên vạn dặm đều hóa thành băng nguyên.
+
+Tịnh Diệt Thần Hỏa bị phong tuyết thôn phệ, toàn bộ đều tiêu tán.
+
+"Huyết Nguyệt Quỷ Vương. . . Không. . . Ngươi là trong quan tài vị nữ tử kia. . ." Trương Nhược Trần nói.
+
+Dưới Tiếp Thiên Thần Mộc nữ tử kia, đích thật là Huyết Nguyệt Quỷ Vương, thế nhưng là, từ trên người nàng phát ra khí tức, lại so Huyết Nguyệt Quỷ Vương không biết mạnh mẽ bao nhiêu lần.
+
+Trương Nhược Trần cùng Bạch Lê công chúa đều có được cùng Chân Thánh hậu kỳ Thánh Giả chống lại thực lực, nhưng là, đối mặt nàng, lại cảm giác được to lớn áp bách.
+
+Có một cỗ cường đại lực lượng, tại áp bách bọn hắn quỳ xuống lễ bái.
+
+Trương Nhược Trần cùng Bạch Lê công chúa toàn thân không ngừng toát ra mồ hôi, đều đang cố gắng chèo chống, không muốn quỳ lạy bất luận sinh linh gì.
+
+Huyết Nguyệt Quỷ Vương mỗi đi về phía trước một bước, Trương Nhược Trần cùng Bạch Lê công chúa trên người áp lực liền sẽ gia tăng gấp đôi. Đối phương cũng không phải là sử dụng lực lượng áp chế bọn hắn, mà là tại áp chế bọn hắn ý chí.
+
+"Meo!"
+— QUẢNG CÁO —
+
+Bạch Lê công chúa hai chân run rẩy, trong miệng phát ra một tiếng mèo kêu, biến thành nguyên hình, hóa thành một cái tỏa ra ánh sáng lung linh mèo trắng nhỏ.
+
+Cuối cùng, Huyết Nguyệt Quỷ Vương không có tiếp tục hướng phía trước đi, dừng ở Trương Nhược Trần cùng Bạch Lê công chúa ngoài trăm trượng, thanh âm thanh lãnh nói ra: "Ý chí của các ngươi đều rất kiên định, có thể xưng bất khuất tại người, ít nhất là có Đại Thánh chi tư."
+
+Trương Nhược Trần hơi thở dài một hơi , nói: "Ngươi càng đi về phía trước, chúng ta chưa hẳn còn có thể chịu đựng được."
+
+"Đại Thánh chi tâm, bất khuất tại người, cũng không đại biểu có thể bất khuất tại thần. Càng đi về phía trước, các ngươi đối mặt áp lực, liền xem như Đại Thánh cũng chưa chắc chịu được." Huyết Nguyệt Quỷ Vương nói ra.
+
+Trương Nhược Trần trong lòng vô cùng chấn động , nói: "Ngươi là thần?"
+
+"Mười vạn năm trước, thần lực của ta cùng sinh mệnh lực cơ hồ hao hết, chỉ có thể tiến vào trong Nhật Nguyệt Thủy Tinh Quan ngủ say, cho tới bây giờ, mới khôi phục một chút."
+
+Dừng một chút, Huyết Nguyệt Quỷ Vương lại nói ra: "Ngươi là Thánh Giả thứ nhất dám dùng Thần Hỏa đốt một vị thần."
+
+Thế mà thật là một vị thần.
+
+Đừng nói là Trương Nhược Trần, liền xem như một vị Đại Thánh, đoán chừng đều sẽ bị dọa sợ.
+
+Giờ phút này, Trương Nhược Trần cũng là cảm giác được tay chân lạnh buốt, nói hắn không có chút nào sợ hãi, đó là nói dối. Một bộ nữ thi nằm tại trong quan tài, cùng một vị thần sống sờ sờ đứng trước người, hoàn toàn chính là hai khái niệm.
+
+Trương Nhược Trần cố gắng ngăn chặn trong lòng tâm tình tiêu cực, bảo trì trấn định, khom người hướng đối diện hành lễ, không kiêu ngạo không tự ti mà nói: "Vãn bối vô ý mạo phạm Thần Linh, chỉ bất quá. . ."
+
+"Ngươi không cần sợ hãi như vậy, ngươi dám sử dụng Thần Hỏa đốt một vị Thần Linh, nói rõ ngươi có nghịch thần chi tâm, có nghịch thần chi gan. Đây cũng là ta phân ra một đạo thần niệm, đi ra gặp ngươi nguyên nhân." Huyết Nguyệt Quỷ Vương nói ra.
+
+Vị nữ thần kia thần khu, vẫn như cũ nằm ở trong Nhật Nguyệt Thủy Tinh Quan hấp thu Tiếp Thiên Thần Mộc phát ra sinh mệnh chi khí cùng thiên địa thánh khí. Rất hiển nhiên, chỉ là nàng một đạo thần niệm bay ra ngoài, bám vào tại Huyết Nguyệt Quỷ Vương trên thân.
+
+Huyết Nguyệt Quỷ Vương tiếp tục nói ra: "Ngươi muốn cùng ta đối thoại nguyên nhân, ta đã biết. Ta đáp ứng ngươi, tại ngươi có cần thời điểm, có thể ra tay giúp ngươi một lần. Nhưng là, ngươi cũng nhất định phải đáp ứng ta một cái điều kiện."
+
+"Điều kiện gì?" Trương Nhược Trần hỏi.
+
+Huyết Nguyệt Quỷ Vương nói ra: "Việc này kết thúc về sau, theo ta cùng đi một chuyến Thiên Đình giới, giúp ta làm một chuyện."
+
+Trương Nhược Trần hơi khẽ giật mình , nói: "Bằng vào tu vi hiện tại của ta, có thể làm được sự tình, chỉ sợ ngươi một cái ý niệm trong đầu liền có thể làm đến. Ngươi còn cần ta hỗ trợ?"
+
+"Thiên địa chúng sinh, đều có thuộc về mình giá trị. Giá trị của ngươi, so trong tưởng tượng của ngươi lớn hơn." Huyết Nguyệt Quỷ Vương nói ra.
+
+Trương Nhược Trần trầm tư một lát , nói: "Tốt, ta đáp ứng ngươi."
+
+Một vị Thánh Giả cùng một vị thần, trao đổi một sự kiện, vô luận nàng sự kiện kia đến cỡ nào hà khắc, theo Trương Nhược Trần, cũng là tương đương có lời.
+
+Huyết Nguyệt Quỷ Vương nói: "Ngươi tốt nhất nghĩ rõ ràng, một khi đáp ứng, như là tại hướng Thần Linh lập thệ, tuyệt đối không thể hối hận."
+
+Trương Nhược Trần ý thức được, vị nữ thần này để hắn làm sự tình, chỉ sợ không hề giống trong tưởng tượng của hắn đơn giản như vậy, liền hỏi: "Đến cùng là chuyện gì?"
+
+"Hiện tại còn không thể nói cho ngươi, đi Thiên Đình giới, ngươi tự nhiên là sẽ minh bạch." Huyết Nguyệt Quỷ Vương lại nói: "Ta cũng không thích ép buộc người khác, ngươi có thể lựa chọn không đáp ứng ta."
+
+Trương Nhược Trần nghiêm nghị nói: "Ta đáp ứng ngươi. Nhưng là, sớm nói rõ ràng, ta chỉ đại biểu chính ta, không có nghĩa là toàn bộ Càn Khôn giới."
+
+"Ta nhớ kỹ!"
+
+Huyết Nguyệt Quỷ Vương xoay người, hướng Nhật Nguyệt Thủy Tinh Quan bước đi.
+
+Trương Nhược Trần hỏi: "Đợi một chút, ngươi trong truyền thuyết vị Nguyệt Thần kia sao?"
+
+"Nào có chính mình cho mình tứ phong hào thần? Nói cho cùng, người khác gọi nàng cái gì thần, nàng chính là cái gì thần." Nói xong lời này, trong Quỷ Thể của Huyết Nguyệt Quỷ Vương, bay ra một sợi thần quang, xông vào tiến Nhật Nguyệt Thủy Tinh Quan.
+
+Trong chốc lát, cỗ thần uy cường đại kia, biến mất không thấy gì nữa.
+
+Bạch Lê công chúa một lần nữa biến hóa thành hình người, rất cung kính hướng Nhật Nguyệt Thủy Tinh Quan cúi đầu, sau đó, mới là nói với Trương Nhược Trần: "Nàng nhất định chính là trong truyền thuyết đến từ Quảng Hàn giới Nguyệt Thần."
+
+"Ừm."
+
+Trương Nhược Trần nhẹ gật đầu.
+
+Nếu như, nàng không phải Nguyệt Thần, vừa rồi khẳng định sẽ trực tiếp phủ nhận, mà không phải nói ra một câu đúng đúng mà không phải.
+
+Trương Nhược Trần đi đến Huyết Nguyệt Quỷ Vương trước người, hỏi: "Vừa rồi, Nguyệt Thần chiếm dụng ngươi Quỷ Thể, có hay không nói cho ngươi, ngươi cùng nàng đến cùng là quan hệ như thế nào?"
+
+"Một cái ý niệm trong đầu." Huyết Nguyệt Quỷ Vương nói ra.
+
+Trương Nhược Trần hít vào một ngụm khí lạnh , nói: "Một cái ý niệm trong đầu liền đã đản sinh ra ngươi? Nếu là nàng sinh ra 100 triệu cái suy nghĩ, chẳng phải là có thể đản sinh ra 100 triệu cái ngươi dạng này cường giả?"
+
+"Nào có đơn giản như vậy? Suy nghĩ càng nhiều, gánh vác càng lớn, ngược lại sẽ ảnh hưởng tu hành. Thần suy nghĩ, một khi độc lập đi ra, đều là có nguyên nhân đặc biệt cùng mục đích." Huyết Nguyệt Quỷ Vương lạnh lùng nói.
+
+Trương Nhược Trần nói: "Nàng đưa ngươi độc lập đi ra, là mục đích gì?"
+
+"Mang nàng rời đi Âm gian."
+
+Huyết Nguyệt Quỷ Vương lại giải thích nói: "Tại Âm gian, căn bản không có sinh mệnh chi khí, không cách nào hấp thu sinh mệnh chi khí, nàng liền sẽ lâm vào vĩnh cửu ngủ say, thẳng đến thần lực hao hết mà chết. Cho dù là đang ngủ say thời điểm, thần lực cũng sẽ xói mòn, chỉ bất quá, xói mòn rất chậm chạp."
+
+Rất hiển nhiên, vừa rồi Nguyệt Thần nói cho Huyết Nguyệt Quỷ Vương một ít gì đó, để Huyết Nguyệt Quỷ Vương biết mình sứ mệnh.
+
+Đương nhiên, sứ mệnh kia, hiện tại đã không trọng yếu.
+
+Trương Nhược Trần phân thân rời khỏi Càn Khôn giới, cùng bản tôn hòa làm một thể, toàn lực ứng phó tu luyện, muốn nhanh chóng trùng kích đến Triệt Địa cảnh.
+
+Một năm qua này, Phật Đế Xá Lợi Tử mỗi thời mỗi khắc đều phóng xuất ra phật khí cùng tinh thần lực, hòa tan vào Trương Nhược Trần thể nội, khiến cho Trương Nhược Trần tu vi tốc độ tăng lên, siêu việt cùng cảnh giới tu sĩ gấp 10 lần.
+
+Chính là bởi vì nguyên nhân này, cho dù hắn mỗi ngày tại uống rượu cùng du ngoạn, tốc độ tu luyện nhưng như cũ không thể so với những Giới Tử kia chậm, đạt đến Huyền Hoàng cảnh đỉnh phong.
+— QUẢNG CÁO —
+
+"Thùng thùng."
+
+Tiếng đập cửa vang lên.
+
+Ngay sau đó, Tần Vũ Đồng thanh âm, ở ngoài cửa vang lên, nói khẽ: "Điện hạ, Thập Nhị gia đã đến Phượng Vũ cung, bày xuống long trọng tiệc rượu, để cho ta tiếp ngươi đi qua."
+
+Trương Nhược Trần mở ra hai mắt, trên mặt lộ ra một đạo ý cười, thầm nghĩ trong lòng: "Thập Nhị hoàng thúc không có tới bái kiến ta, lại là để cho ta đi bái kiến hắn, vừa tới liền muốn cho ta một cái hạ mã uy, quả nhiên là không nguyện ý giao ra quyền trong tay."
+
+Ai đi trước thấy đối phương, đều sẽ lộ ra kém một bậc.
+
+Minh Giang Vương tự mình chạy đến Thánh Minh thành, vốn là đã ra vẻ mình so Trương Nhược Trần thấp nhất đẳng, đến Phượng Vũ cung, tự nhiên là muốn lật về một thành.
+
+"Tốt a! Ta theo ngươi cùng đi gặp Thập Nhị hoàng thúc." Trương Nhược Trần nói.
+
+Hoàng tộc thành viên dòng chính, nay đã rất ít, càng thêm hẳn là đoàn kết lại, nhất trí đối ngoại, mà không phải tiếp tục nội đấu.
+
+Làm vãn bối, Trương Nhược Trần quyết định trước hết để cho một bước, cho Minh Giang Vương lưu một chút mặt mũi.
+
+Nếu là, Minh Giang Vương không lĩnh tình, hoặc là muốn đối phó Trương Nhược Trần, như vậy tiếp xuống cũng liền đừng trách Trương Nhược Trần đối với hắn không khách khí.
+
+Tôn trọng đều là lẫn nhau.
+
+Tần Vũ Đồng có chút thở dài một hơi, trước khi đến, nàng là thật có chút sợ hãi hai người đều quá cường thế, ai cũng không chịu nhượng bộ, nói như vậy, căn bản là không có biện pháp tiếp tục trao đổi.
+
+Trong Phượng Vũ cung, có một tòa xây ở linh hồ trung tâm cung điện, nơi đó đèn đuốc sáng trưng, có từng cái mỹ lệ thị nữ tại uyển chuyển nhảy múa, cũng có dễ nghe êm tai đàn tiếng tiêu truyền tới.
+
+Tại Tần Vũ Đồng dẫn đầu xuống, Trương Nhược Trần đi vào giữa hồ cung điện, rốt cục gặp được Minh Đế Thập Nhị đệ, Minh Giang Vương.
+
+"Bái kiến điện hạ."
+
+Bạch Tô bà bà đi ra phía trước, hướng Trương Nhược Trần khom mình hành lễ.
+
+"Bái kiến thái tử điện hạ."
+
+Trong cung điện, tu sĩ dưới Thánh cảnh, cũng toàn bộ đều hướng Trương Nhược Trần quỳ xuống hành lễ, lộ ra vô cùng cung kính.
+
+Thế nhưng là, Minh Giang Vương cùng đi theo Minh Giang Vương những Thánh cảnh nhân vật kia, nhưng như cũ ngồi tại vị trí trước mặt, cũng không có muốn lên tiến lên lễ ý tứ.
+
+. . .
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1384
+
+Chương 1381: Lập uy
+
+Trên ghế, hết thảy 12 vị Thánh Giả, cơ hồ đều là đã từng Thánh Minh Trung Ương đế quốc thần tử hậu nhân, thuộc về Minh Giang Vương tọa hạ cấp cao nhất cường giả.
+
+Đương nhiên, còn có một số Thánh Giả, khoảng cách Thánh Minh thành quá xa, trong thời gian ngắn không cách nào gấp trở về.
+
+"Nhược Trần, thật là ngươi sao? 800 năm, ròng rã 800 năm, ngươi cũng đi nơi nào?"
+
+Ngồi tại trên cùng Minh Giang Vương, thông suốt đứng dậy, thần sắc có chút kích động, hướng Trương Nhược Trần nghênh đón.
+
+Minh Giang Vương nhìn có 50 tuổi bộ dáng, thân cao tiếp cận tám thước, rộng thể rộng rãi, trên đầu mang theo Điêu Long Ngân Quan, mặc một bộ áo bào màu bạc Thánh Y, thể nội ẩn chứa có hùng hậu thánh khí cùng huyết khí, tựa như trong da ẩn núp lấy một đầu Thần Long.
+
+Đón lấy Trương Nhược Trần thời điểm, từ Minh Giang Vương thể nội phát ra khí thế, cũng là càng ngày càng cường đại.
+
+Ở trong mắt Trương Nhược Trần, đối diện tựa như là có phô thiên cái địa sóng lớn, hướng hắn lao qua.
+
+"Vương trong Thánh Giả, Thập Nhị hoàng thúc quả nhiên là bước vào đến Thánh Vương cảnh giới." Trương Nhược Trần thầm nghĩ.
+
+Đổi lại là một vị khác Thánh Giả, thậm chí là Chân Thánh, gặp một vị Thánh Vương thánh uy trùng kích, cũng khó tránh khỏi sẽ thất thố, sẽ cảm giác được sợ hãi, sau đó lui, sẽ khom mình hành lễ, thậm chí sau đó quỳ.
+
+Một cái đại cảnh giới chênh lệch, chính là mãng xà cùng Chân Long chênh lệch.
+
+Trương Nhược Trần lại là mặt không đổi sắc, gọi ra Trầm Uyên cổ kiếm, hướng mặt đất cắm xuống, lập tức, một cỗ kiếm ý bén nhọn bạo phát đi ra, xé rách mãnh liệt mà đến Thánh Vương uy thế.
+
+"Thập Nhị hoàng thúc, làm một vị tu luyện tiếp cận ngàn năm Thánh Vương, còn không thể để cho mình trên người uy thế thu phóng tự nhiên?" Trương Nhược Trần lạnh như băng nói.
+
+Lúc đầu, Trương Nhược Trần là lấy gặp một vị thân nhân tâm tính, tới gặp Minh Giang Vương.
+
+Thế nhưng là đối phương, nhưng không có nghĩ như vậy, vậy mà trăm phương ngàn kế muốn chấn nhiếp Trương Nhược Trần, thậm chí muốn áp chế Trương Nhược Trần.
+
+Trương Nhược Trần tự nhiên là phải sửa lại tâm tính, lấy hoàng thái tử thân phận, biểu hiện ra cường thế một mặt.
+
+"Lớn mật, cũng dám như vậy nói chuyện với Thập Nhị gia, ngươi cũng quá làm càn."
+
+Một vị người mặc thánh giáp lão giả, trong miệng phun ra một ngụm sóng âm, quát lớn Trương Nhược Trần.
+
+Người này, tên là Yến Khải Toàn, tu vi đạt tới Chân Thánh cảnh giới, cũng được xưng là "Khải Toàn Chân Thánh", thực lực tại Minh Giang Vương tọa hạ đủ để xếp vào ba vị trí đầu.
+
+Khải Toàn Chân Thánh đứng dậy , nói: "Tại một vị Thánh Vương trước mặt, ngươi cũng dám lộ ra chiến binh, may mắn ngươi có thể là Minh Đế chi tử, nếu không, giờ phút này đã biến thành một bộ tử thi."
+
+Trương Nhược Trần hướng Khải Toàn Chân Thánh liếc qua , nói: "Cái gì gọi là có khả năng? Nói cách khác, ngươi đang hoài nghi bản thái tử thân phận?"
+
+"Không sai, bản thánh chính là hoài nghi thân phận của ngươi. Mọi người đều biết, thái tử điện hạ tại 800 năm trước liền chết tại trong cung biến sự kiện, năm đó, rất nhiều trong triều các lão cùng đại thần, tận mắt thấy qua hắn thi thể. Coi như thái tử điện hạ không có chết đi, hiện tại cũng nên có hơn tám trăm tuổi, mà không phải ngươi dạng này một tên mao đầu tiểu tử." Khải Toàn Chân Thánh rất không khách khí nói ra.
+— QUẢNG CÁO —
+
+
+Bên cạnh, lại có một vị Thánh cảnh nhân vật đi theo phụ họa , nói: "Ngươi một cái biên thuỳ tiểu quốc vương tử, lại tự xưng là Thánh Minh Trung Ương đế quốc hoàng thái tử, làm chúng ta đều là đồ đần sao?"
+
+Bạch Tô bà bà hừ lạnh một tiếng: "Yến Khải Toàn, Vương Tịch, các ngươi bậc cha chú còn sống, nhìn thấy thái tử, cũng muốn hành lễ. Hai người các ngươi, cũng dám lấy loại ngữ khí này đối với thái tử điện hạ nói chuyện, lão thân hôm nay tuyệt không buông tha các ngươi."
+
+Trương Nhược Trần ngăn lại chuẩn bị xuất thủ Bạch Tô bà bà, sau đó, hướng Khải Toàn Chân Thánh đi tới, cẩn thận nhìn trừng hắn một cái , nói: "Ngươi tu luyện là « Thần Chiếu Thiên Công », hẳn là Yến gia hậu nhân a? Yến Huyên là gì của ngươi?"
+
+Khải Toàn Chân Thánh hơi giật mình, kẻ này chỉ là hướng hắn nhìn thoáng qua, vậy mà liền xem thấu hắn tu luyện công pháp, ngược lại là có chút lợi hại.
+
+Khải Toàn Chân Thánh mặt không đổi sắc , nói: "Chính là gia phụ."
+
+"Hoa —— "
+
+Trương Nhược Trần nắm lên Trầm Uyên cổ kiếm chuôi kiếm, trong chốc lát, trong cung điện tốc độ thời gian trôi qua, trở nên vô cùng chậm chạp.
+
+Trong Trầm Uyên cổ kiếm Lực hệ Minh Văn hiện lên đi ra, khiến cho chiến kiếm trọng lượng vượt qua ngàn vạn cân, trực tiếp hướng về Khải Toàn Chân Thánh cái cổ vung chém xuống đi.
+
+Khải Toàn Chân Thánh chỗ nào ngờ tới, Trương Nhược Trần vậy mà đột nhiên liền hướng hắn xuất thủ.
+
+Tại trong Kiếm Đạo lĩnh vực cùng Thời Gian lĩnh vực, lấy hắn Chân Thánh sơ kỳ tu vi, cũng không kịp ngăn cản.
+
+"Phốc phốc."
+
+Trầm Uyên cổ kiếm chém nát thánh giáp, trảm tại Khải Toàn Chân Thánh cái cổ vị trí, kiếm thể chìm xuống phía dưới hãm, chặt đứt hắn xương quai xanh, ép tới Khải Toàn Chân Thánh khụy hai chân xuống, trùng điệp quỳ trên mặt đất.
+
+"Oanh!"
+
+Trên đại địa, xuất hiện mạng nhện đồng dạng vết rạn, liền ngay cả lòng đất phòng ngự trận pháp đều có chút chống đỡ không nổi.
+
+Trương Nhược Trần Thời Gian Kiếm Pháp, hay là đệ tam trọng cảnh giới, ngưng tụ thành Thời Gian lĩnh vực, chỉ có thể tiếp tục một hơi thời gian.
+
+Một hơi đằng sau, tốc độ thời gian trôi qua lại khôi phục bình thường.
+
+Khải Toàn Chân Thánh hai tay cùng hai chân, đồng thời phun ra cuồn cuộn thánh mang, chấn động đến toàn bộ cung điện đều đang lắc lư.
+
+"Trương Nhược Trần, ngươi. . . Ngươi cũng dám đối bản thánh xuất thủ. . ."
+
+Khải Toàn Chân Thánh hai tay, bắt lấy Trầm Uyên cổ kiếm kiếm thể, muốn một lần nữa đứng người lên.
+
+Trương Nhược Trần một tay cầm kiếm, lại so Khải Toàn Chân Thánh hai tay lực lượng đều muốn càng lớn, ép tới Trầm Uyên cổ kiếm kiếm thể tiếp tục hướng xuống, phảng phất là muốn đem Khải Toàn Chân Thánh thân thể chém thành hai khúc.
+
+Trong cung điện, khác những Thánh Giả kia, đều là sắc mặt biến đổi lớn.
+
+Tu vi đạt tới Chân Thánh cảnh giới Yến Khải Toàn, lại bị Trương Nhược Trần một kiếm ép tới quỳ trên mặt đất, không cách nào đứng dậy. Trương Nhược Trần lực lượng, không khỏi cũng quá khủng bố.
+
+Chư Thánh ánh mắt, đều hướng Minh Giang Vương trông đi qua.
+
+Ở đây, chỉ sợ chỉ có Minh Giang Vương tự mình xuất thủ, mới có thể trấn áp Trương Nhược Trần, cứu Khải Toàn Chân Thánh.
+
+Minh Giang Vương sắc mặt có chút lạnh nhạt trầm xuống, cũng không có xuất thủ.
+
+Bởi vì, Minh Giang Vương hết sức rõ ràng, Trương Nhược Trần thân phận không có giả.
+
+Thánh Minh thành quốc vận cùng số mệnh, thậm chí lịch đại Minh Đế ý chí, đều đã thừa nhận hắn, làm sao có thể là giả?
+
+Thánh Minh Trung Ương đế quốc hoàng thái tử, vừa mới ban bố Thái Tử Chiếu, liền bị hắn Hoàng thúc trấn áp. Chuyện như vậy, một đạo truyền đi, Trương Nhược Trần cùng Minh Giang Vương nhất định trở thành toàn bộ Côn Lôn giới trò cười.
+
+Lúc đầu, Minh Giang Vương chỉ là trước muốn ép một chút Trương Nhược Trần khí diễm, để hắn an phận một chút, để tránh Trương Nhược Trần cướp đoạt quyền lực của hắn. Lại không nghĩ rằng, biến khéo thành vụng, ngược lại để Trương Nhược Trần tìm được một cái lập uy cơ hội.
+
+Minh Giang Vương cố gắng ngăn chặn tức giận trong lòng, đi ra phía trước, khuyên nhủ: "Nhược Trần, Yến Khải Toàn đối với ngươi bất kính, đích thật là tương đương làm càn. Nhưng là, phụ thân của hắn, Yến Huyên Vương, đã từng thống lĩnh Thánh Minh Trung Ương đế quốc 14 triệu đại quân, cũng là trong quân nhất đẳng đại nhân vật, đi theo ngươi phụ hoàng cùng một chỗ xâm nhập Man Hoang mở mang bờ cõi, cùng một chỗ chinh phạt Bất Tử Huyết tộc, kinh lịch lớn nhỏ chiến dịch không xuống ngàn trận, lập xuống cái thế công huân. Yến gia tổ sư, cũng là đời đời kiếp kiếp hiệu trung với Thánh Minh Trung Ương đế quốc. Xem ở trên mặt của bọn họ, hôm nay liền tha cho hắn một mạng, như thế nào?"
+
+"Nếu không có hắn bậc cha chú cùng tổ tiên đối với Thánh Minh Trung Ương đế quốc có công, Thập Nhị hoàng thúc chẳng lẽ cho là hắn còn có thể sống được? Bản thái tử chỉ dùng ba kiếm, liền có thể chém xuống Mộc Kình Thiên phát quan. Thập Nhị hoàng thúc, ngươi cảm thấy Yến Khải Toàn ở trong tay Mộc Kình Thiên, vượt qua được mấy chiêu?"
+
+Trương Nhược Trần thu hồi Trầm Uyên cổ kiếm, hướng về mặt đất vung lên, một mảng lớn thánh huyết từ trên kiếm phong trượt xuống, khuyếch đại tại trong đại điện mặt đất.
+
+Tại thời khắc này, ở đây Chư Thánh đều là ý thức được, trước mắt nam tử trẻ tuổi này, không chỉ có chỉ là Thánh Minh hoàng thái tử đơn giản như vậy, cũng là một vị Kiếm Thánh có thể đánh bại Mộc Kình Thiên, trấn áp Yến Khải Toàn, không phải bọn hắn có thể tùy tiện nắm.
+
+Yến Khải Toàn một lần nữa đứng dậy, trong mắt hắn, lộ ra kiêng kỵ thần sắc, không còn dám giống vừa rồi khinh thị như vậy Trương Nhược Trần.
+
+Trương Nhược Trần dẫn theo đẫm máu chiến kiếm, từng bước một đi đến cung điện chỗ cao nhất, ngồi xuống.
+
+Vị trí kia, vốn là thuộc về Minh Giang Vương.
+
+Minh Giang Vương khóe miệng có chút khẽ nhăn một cái, cuối cùng, hóa thành một đạo tiếng cười: "Nhược Trần, ở trên thân thể ngươi, khẳng định là phát sinh không thể tưởng tượng chuyện lạ. Hiện tại, toàn bộ Côn Lôn giới tu sĩ đều truyền, là Tu Di Thánh Tăng cứu được ngươi, đưa ngươi dẫn tới 800 năm sau hôm nay. Tóm lại, ngươi có thể trở về, Thập Nhị thúc chính là hết sức cao hứng . Bất quá, lần này ngươi làm được có chút lỗ mãng, không nên tuyên bố phong Thái Tử Chiếu này, hẳn là trước cùng Thập Nhị thúc thương lượng một phen."
+
+Trương Nhược Trần hỏi: "Vì cái gì?"
+
+Minh Giang Vương nghiêm túc nói ra: "Hiện tại thời cuộc, cùng trước kia không giống với lúc trước! Nữ Hoàng đã thành thần, uy lâm thiên hạ, thập đại Huyết Đế toàn bộ đều chết tại dưới kiếm của nàng, tứ hải cùng Man Hoang các đại chủng tộc không ai dám không phục, Ma giáo, Hắc Thị, Tử Thiện giáo không phải lựa chọn thần phục, chính là thối lui ra khỏi Côn Lôn giới. Ngươi như thế cao điệu công bố thân phận, còn ban bố Thái Tử Chiếu, chẳng phải là đem chính mình cùng Thánh Minh Trung Ương đế quốc bộ hạ cũ đều đẩy lên đỉnh sóng ngọn gió?"
+— QUẢNG CÁO —
+
+Trương Nhược Trần nói: "Thập Nhị hoàng thúc là lo lắng triều đình sẽ tiêu diệt chúng ta? Chúng ta hẳn là tiếp tục trốn đông trốn tây, trải qua tối tăm không mặt trời, không có chỗ ở cố định, ăn bữa hôm lo bữa mai thời gian?"
+
+Yến Khải Toàn âm thanh lạnh lùng nói: "Đây gọi giấu tài!"
+
+"Giấu tài? Trì Dao đã thành thần, sống thêm 10 vạn năm đều là chuyện dễ như trở bàn tay. Mọi người là chuẩn bị giấu tài tới khi nào?" Trương Nhược Trần hỏi.
+
+Mọi người nhất thời yên lặng.
+
+Trương Nhược Trần nói: "Cùng giấu tài, không bằng chủ động đầu nhập vào triều đình, quy thuận Đệ Nhất Trung Ương đế quốc, chẳng phải là tốt hơn?"
+
+"Không có khả năng. Yến gia cùng Đệ Nhất Trung Ương đế quốc có thù không đội trời chung, cho dù chết, cũng không có khả năng quy thuận bọn hắn." Yến Khải Toàn nói ra.
+
+Vương Tịch hừ lạnh một tiếng: "800 năm đến, chúng ta vẫn luôn tại cùng triều đình chém giết cùng tranh đấu, cừu hận càng để lâu càng sâu, chủ động đầu nhập vào bọn hắn, chẳng khác nào là thúc thủ chịu trói, hạ tràng sẽ chỉ thảm hại hơn."
+
+"Chúng ta Bạch gia, không biết có bao nhiêu trưởng bối, đều là bị triều đình tàn nhẫn giết chết. Không biết có bao nhiêu nữ quyến, biến thành triều đình quan viên trên giường đồ chơi. Cho dù chết, cũng không có khả năng quy thuận bọn hắn."
+
+Trương Nhược Trần nói: "Nói cách khác, mọi người chính là muốn tiếp tục trốn ở trong góc tối âm u tham sống sợ chết? Tức không có cách nào báo thù, lại không thể đầu hàng cùng quy thuận, nếu là bị bắt, hạ tràng càng là sống không bằng chết. Có phải như vậy hay không?"
+
+Toàn trường yên tĩnh.
+
+Có người muốn phản bác, cuối cùng lại chỉ là giật giật bờ môi, lại một câu đều nói không ra.
+
+Không thể không nói, Trương Nhược Trần đâm tới nỗi đau của bọn họ.
+
+"Các ngươi sống được cỡ nào gian nan, vì cái gì không đi theo bản thái tử, có lẽ bản thái tử có thể cho các ngươi một cái không giống với tương lai. Có lẽ Thánh Minh Trung Ương đế quốc có thể trùng kiến, mà lại sẽ càng thêm huy hoàng cường thịnh." Trương Nhược Trần nói.
+
+Yến Khải Toàn cắn chặt môi , nói: "Điện hạ, ngươi không khỏi cũng quá tự tin đi? Lời nói hùng hồn, ai cũng có thể nói, tuy nhiên lại cũng không đại biểu ai cũng làm được."
+
+"Nếu là, trong vòng mười ngày, bản thái tử có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ. Ngươi còn tin không tin ta? Ngươi còn thần không thần phục tại ta?"
+
+Trương Nhược Trần ánh mắt, có chút lăng lệ, nhìn chăm chú về phía Lăng Tiêu Thiên Vương Phủ phương hướng, trong tay Trầm Uyên cổ kiếm tản mát ra khiếp người hàn quang.
+
+Nghe nói như thế, ở đây Chư Thánh, đều là nội tâm rung mạnh.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1385
+
+Chương 1382: Hộ Long các hiện thân
+
+Trương Nhược Trần nói ra, thực sự quá kinh người, vậy mà muốn muốn tiêu diệt Lăng Tiêu Thiên Vương Phủ.
+
+Lăng Tiêu Thiên Vương Phủ tọa trấn Thánh Minh thành, không chỉ có thể đồng thời trấn áp Minh Giang Vương cùng Minh Đường, còn có thể ngăn được Hắc Thị, Ma giáo, Huyết Thần giáo . . . vân vân Tà Đạo thế lực, thực lực là kinh khủng bực nào. Há lại nói diệt cũng có thể diệt?
+
+Lăng Tiêu Thiên Vương Phủ chính là triều đình dùng để đối phó Thánh Minh Trung Ương đế quốc dư nghiệt một thanh lưỡi dao, có thể sử dụng ra chém tận giết tuyệt thủ đoạn đẫm máu.
+
+Có thể nói, tại Minh Giang Vương, Bạch Tô, Yến Khải Toàn bọn người trong mắt, người thống hận nhất, cừu thị nhất, muốn giết nhất, vẫn luôn là Lăng Tiêu Thiên Vương.
+
+Trì Dao chỉ có thể xếp ở vị trí thứ hai.
+
+Đương nhiên, vô luận là Lăng Tiêu Thiên Vương, hay là Trì Dao, tu vi đều quá cường đại, căn bản không phải bọn hắn có thể chống lại. Tại dưới Lăng Tiêu Thiên Vương truy sát cùng tiêu diệt toàn bộ, bọn hắn có thể sống đến bây giờ, đã rất không tầm thường.
+
+Tần Vũ Đồng đưa Trương Nhược Trần trở về tu luyện phủ đệ, trong lòng khó mà bình tĩnh trở lại, chăm chú vào đi tại phía trước thân ảnh tuấn dật, thẳng tắp, lãnh khốc kia, cuối cùng, vẫn là không nhịn được hỏi: "Điện hạ, ngươi thật muốn tiến đánh Lăng Tiêu Thiên Vương Phủ?"
+
+"Thế nào?" Trương Nhược Trần hỏi.
+
+Tần Vũ Đồng nói: "Ta muốn tham chiến."
+
+Trương Nhược Trần dừng bước lại, xoay người, nhìn chằm chằm nàng đôi mắt vũ mị mà linh động kia. Có thể xưng là Thánh Minh thành đệ nhất mỹ nhân, Tần Vũ Đồng dung mạo, tự nhiên là không thể bắt bẻ.
+
+"Liền ngay cả 12 Hoàng tộc nghe được ta câu nói kia, đều lâm vào trầm mặc, hiển nhiên là không tin bản thái tử có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ. Tu vi của ngươi vẫn chưa tới Thánh cảnh, cũng dám tham chiến?" Trương Nhược Trần nói.
+
+Tần Vũ Đồng một gối quỳ xuống, nâng lên một dung nhan tuyệt mỹ , nói: "Liền xem như cửu tử nhất sinh, ta cũng muốn tham chiến. Ta không muốn lại tiếp tục ẩn giấu đi, cũng không muốn lại vì cừu nhân của mình hiến múa, chỉ muốn báo thù, báo thù cho cha mẹ, cũng gia gia báo thù. Xin mời điện hạ thành toàn."
+
+Trương Nhược Trần gặp nàng ánh mắt mười phần kiên định, trầm tư một lát, từ trong không gian giới chỉ lấy ra một viên Thánh Nguyên cùng một gốc một vạn năm năm thánh dược, ném cho nàng.
+
+"Trong vòng mười ngày, nếu là ngươi có thể đột phá đến Thánh Giả cảnh giới, bản thái tử cho phép ngươi tham chiến."
+
+"Đa tạ điện hạ, đa tạ điện hạ ban thưởng."
+
+Tần Vũ Đồng tuyết trắng hàm răng, nhẹ nhàng cắn môi đỏ, trong đôi mắt đẹp toát ra sóng gợn sóng gợn hào quang, lần nữa ngẩng đầu lên thời điểm, Trương Nhược Trần thân ảnh, đã biến mất tại cuối hành lang.
+
+Không thể không nói, vị thái tử điện hạ này thực sự quá có mị lực, không chỉ có anh tuấn, mà lại thiên phú tuyệt đỉnh, xuất thủ hào phóng, đã có cường thế một mặt, có đôi khi nhưng lại có một ít u buồn.
+
+"Ta nhất định phải cố gắng tu luyện, quyết không để điện hạ thất vọng."
+
+Tần Vũ Đồng trong lòng, âm thầm thề.
+
+Trong cung điện giữa hồ, Chư Thánh dần dần tỉnh táo lại, toàn bộ đều đang tự hỏi Trương Nhược Trần đến cùng là có át chủ bài gì, vậy mà công bố có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ.
+
+"Hộ Long các. . . Nhất định là Hộ Long các. . ."
+— QUẢNG CÁO —
+
+Minh Giang Vương trong miệng, đọc lên một câu như vậy.
+
+Yến Khải Toàn nói: "Hộ Long các vẫn luôn chỉ là một cái truyền thuyết, chưa từng có ai từng thấy bọn hắn, nói không chắc, căn bản chính là giả dối không có thật một tổ chức."
+
+Minh Giang Vương lắc đầu , nói: "Hộ Long các rất có thể là chân thực tồn tại. Tại hoàng huynh mất tích thời điểm, hai cái hộ quốc đồ đằng cùng Trấn Quốc Linh Tổ, cũng đều đồng thời mất tích. Bản vương hoài nghi, bọn chúng chính là Hộ Long các thành viên."
+
+Thánh Minh Trung Ương đế quốc đồ đằng, chính là Kim Nghê.
+
+Trong truyền thuyết, Trương gia Thủy Tổ "Bất Động Minh Vương Đại Tôn" tọa kỵ, chính là một cái Kim Nghê Thần Thú.
+
+Chỉ có Hoàng tộc thành viên dòng chính mới biết được, 800 năm trước, vẫn như cũ có hai cái Kim Nghê đang thủ hộ Thánh Minh Trung Ương đế quốc, đó là Kim Nghê Thần Thú tử tôn, đã sống vài vạn năm.
+
+Chân chính lợi hại Thần Thú hậu duệ cùng Thái Cổ di chủng, bọn chúng thọ nguyên viễn siêu nhân loại, coi như sống vài vạn năm, cũng chưa chắc sẽ chết đi.
+
+Trấn Quốc Linh Tổ thì là một gốc thực vật, từ Trung Cổ thời kì, thậm chí càng thêm lâu dài thời điểm, ngay tại thủ hộ Trương gia.
+
+Đương nhiên, Trấn Quốc Linh Tổ là một cái truyền thuyết, rất khó chứng minh nó là chân thật tồn tại. Bởi vì, trong truyền thuyết, chỉ có mỗi một thời đại Minh Đế kế vị đằng sau, mới có thể đi bái kiến nó.
+
+Chỉ có mỗi một thời đại Minh Đế, mới biết được Trấn Quốc Linh Tổ có phải hay không chân thực tồn tại.
+
+Minh Giang Vương cũng là lật xem một vài gia tộc cổ tịch, phát hiện mỗi một lần Trương gia gặp được đại kiếp nạn thời điểm, đều sẽ xuất hiện một đạo sức mạnh bí ẩn khó lường, hỗ trợ hóa giải kiếp nạn. Bởi vậy, cho dù là Trung Cổ thời kì cuối rung chuyển lớn, Trương gia cũng không có hủy diệt.
+
+Lực lượng thần bí kia, có đôi khi là một mảnh cánh hoa từ trên trời giáng xuống, đem Trương gia tộc nhân che chở ở xuống; có đôi khi là một đầu sợi rễ từ lòng đất xông ra, đánh giết đối phó Trương gia cường địch.
+
+Cho nên, Minh Giang Vương hoài nghi, lực lượng thần bí kia, rất có thể chính là Trấn Quốc Linh Tổ.
+
+Vương Tịch có chút động dung , nói: "Vạn nhất Trương Nhược Trần thật triệu hồi trong truyền thuyết Hộ Long các thành viên, tiêu diệt Lăng Tiêu Thiên Vương Phủ. Chúng ta nên làm cái gì?"
+
+"Nếu là, hắn thật sự có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ, cũng liền có tư cách làm Thánh Minh Trung Ương đế quốc thái tử." Minh Giang Vương nói ra.
+
+. . .
+
+Sau đó hai ngày, Trương Nhược Trần vẫn luôn đang toàn lực ứng phó tu luyện, trùng kích Triệt Địa cảnh.
+
+Huyền Hoàng cảnh tu vi, hay là quá thấp một chút, gặp được Chân Thánh bình thường còn có thể ứng phó, thế nhưng là, gặp được cường giả trong Chân Thánh, muốn thủ thắng, chỉ sợ cũng không phải một chuyện dễ dàng.
+
+Mặc dù nói, Trương Nhược Trần chỉ là sử dụng ba kiếm liền đánh bại Mộc Kình Thiên, thế nhưng là, đó là vận dụng Kiếm Thất cùng Thời Gian Kiếm Pháp, đã toàn lực ứng phó.
+
+Dưới tình huống toàn lực ứng phó, cũng chỉ là chém xuống Mộc Kình Thiên phát quan, mà không phải đầu của hắn.
+
+Bởi vậy có thể thấy được, muốn đánh bại một vị Chân Thánh hậu kỳ nhân vật, tuyệt không giống ngoại nhân nhìn thấy đơn giản như vậy.
+
+Huống chi, tại Chân Thánh hậu kỳ phía trên, còn có Chân Thánh cảnh giới đỉnh cao.
+
+"Thánh Giả mỗi một cảnh giới đột phá đứng lên, quả nhiên đều là khó như lên trời. Khó trách lấy Lăng Phi Vũ thiên tư, cũng tại Thánh Giả cảnh giới tu luyện 300 năm, mới đột phá trở thành Thánh Vương. Đại sư huynh, Bùi Vũ Điền, Tư Đồ Phượng Thành cái nào không phải nhất đẳng thiên kiêu, thế nhưng là, tu luyện trăm năm, cũng đều còn tại Thông Thiên cảnh, không thể đột phá đến Chân Thánh cảnh giới."
+
+Càng về sau, Trương Nhược Trần cảm giác được mỗi đột phá một cảnh giới, đều giống như đang bò một tòa núi cao, căn bản không phải một sớm một chiều liền có thể xông qua được đi.
+
+Chỉ sợ cũng chỉ có chín đại Giới Tử, mới có thể nhanh chóng tăng cao tu vi cảnh giới. Bởi vì, bọn hắn tại Bán Thánh cảnh giới, đạt được thường nhân không cách nào tưởng tượng bồi dưỡng, tiêu hao Côn Lôn giới đại lượng tài nguyên.
+
+Trương Nhược Trần có thể đuổi theo chín đại Giới Tử tốc độ tu luyện, đồng thời bảo trì dẫn trước, đã là tương đương không dễ dàng.
+
+Đột nhiên, Trương Nhược Trần tinh thần lực, phát giác được một cỗ băng lãnh khí tức, thông suốt mở ra hai mắt. Chỉ gặp, tu luyện trong phòng, ngay tại trước người hắn, vậy mà đứng đấy một bóng người.
+
+Đạo nhân ảnh kia, mặc một thân trường bào màu trắng, trên trường bào mỗi một cây sợi tơ đều giống như cùng thiên địa quy tắc hòa làm một thể, như là màu trắng thác nước đồng dạng, tự nhiên hướng phía dưới rủ xuống, tản mát ra oánh oánh quang hoa.
+
+Trên mặt của hắn, thì là mang theo một mặt óng ánh sáng long lanh mặt nạ, che khuất cả khuôn mặt, không có bất kỳ cái gì lỗ thủng, bao quát con mắt vị trí cũng bị che kín.
+
+Mặt nạ nội bộ, giống như là có một mảnh tinh không, đã là đen kịt tĩnh mịch, nhưng lại tản mát ra từng hạt điểm sáng.
+
+Nhìn thấy Trương Nhược Trần mở to mắt, phát hiện hắn, người kia mới là khẽ gật đầu một cái , nói: "Hộ Long các Thiên Cương các phó các chủ, gặp qua thái tử điện hạ."
+
+Trương Nhược Trần bảo trì trấn định, không có một vẻ bối rối , nói: "Ngươi là bao lâu đến nơi này?"
+
+"Đã tại điện hạ trước mặt chờ ba canh giờ." Dưới mặt nạ, truyền ra một thanh âm mờ mịt, khàn khàn.
+
+Trương Nhược Trần hít vào một ngụm khí lạnh, đối phương ở trước mặt của hắn, đều đã đứng thẳng ba canh giờ, cường độ tinh thần lực của hắn, lại không có chút nào phát giác.
+
+Trương Nhược Trần hỏi: "Triệu Phu đâu?"
+
+"Triệu Phu cùng khác Thiên Cương, đều chờ đợi ở bên ngoài."
+
+Thiên Cương các phó các chủ ngữ khí rất bình ổn, không mang theo bất luận cái gì tình cảm, cũng không lộ ra thấp Trương Nhược Trần nhất đẳng, đồng thời, cũng có đối với Trương Nhược Trần tôn trọng.
+
+Trương Nhược Trần biết Hộ Long các các chủ thân phận hết sức đặc thù, bởi vậy, cũng không hề để ý điểm này.
+
+"Đều ở bên ngoài?"
+
+Trương Nhược Trần tinh thần lực hoàn toàn không có phát giác được Triệu Phu khí tức, hơi kinh ngạc, đứng dậy, đi đến bên cửa sổ, hướng ra phía ngoài nhìn lại.
+
+Dưới ánh trăng, quả nhiên đứng đấy từng đạo bóng người, toàn bộ đều mặc lấy thác nước đồng dạng bạch bào, mang theo mặt nạ như tinh không. Có đứng tại trên đường phố, có đứng tại cung điện đỉnh chóp, có lơ lửng giữa không trung.
+— QUẢNG CÁO —
+
+
+Thế nhưng là, tu sĩ trong Phượng Vũ các, lại như là nhìn không thấy bọn hắn, đem bọn hắn trở thành không khí, thật sự là khá quỷ dị.
+
+"Hẳn là trên người bọn họ bạch bào cùng mặt nạ, có thần kỳ lực lượng, có thể tránh tu sĩ tinh thần lực cùng thánh cảm giác." Trương Nhược Trần thầm nghĩ trong lòng.
+
+Hết thảy 34 đạo bạch sắc bóng người, đứng tại phòng ốc bốn phương tám hướng, giống như giống như quần tinh vây quanh vầng trăng.
+
+Trông thấy Trương Nhược Trần đẩy ra cửa sổ, tất cả Hộ Long các thành viên, toàn bộ đều khom mình hành lễ: "Gặp qua thái tử điện hạ."
+
+Trương Nhược Trần một lần nữa nhìn chăm chú về phía vị kia Thiên Cương các phó các chủ , nói: "Thiên Cương các các chủ, vì sao không có tự mình đến đây?"
+
+"Chẳng lẽ điện hạ không biết các chủ hướng đi?" Phó các chủ nói.
+
+Trương Nhược Trần con mắt khẽ híp một cái , nói: "Bản thái tử tại sao lại biết?"
+
+"« Huyết Tộc Mật Quyển » chính là các chủ giao cho điện hạ, điện hạ phải cùng các chủ đã gặp mặt mới đúng." Phó các chủ nói ra.
+
+"« Huyết Tộc Mật Quyển ». . . Các chủ. . . Thái Thượng trưởng lão, Yến Ly Nhân. Hắn chính là Hộ Long các các chủ?"
+
+Trương Nhược Trần hơi chấn động, sau đó, bừng tỉnh đại ngộ.
+
+Yến Ly Nhân đem « Huyết Tộc Mật Quyển » giao cho Trương Nhược Trần thời điểm, công bố nhận biết Hộ Long các các chủ, từ Hộ Long các các chủ nơi đó lấy được « Huyết Tộc Mật Quyển » bản chép tay.
+
+Lúc đó Trương Nhược Trần liền nên sinh ra hoài nghi.
+
+Hộ Long các các chủ, làm sao có thể đem thân phận của mình nói cho người khác biết?
+
+Cái gọi là « Huyết Tộc Mật Quyển » bản chép tay, khẳng định chính là bút tích thực.
+
+Trương Nhược Trần cảm giác được khó có thể tin, nhưng lại không thể không tiếp nhận sự thật này , nói: "Hộ Long các các chủ, thế nào lại là Huyết Thần giáo Thái Thượng trưởng lão?"
+
+Phó các chủ nói ra: "Hộ Long các thành viên, vốn là trải rộng Côn Lôn giới, ẩn thân tại trong các đại thế lực, trong đó một chút, thậm chí là một cái đại tông tông chủ. Chỉ có tiếp thu được Minh Đế chiếu lệnh, chúng ta mới có thể một lần nữa tụ tập đến Hộ Long các. Cũng chỉ có mỗi một thời đại Minh Đế, mới có tư cách biết thân phận của chúng ta."
+
+Trương Nhược Trần con mắt ngưng tụ , nói: "Thân phận của ngươi đâu? Bản thái tử hẳn là có thể biết a?"
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1386
+
+Chương 1383: Kim Bộ Long Liễn
+
+Chương 1383: Kim Bộ Long Liễn
+
+Phó các chủ trầm tư một lát , nói: "Có thể . Bất quá, điện hạ trước hết trả lời ta hai cái vấn đề."
+
+"Xin hỏi?" Trương Nhược Trần nói.
+
+Phó các chủ nói ra: "Vấn đề thứ nhất, thái tử điện hạ mùng bảy tháng sau đi Vô Đỉnh sơn tế thiên, chẳng lẽ vẻn vẹn chỉ là vì cướp đoạt một nữ tử?"
+
+Trương Nhược Trần minh bạch phó các chủ hỏi như vậy nguyên nhân , nói: "Phó các chủ cảm thấy ta làm việc còn chưa thành thục, quá mức xúc động?"
+
+"Điện hạ chỉ cần trả lời ta là được." Phó các chủ nói ra.
+
+Trương Nhược Trần hai tay chắp sau lưng, trong phòng dạo bước , nói: "Ta đi là trả một cái thiếu hứa hẹn."
+
+Phó các chủ không có làm ra lời bình, hỏi ra vấn đề thứ hai: "Điện hạ tuyên bố Thái Tử Chiếu, triệu hồi Thánh Minh Trung Ương đế quốc bộ hạ cũ, có nghĩ tới hay không nên như thế nào bảo vệ bọn hắn? Có nghĩ tới hay không, tiếp xuống nên đi nơi nào?"
+
+"Không có năng lực bảo vệ bọn hắn, không thể cho bọn hắn tốt hơn tương lai, bản thái tử cũng sẽ không tuyên bố Thái Tử Chiếu."
+
+Trương Nhược Trần khí thế trên người trở nên lăng lệ, duỗi ra một tay , nói: "Phó các chủ có dám theo hay không ta đi một chỗ?"
+
+"Có gì không dám?"
+
+Trong phòng, xuất hiện một đạo không gian ba động, lập tức Càn Khôn giới thế giới chi môn mở ra.
+
+Trương Nhược Trần mang theo phó các chủ tiến vào Càn Khôn giới, đứng giữa không trung, quan sát phía dưới mênh mông thế giới.
+
+"Một tòa thế giới. . . Nguyên lai điện hạ nắm giữ lấy một tòa thế giới. . ."
+
+Khi phó các chủ nhìn thấy Tiếp Thiên Thần Mộc thời điểm, cũng xuất hiện một tia tâm tình chập chờn , nói: "Nếu điện hạ biết mình đang làm cái gì, cũng biết sau đó phải làm cái gì, ta cũng liền triệt để yên tâm."
+
+Một lần nữa trở lại trong Phượng Vũ cung gian phòng kia, phó các chủ đã không còn một chút do dự, duỗi ra một cái tản ra thánh quang tay, đem mang lên mặt Tinh Không Mặt Nạ lấy xuống.
+
+Nhìn thấy đứng trước người lão giả, Trương Nhược Trần hai mắt không ngừng phóng đại, trong lòng sinh ra to lớn gợn sóng , nói: "Thái Nhất tổ sư. . . Thế nào lại là lão nhân gia người?"
+
+Đứng tại Trương Nhược Trần lão giả đối diện, chính là Lưỡng Nghi tông vị kia Thái Nhất tổ sư, giữ lại râu bạc tóc trắng, mặt mũi nhăn nheo, cho người ta một loại tiên phong đạo cốt cảm giác.
+
+Ở trong Thượng Thanh cung, Trương Nhược Trần gặp qua Thái Nhất tổ sư một lần, hình ảnh mười phần khắc sâu.
+
+Thái Nhất tổ sư thản nhiên nói: "Năm đó, bần đạo cùng ngươi phụ hoàng cùng một chỗ bái nhập Lưỡng Nghi tông, đi theo Nguyên Pháp Đạo Tổ cùng một chỗ tu luyện. Bởi vì, bần đạo tuổi tác nhỏ hơn mấy tuổi, cho nên, xưng hô ngươi phụ hoàng là sư huynh."
+
+Trương Nhược Trần liền vội vàng khom người hành lễ: "Bái kiến sư thúc."
+
+Giờ phút này Trương Nhược Trần hướng Thái Nhất tổ sư hành lễ, hoàn toàn chính là đối với hắn một loại kính trọng. Năm đó, tại Lưỡng Nghi tông, nếu không phải do Thái Nhất tổ sư che chở, "Lâm Nhạc" thân phận chỉ sợ sớm đã đã bại lộ.
+— QUẢNG CÁO —
+
+Chỉ sợ vào lúc đó, Thái Nhất tổ sư liền đã xem thấu Trương Nhược Trần thân phận chân thật.
+
+Thái Nhất tổ sư rất thản nhiên, trong mắt không có một tia gợn sóng, duỗi ra một cái già nua tay ra hiệu Trương Nhược Trần không cần hành lễ, lại nói: "Năm đó, sư huynh đối với bần đạo có đại ân, cho nên bần đạo đáp ứng gia nhập Hộ Long các, đảm nhiệm Thiên Cương các phó các chủ. Trong đó còn có một số phức tạp nguyên nhân, hiện tại cũng không có tất yếu nói cho ngươi, tương lai, ngươi tự nhiên sẽ minh bạch."
+
+Trương Nhược Trần hỏi: "Xin hỏi sư thúc, phụ hoàng còn sống không? Hắn đến cùng đi nơi nào?"
+
+Thái Nhất tổ sư lắc đầu, hít một tiếng , nói: "Kỳ thật, bần đạo cũng rất muốn biết, sư huynh có phải hay không còn sống."
+
+Trương Nhược Trần thoáng có chút ảm đạm, lập tức, lại hỏi: "Truyền thuyết, phụ hoàng mất tích một ngày trước, triệu kiến Hộ Long các tất cả thành viên. Sau đó, Hộ Long các thành viên, đem Thánh Minh Trung Ương đế quốc quốc khố tài nguyên toàn bộ đều mang đi. Việc này, là thật hay không?"
+
+"Không giả."
+
+"Thánh Minh Trung Ương đế quốc quốc khố tài nguyên, bây giờ tại địa phương nào?" Trương Nhược Trần tiếp tục hỏi.
+
+Thái Nhất tổ sư nói ra: "Đã hao hết."
+
+"Làm sao có thể?"
+
+Trương Nhược Trần có chút khó mà tin được.
+
+Thái Nhất tổ sư nói: "Sư huynh trước khi rời đi, phân phó chúng ta kiến tạo một vật. Vì kiến tạo món đồ kia, đã hao hết trong quốc khố tài nguyên."
+
+"Kiến tạo thứ gì, có thể hao hết một cái Trung Ương đế quốc quốc khố?" Trương Nhược Trần hỏi.
+
+Thái Nhất tổ sư nói: "Sư huynh hạ phong khẩu lệnh, thời cơ không đến thời điểm, không thể nói cho bất luận kẻ nào."
+
+"Cũng không thể nói cho ta biết?" Trương Nhược Trần nói.
+
+Thái Nhất tổ sư nói ra: "Bất luận kẻ nào bên trong, tự nhiên cũng bao quát ngươi."
+
+Trương Nhược Trần trong lòng biết Thái Nhất tổ sư không chịu nói ra đến, coi như tiếp tục hỏi thăm, cũng sẽ không có kết quả , nói: "Tiến về Vô Đỉnh sơn tế thiên trước đó, ta muốn trước diệt Lăng Tiêu Thiên Vương Phủ. Sư thúc, ngươi cảm thấy thế nào?"
+
+Thái Nhất tổ sư một lần nữa đem Tinh Không Mặt Nạ đeo lên, toàn thân khí tức lại biến mất vô hình, thanh âm mờ mịt mà nói: "Ngươi là thái tử, do ngươi làm quyết định, chúng ta sẽ tận lực lượng lớn nhất trợ giúp ngươi."
+
+Gần nhất mấy ngày, Thánh Minh thành có thể nói là gió nổi mây phun, rung chuyển bất an.
+
+Thái Tử Chiếu lơ lửng tại thiên khung vẫn luôn không có tán đi, Thánh Minh Trung Ương đế quốc bộ hạ cũ cùng thần tử, từ thiên nam địa bắc, điên cuồng hướng về Thánh Minh thành tụ đến, đã dẫn phát một lần lại một lần huyết chiến.
+
+Triều đình số lớn quân đội, tại chạy tới đầu tiên Thánh Minh thành, khiến cho Thánh Minh thành lực lượng phòng ngự tăng cường mấy lần.
+
+Đáng tiếc, hao tốn mấy ngày, Lăng Tiêu Thiên Vương Phủ cũng không có tìm tới Trương Nhược Trần tung tích. Lăng Tiêu Thiên Vương thậm chí mời được Thái Tế Vương Sư Kỳ, sử dụng Thiên Địa Kỳ Cục tìm kiếm Trương Nhược Trần tung tích, đáng tiếc, vẫn không có bất luận thu hoạch gì.
+
+Tuyên bố Thái Tử Chiếu sau ngày thứ bảy, Lăng Tiêu Thiên Vương Phủ một vài đệ tử, xuất hiện tại Thánh Minh thành công chúng trường hợp, "Cái gọi là Thánh Minh hoàng thái tử, bất quá chỉ là một cái rùa đen rút đầu, căn bản không dám hiện thân. Tuyên bố Thái Tử Chiếu, chỉ là muốn đem tiền triều dư nghiệt dẫn tới Thánh Minh thành chịu chết."
+
+"Trương Nhược Trần vậy mà vọng tưởng leo lên Vô Đỉnh sơn cướp đoạt Thu Vũ công tử vị hôn thê, hoàn toàn chính là tự cho là đúng, không biết lượng sức. Những Thánh Minh dư nghiệt kia chính là một đám người ô hợp, không thành tài được."
+
+. . .
+
+. . .
+
+Có người ở sau lưng chỉ thị bọn hắn, muốn sử dụng ngôn ngữ, đem Trương Nhược Trần kích động ra tới.
+
+Ngay tại cùng ngày, trong Lăng Tiêu Thiên Vương Phủ, xông ra một cỗ kim quang xán lạn Long Liễn, do chín đầu đạt tới Thánh cảnh màu trắng Giao Long kéo xe, từ trong Long Liễn truyền ra khí tức, chấn động toàn bộ Thánh Minh thành.
+
+Một cỗ cuồn cuộn Đế Hoàng chi khí, tựa như màu vàng sóng biển tuôn hướng bốn phương tám hướng.
+
+"Đó là Kim Bộ Long Liễn, Minh Đế ngự xa, đã từng Thánh Minh Trung Ương đế quốc chí bảo." Một vị Thánh cảnh nhân vật, đem chiếc cổ xa do Cửu Long kéo động kia nhận ra được, trong lòng chấn động không gì sánh nổi.
+
+Đã từng, Minh Đế cưỡi Kim Bộ Long Liễn chinh chiến tứ phương, đánh cho Bất Tử Huyết tộc đều là nghe ngóng rồi chuồn. Có thể nói, Kim Bộ Long Liễn có hết sức đặc thù ý nghĩa.
+
+"Thế mà cưỡi Kim Bộ Long Liễn đi ra tuần sát, người này đơn giản chính là tại nhục nhã Minh Đế cùng Trương Nhược Trần, thật to gan, chẳng lẽ không sợ rước lấy Thánh Minh dư nghiệt vây công?"
+
+Một vị chừng 20 tuổi nam tử trẻ tuổi, mặc một thân màu vàng vương bào, từ trong Kim Bộ Long Liễn đi ra, thả ra thánh uy, khiến cho thiên địa biến sắc.
+
+Hắn nói: "Một cái vong quốc thái tử, cũng dám tuyên bố Thái Tử Chiếu. Nếu là hắn dám xuất hiện, bản vương trong mười kiếm, nhất định chém xuống hắn trên cổ đầu người."
+
+"Người này khẩu khí thật lớn, chẳng lẽ không biết Trương Nhược Trần đã tu luyện thành Kiếm Thánh, có thể đánh bại Mộc Kình Thiên?"
+
+"Trong Lăng Tiêu Thiên Vương Phủ, ngoại trừ Lăng Tiêu Thiên Vương, chỉ sợ cũng chỉ có một người, mới có phách lực như thế."
+
+"Chẳng lẽ là. . . Trì Độc Phượng?"
+
+"Ngoại trừ Độc Phượng Kiếm Thánh, còn có người nào dám công bố trong mười kiếm liền có thể chém xuống Trương Nhược Trần đầu người?"
+
+"200 năm trước, Trì Độc Phượng thế nhưng là Lăng Tiêu Thiên Vương Phủ tuyệt đại kỳ tài, cùng thời đại kia đệ nhất cao thủ Lạc Hư đều có thể đối chiến hơn mười chiêu mà không bại. Cũng không biết Trì Độc Phượng tu vi hiện tại, đạt đến kinh khủng bực nào cấp độ."
+
+Trì Độc Phượng hiện thân, oanh động Thánh Minh thành.
+
+Trì Độc Phượng lái Kim Bộ Long Liễn, ở trong Thánh Minh thành tuần sát, những nơi đi qua, tất cả tu sĩ toàn bộ đều bị Long Liễn tràn ra tới uy thế, trấn áp đến quỳ rạp trên đất.
+
+Giống như Đế Hoàng xuất hành đồng dạng, số lớn quân sĩ đi theo sau lưng Kim Bộ Long Liễn.
+
+Rốt cục, có Thánh Minh Trung Ương đế quốc bộ hạ cũ, không thể chịu đựng được Trì Độc Phượng, dẫn đầu 3000 vị tử sĩ, kết thành trận pháp, hướng về Kim Bộ Long Liễn xông tới giết.
+
+Dẫn đầu người kia, đạt đến Thánh cảnh, nổi giận gầm lên một tiếng: "Một cái Trì gia tiểu nhi, cũng dám cưỡi Minh Đế tọa giá, ngươi là đang tìm cái chết."
+— QUẢNG CÁO —
+
+
+Vị kia Thánh cảnh cường giả đứng tại 3000 tử sĩ trung tâm, điều động trận pháp lực lượng, huy động một mặt chiến kỳ, hướng về kim bước cự liễn công sát tới.
+
+"Hoa —— "
+
+Một đạo kiếm quang, từ trong Kim Bộ Long Liễn bay ra, giống như sóng nước đồng dạng mạnh vọt qua.
+
+"Phốc phốc."
+
+3000 tử sĩ cùng vị kia Thánh cảnh cường giả, trong nháy mắt, hóa thành một mảnh huyết vũ, chỉ còn lại có từng cỗ tàn phá thi hài, ngổn ngang lộn xộn ngã trên mặt đất.
+
+Ở đây tất cả tu sĩ, toàn bộ bị dọa đến run rẩy.
+
+Trong Kim Bộ Long Liễn, truyền ra Trì Độc Phượng thanh âm: "Quả nhiên đều là đám ô hợp, Thánh Minh dư nghiệt đều yếu như vậy sao?"
+
+Sau đó, Kim Bộ Long Liễn tiếp tục hướng phía trước đi ra đi, từ những thi hài kia trên thân nghiền ép mà qua.
+
+Phượng Vũ cung mái nhà, Yến Khải Toàn cùng Vương Tịch bọn người tức giận đến thất khổng bốc khói, muốn xuất thủ đối phó Trì Độc Phượng, thế nhưng là, lại bị Bạch Tô bà bà ngăn lại.
+
+"Trì Độc Phượng chính là muốn chọc giận chúng ta, để cho chúng ta ra ngoài cùng hắn quyết đấu, sau đó, nhân cơ hội này tiêu diệt chúng ta." Bạch Tô bà bà nói ra.
+
+"Quá uất ức! Vị hoàng thái tử kia không phải công bố trong vòng mười ngày, có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ? Hiện tại, số lớn lão thần tử tôn cùng bộ hạ cũ, hội tụ đến Thánh Minh thành, muốn theo hắn cùng một chỗ làm một vố lớn. Làm sao hắn lại trở thành rùa đen rút đầu? Hắn là bị dọa sao?"
+
+Yến Khải Toàn vô cùng tức giận, không để ý Bạch Tô bà bà cản trở, vọt tới Trương Nhược Trần tu luyện bên ngoài phòng, hét lớn: "Thái tử điện hạ, Trì Độc Phượng chính cưỡi Minh Đế Kim Bộ Long Liễn tuần sát Thánh Minh thành, đồ sát Thánh Minh Trung Ương đế quốc bộ hạ cũ. Ngươi còn muốn trốn đến lúc nào?"
+
+Trong phòng, Trương Nhược Trần ngồi tại một tấm thanh đồng bàn bên cạnh, lộ ra đặc biệt bình tĩnh, tựa như là nghe không được Yến Khải Toàn thanh âm.
+
+Tần Vũ Đồng đứng ở phía dưới, bẩm báo nói: "Chúng ta tại Thánh Minh thành bố trí mấy trăm năm, gần nhất mấy ngày, Bạch Tô bà bà đã an bài thỏa đáng, chỉ cần thái tử điện hạ ra lệnh một tiếng, Thánh Minh thành hộ thành đại trận cũng liền không cách nào lại tiếp tục vận chuyển, càng không cách nào phát động trận pháp công kích."
+
+Tần Vũ Đồng thiên phú cực cao, đạt được Trương Nhược Trần ban thưởng thánh dược cùng Thánh Nguyên, chỉ dùng ba ngày thời gian, đã đột phá đến Thánh Giả cảnh giới.
+
+"Các ngươi làm được rất tốt." Trương Nhược Trần nhẹ gật đầu.
+
+Có thể có được thái tử điện hạ tán dương, Tần Vũ Đồng lộ ra một đạo dáng tươi cười, hỏi: "Điện hạ, bên ngoài đã là gió nổi mây phun, chúng ta đến cùng bao lâu tiến đánh Lăng Tiêu Thiên Vương Phủ?"
+
+"Đêm nay." Trương Nhược Trần nói.
+
+. . .
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1387
+
+Chương 1384: Chiến, chiến, chiến
+
+"Kẹt kẹt."
+
+Tần Vũ Đồng mở cửa phòng, cùng Trương Nhược Trần một trước một sau từ bên trong đi ra.
+
+Thấy cảnh này, đứng ở bên ngoài Yến Khải Toàn càng thêm tức giận, trầm giọng nói: "Bởi vì ngươi một phong Thái Tử Chiếu, bao nhiêu cựu thần nhao nhao chạy đến Thánh Minh thành, bây giờ, trong thành đều đã máu chảy thành sông, mà ngươi lại còn trầm mê tại trong ôn nhu hương, hôm nay, lão phu trước hết chém nàng."
+
+Tần Vũ Đồng có cực kỳ mê người mỹ mạo và khí chất, liền ngay cả Thánh cảnh nhân vật, nhìn thấy nàng đều sẽ vô cùng si mê.
+
+Yến Khải Toàn sẽ sinh ra hiểu lầm, tự nhiên là tương đương bình thường sự tình.
+
+Yến Khải Toàn lấy ra một thanh Thú Văn Thánh Đao, lôi ra một mảnh chói lọi sóng đao, lập tức, một cỗ kinh khủng lực lượng hủy diệt hướng Tần Vũ Đồng quét sạch mà đi, muốn chém nàng.
+
+Trương Nhược Trần hai mắt ngưng tụ, duỗi ra một cái tay phải, thánh khí điên bừng lên, ngưng tụ thành một đầu Thần Tượng to lớn bóng dáng.
+
+Bàn tay xoay chuyển, lập tức tượng thần bóng dáng hướng phía dưới lao xuống.
+
+"Ầm ầm."
+
+Yến Khải Toàn bị Thần Tượng bóng dáng trấn áp đến quỳ một gối xuống nằm trên mặt đất, toàn thân không cách nào động đậy, khiếp sợ nhìn chăm chú về phía Trương Nhược Trần: "Làm sao. . . Khả năng. . ."
+
+Một vị Chân Thánh sơ kỳ đại nhân vật, lại bị Trương Nhược Trần một kích trấn áp.
+
+Trước mấy ngày lần kia giao thủ, Trương Nhược Trần thế nhưng là vận dụng Thời Gian Kiếm Pháp cùng Trầm Uyên cổ kiếm, mới một kích trọng thương Yến Khải Toàn.
+
+Nếu là không có lực lượng thời gian gia trì, Yến Khải Toàn tự nhận là là có thể cùng Trương Nhược Trần chống lại một đoạn thời gian, coi như sẽ thua, chí ít có thể lấy tự vệ, có thể thong dong rút đi.
+
+Ngắn ngủi mấy ngày, Trương Nhược Trần thực lực, chí ít tăng cường gấp đôi. Coi như Trương Nhược Trần không sử dụng Thời Gian Kiếm Pháp, Yến Khải Toàn cũng vô lực cùng hắn chống lại.
+
+Bạch Tô bà bà chạy tới, vì Yến Khải Toàn cầu tình , nói: "Điện hạ, hắn cũng không biết ngươi muốn tiến đánh Lăng Tiêu Thiên Vương Phủ kế hoạch, cầu ngươi lại buông tha hắn một lần."
+
+Yến Khải Toàn mặc dù mạo phạm Trương Nhược Trần, nhưng, dù sao cũng là một người rất có huyết tính, mà lại tu luyện đến Chân Thánh cảnh giới. Nhân vật như vậy, Trương Nhược Trần vẫn là có thể lại dễ dàng tha thứ hắn một lần.
+
+Trương Nhược Trần thu hồi thánh lực, hừ lạnh một tiếng: "Sẽ không còn có lần thứ ba."
+
+Ngay tại hôm qua, Trương Nhược Trần thành công đột phá đến Triệt Địa cảnh, tu vi tiến nhanh, muốn trấn áp một cái Chân Thánh sơ kỳ nhân vật, tự nhiên không phải một việc khó.
+
+Yến Khải Toàn hướng Bạch Tô bà bà trông đi qua, dò hỏi: "Cái gì tiến đánh Lăng Tiêu Thiên Vương Phủ kế hoạch?"
+
+Bạch Tô bà bà lạnh Yến Khải Toàn một chút , nói: "Ngươi cho rằng mỗi người cũng giống như ngươi xúc động như vậy? Muốn tiến đánh Lăng Tiêu Thiên Vương Phủ, trước hết phá hư Thánh Minh thành hộ thành đại trận. Nếu không, một khi hộ thành đại trận mở ra, coi như chúng ta sai phái ra lại nhiều cường giả, cũng là hữu tử vô sinh."
+
+Yến Khải Toàn ánh mắt chấn động, rốt cục ý thức được, vị thái tử điện hạ này là thật muốn tiến đánh Lăng Tiêu Thiên Vương Phủ, hỏi: "Bao lâu xuất thủ, bản thánh muốn tham chiến."
+
+Trương Nhược Trần hai mắt có chút co rụt lại, hướng phía tây bắc hướng nhìn lại, chỉ gặp, Minh Giang Vương một ngọn núi giả bên cạnh, toàn thân tản mát ra vàng óng ánh thánh mang.
+
+"Thập Nhị hoàng thúc có hứng thú hay không, đêm nay, đi theo ta cùng một chỗ về hoàng cung đi Chư Hoàng Từ Đường, tế bái liệt tổ liệt tông?" Trương Nhược Trần hỏi.
+
+Minh Giang Vương nói: "Đêm nay, nếu là có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ, bản vương nhất định tại liệt tổ liệt tông trước mặt lập thệ, sau này hiệu trung với ngươi, trùng kiến Thánh Minh. Muốn chiến, liền chiến một cái long trời lở đất."
+— QUẢNG CÁO —
+
+Người Lăng Tiêu Thiên Vương Phủ, hiển nhiên cũng là biết, Trương Nhược Trần tuyệt sẽ không một mực co đầu rút cổ không ra, khẳng định là tại thai nghén một cơn bão táp to lớn.
+
+Bởi vậy, các đại thành vực đều là trú đóng trọng binh, trận địa sẵn sàng đón quân địch, chỉ cần Trương Nhược Trần có hành động, lập tức liền có thể xuất binh trấn áp.
+
+Một ngày này hoàng hôn, toàn bộ Thánh Minh thành, lộ ra vô cùng kiềm chế cùng ngột ngạt.
+
+Trong Phượng Vũ cung , tập kết tiếp cận 3 vạn tu sĩ, là Minh Giang Vương tọa hạ tinh anh. Trên người bọn họ chiến giáp đều là in "Thánh Minh" hai chữ, từ bốn phương tám hướng hội tụ tới, chí ít đều có được Thiên Cực Cảnh đại viên mãn tu vi.
+
+Trừ cái đó ra, lấy Bạch Tô bà bà cùng Yến Khải Toàn cầm đầu, hết thảy mười mấy vị Thánh Giả cấp bậc nhân vật, xếp thành một hàng, trên thân tản mát ra ngập trời chiến ý.
+
+Trương Nhược Trần đem Minh Tông mười mấy vị Thánh cảnh sinh linh, cũng toàn bộ đều từ trong Càn Khôn giới tiếp đi ra, bao quát Huyết Nguyệt Quỷ Vương, Bạch Lê công chúa, Oa Oa, Ma Viên, còn có đã tỉnh lại A Nhạc, bọn hắn đều là cường giả trong Thánh Giả.
+
+Bạch Tô bà bà bưng lấy một cái hộp sắt dài một trượng, đứng tại một tòa linh sơn trên đài cao, cất giọng hỏi: "800 năm trước chiến kỳ, rốt cục lại phải đón gió phấp phới, ai đến chấp chưởng?"
+
+Chấp chưởng chiến kỳ người, nhất định xông lên phía trước nhất, là lớn quân chỉ dẫn tiến lên phương hướng.
+
+"Bản thái tử tự mình chấp cờ."
+
+Trương Nhược Trần bước nhanh đến phía trước, từ trong hộp sắt lấy ra chiến kỳ, cánh tay huy động một chút, một mặt chiến kỳ chiếu đến "Thánh Minh" hai chữ, phù một tiếng, hướng ra phía ngoài triển khai.
+
+Trương Nhược Trần điều động thể nội thánh khí, quán chú đi vào.
+
+"Đùng đùng."
+
+Chiến kỳ nội bộ, vang lên liên tiếp bạo hưởng, cột cờ càng ngày càng dài, càng ngày càng thô, cuối cùng, trở nên chừng dài trăm trượng, cây cột lớn như vậy, xông ra Phượng Vũ cung ẩn nặc trận pháp, phát ra phần phật tiếng vang.
+
+"Rống!"
+
+Cách đó không xa, Ma Viên nổi giận gầm lên một tiếng, thân thể trở nên chừng 300 trượng cao, mặc dù không phải nhất to lớn trạng thái, nhưng như cũ chấn động không gì sánh nổi lòng người. Từ trên người nó tuôn ra cuồn cuộn ma khí, bao phủ toàn bộ thành vực, kinh động đến vô số tu sĩ.
+
+Trương Nhược Trần tay cầm chiến kỳ, bay đến Ma Viên vai phải, hướng Lăng Tiêu Thiên Vương Phủ phương hướng một chỉ, "Chiến!"
+
+"Chiến! Chiến! Chiến!"
+
+Trong Phượng Vũ cung tu sĩ, tại hơn 20 vị Thánh Giả dẫn dắt xuống, giống như thủy triều, bằng tốc độ nhanh nhất, hướng Lăng Tiêu Thiên Vương Phủ phương hướng tiến lên.
+
+Đại địa tại ầm ầm chấn động, trên bầu trời, mây đen cuồn cuộn che khuất trời chiều.
+
+Trong nháy mắt, cường đại chiến uy, truyền khắp hơn phân nửa Thánh Minh thành.
+
+"Náo động, phát sinh náo động lớn, Thương Long quân lập tức tiến đến trấn áp."
+
+Một chi người mặc màu trắng chiến giáp quân đội, khoảng cách Phượng Vũ cung gần nhất, hết thảy có 8 vạn chi chúng, có cưỡi Man thú tại mặt đất chạy vội, có cưỡi man cầm bay ở thiên khung, hướng về Thánh Minh đại quân công kích đi qua.
+
+Hai chi đại quân va chạm vào nhau.
+
+Chi kia Thương Long quân bị nghiền ép, khoảng cách trước đó, liền bị hơn 20 vị Thánh Giả thanh không một mảng lớn.
+
+Trên mặt đất, còn sót lại những quân sĩ Thương Long quân kia, thì là bị theo sát ở phía sau Thánh Minh đại quân gạt bỏ, lưu lại một mảng lớn tử thi, máu tươi nhuộm đỏ đường đi.
+
+Giữa không trung phía trên, Oa Oa hóa thành một cái Thôn Thiên Ma Long, thân thể chừng mười mấy dặm dài, chỉ là há miệng, liền đem bay ở không trung Thương Long quân thôn phệ một phần ba.
+
+Còn lại Thương Long quân, cưỡi man cầm, hoảng sợ hướng Lăng Tiêu Thiên Vương Phủ phương hướng bỏ chạy.
+
+Chi kia Thương Long trong quân, lại có một vị Thánh Giả, một bên chạy trốn, một bên rống to: "Trương Nhược Trần tạo phản! Hắn dẫn đầu đại quân, muốn tiến đánh Thánh Minh thành, tranh thủ thời gian gõ vang Vô Định Chung. . . A. . ."
+
+Trương Nhược Trần đứng tại Ma Viên trên vai, lấy ra Thanh Thiên Cung cùng Bạch Nhật Tiễn, một tiễn bắn ra ngoài.
+
+"Bành" một tiếng, vị kia Thánh Giả thánh khu bạo liệt mà ra, hóa thành một đám huyết vụ, có đại lượng thánh huyết, rơi tới mặt đất.
+
+"Ông, ông, ông. . ."
+
+Trong mỗi một thành vực Vô Định Chung đều bị gõ vang, tuyên cáo 800 năm về sau, Thánh Minh thành lần nữa dẫn tới một trận khoáng thế chiến tranh.
+
+"Liền xem như Thánh Giả đại chiến, Vô Định Chung cũng sẽ không bị gõ vang. Đến cùng là xảy ra đại sự gì, vì sao trăm chuông cùng vang?"
+
+Trong thành tu sĩ, toàn bộ đều bị kinh động, biết được chân tướng đằng sau, cảm giác được hãi nhiên.
+
+Ngắn ngủi nửa canh giờ, Thánh Minh đại quân khoảng cách Lăng Tiêu Thiên Vương Phủ đã chỉ còn khoảng cách mười dặm, các đại thành vực quân đội, nhao nhao chạy đến cứu viện.
+
+Thương Long quân, Xích Long quân, Hắc Long quân, Thanh Long quân, Bạch Long quân, năm nhánh quân đội, vượt qua 200 vạn quân sĩ, giống như như châu chấu, thủ hộ lấy Lăng Tiêu Thiên Vương Phủ,
+
+Vô luận là bầu trời, hay là đại địa, tất cả đều là lít nha lít nhít điểm nhỏ màu đen.
+
+"Hôm nay thái tử về Đế Cung, người ngăn cản chết, người quỳ nghênh sinh."
+
+Bạch Tô bà bà tu vi, đạt tới Chí Thánh cảnh giới, có thể xưng dưới Thánh Vương cường đại nhất đám người kia vật.
+
+Nàng tế ra một kiện có được 8000 đạo Minh Văn Thiên Văn Thánh Khí, trong nháy mắt, tất cả Minh Văn toàn bộ đều kích hoạt, tuôn ra một mảnh xích hồng sắc biển lửa, hướng về năm chi triều đình đại quân công kích đi qua.
+
+Biển lửa tuôn ra đi đằng sau, triều đình quân sĩ, giống như người rơm đồng dạng, liên miên liên miên đốt thành tro bụi.
+
+"Thật to gan, Lăng Tiêu Thiên Vương Phủ há lại các ngươi có thể xông địa phương?"
+
+Xích Long quân quân chủ, dẫn đầu trong quân ba vị Thánh Giả, liên thủ đánh ra một kiện tiếp cận Vạn Văn Thánh Khí chiến binh, đánh về phía Bạch Tô bà bà, muốn ngăn cản nàng.
+
+"Ầm ầm."
+
+Bạch Tô bà bà tu vi vô cùng cường hãn, liên tiếp phát động mười sáu lần oanh kích, đem Xích Long trong quân ba vị Thánh Giả oanh kích đến chia năm xẻ bảy, hài cốt không còn.
+
+Chỉ có Xích Long quân quân chủ giữ được tính mạng, hướng trong đại quân bỏ chạy.
+
+Xích Long quân bị thương rất nặng, bên miệng treo tơ máu, trên người thánh giáp đều bị đánh đến rách tung toé, có chút hoảng sợ nhìn chằm chằm Bạch Tô bà bà, quát: "Là Chí Thánh, là Chí Thánh, tranh thủ thời gian khởi động Vạn Quân Chiến Trận, đưa nàng nghiền sát."
+— QUẢNG CÁO —
+
+"Hoa —— "
+
+Trương Nhược Trần lại là bắn ra một chi Bạch Nhật Tiễn, đánh trúng Xích Long quân quân chủ lồng ngực, trên tên lực trùng kích, mang theo thương thế của hắn hướng về sau bay ngược, bịch một tiếng, đụng vào Lăng Tiêu Thiên Vương Phủ trên cửa thành.
+
+Xích Long quân quân chủ tu vi cực kỳ cường hoành, đạt tới Chân Thánh đỉnh phong, vậy mà ngăn trở Bạch Nhật Tiễn, cũng chưa chết đi.
+
+"Rống."
+
+Ma Viên không sợ hãi, tựa như một tòa núi cao, điên cuồng xông về phía trước, đụng vào tiến trong đại quân, hai cái đại thủ ẩn chứa Ma Đạo lực lượng, hướng tứ phương vung đánh ra ngoài.
+
+Như là đang quay đánh con muỗi, Ma Viên mỗi một kích, đều có thể đánh nát một mảng lớn quân sĩ thân thể.
+
+Bạch Lê công chúa, Oa Oa, Huyết Nguyệt Quỷ Vương đi theo sát, cùng Ma Viên cùng Trương Nhược Trần cùng một chỗ đẩy về phía trước tiến.
+
+Bạch Lê công chúa cầm trong tay Âm Không Tháp, mỗi một lần dẫn động, đều có thể quét ngang một mảng lớn. Nàng nện bước huyền diệu bộ pháp, lưu lại một liên tục huyễn ảnh, hướng Xích Long quân quân chủ giết tới, muốn thừa dịp hắn thụ thương, đem hắn triệt để gạt bỏ.
+
+Huyết Nguyệt Quỷ Vương càng là đáng sợ, lấy nàng Quỷ Thể làm trung tâm, hiện ra hơn vạn đạo quỷ hồn bóng dáng, hóa thành một mảnh âm phong, hướng về phía trước dũng mãnh lao tới.
+
+Triều đình đại quân giống như trời mưa đồng dạng, rơi xuống dưới.
+
+Phải biết, Chân Thánh cùng đến Thánh cấp nhân vật khác, tại một cái Trung Cổ thế gia đều có thể đảm đương Thánh Chủ, tuyệt đối là cao cấp nhất cấp độ đại nhân vật.
+
+Bây giờ, nhân vật như vậy, liên tiếp xuất hiện mấy vị, không đến một khắc đồng hồ, liền có vài chục vạn đại quân bị đánh nát thành bùn máu, chất thành thật dày một chỗ, máu tươi hội tụ thành một dòng suối nhỏ.
+
+Tràng diện vô cùng thảm liệt, đem những triều đình quân sĩ thân kinh bách chiến kia đều dọa đến có chút sững sờ, may mắn còn có liên tục không ngừng quân đội đi tới trợ giúp, bằng không bọn hắn đoán chừng cũng bắt đầu chạy trốn.
+
+"Trương Nhược Trần vậy mà thật dám phát động chiến tranh, vậy mà thật dám tiến đánh Lăng Tiêu Thiên Vương Phủ. Quá điên cuồng!"
+
+Trong Thánh Minh thành, rất nhiều tu sĩ đều bị dọa đến sắc mặt trắng bệch, nhao nhao hướng về rời xa Lăng Tiêu Thiên Vương Phủ phương hướng bỏ chạy, sợ gặp tác động đến.
+
+"Thái tử điện hạ đã dựng thẳng lên Thánh Minh chiến kỳ, còn chờ cái gì, giết đi qua, cùng điện hạ kề vai chiến đấu, chém giết Lăng Tiêu Thiên Vương, tru sát quân đội của triều đình, vì chết đi thân nhân cùng bằng hữu báo thù."
+
+"Hôm nay, nhất định phải đánh hạ Lăng Tiêu Thiên Vương Phủ, trùng kiến Thánh Minh Trung Ương đế quốc, xông lên a, đều giết cho ta. . ."
+
+. . .
+
+Trong Thánh Minh thành, khác những bộ hạ cũ kia cùng tiền triều thần tử tử tôn, trông thấy "Thánh Minh" chiến kỳ, toàn bộ đều liền xông ra ngoài, thẳng hướng Lăng Tiêu Thiên Vương Phủ phương hướng.
+
+Đại chiến mở màn, một đêm này, nhất định sẽ chồng thi thành núi, máu chảy thành sông.
+
+. . .
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1388
+
+Chương 1385: Giết tới cuồng
+
+Thái Tử Chiếu tuyên bố về sau, Minh Đường cũng bộc phát chấn động to lớn, có số lớn cường giả chạy đến Thánh Minh thành, tụ tập tại thành tây một tòa linh sơn bị sương trắng bao phủ.
+
+Minh Đường đường chủ, Khổng Thịnh, đứng tại linh sơn đỉnh chóp, một đôi đồng tử hiện lên màu xanh biếc, nhìn ra xa xa khói lửa cùng chiến hỏa, ý vị thâm trường nói: "Bọn hắn vậy mà thật dám tiến đánh Lăng Tiêu Thiên Vương Phủ, chẳng lẽ không biết triều đình tại Thánh Minh thành bố trí sức mạnh mạnh cỡ nào?"
+
+Khổng Hồng Bích mặc một thân màu đỏ như máu Thánh Ngọc bảo giáp, đứng tại Minh Đường đường chủ sau lưng, hừ lạnh một tiếng: "Không biết tự lượng sức mình, hoàn toàn chính là muốn đem Thánh Minh Trung Ương đế quốc cựu thần đều hại chết."
+
+Khổng Hồng Bích tương đương phiền muộn, lúc trước, tại Thánh Minh thành, hắn phát động đại lượng nhân lực gieo rắc lời đồn, muốn mượn triều đình chi thủ diệt trừ Trương Nhược Trần, không nghĩ tới một câu thành sấm, Trương Nhược Trần vậy mà thật chính là Thánh Minh hoàng thái tử.
+
+Thái Tử Chiếu xuất hiện, khiến cho Minh Đường ở vào một cái tương đương lúng túng vị trí.
+
+Thánh Minh hoàng thái tử mới là chính thống, nếu là không đáp chiếu thư, Minh Đường tọa hạ một chút Thánh Minh bộ hạ cũ, khẳng định sẽ có rất lớn ý kiến. Nếu là ứng chiếu thư, chẳng phải là liền muốn quy thuận Trương Nhược Trần?
+
+Thật muốn quy thuận Trương Nhược Trần, Khổng Hồng Bích khẳng định sẽ tức giận đến thổ huyết.
+
+Một vị Minh Đường lão bối Thánh Giả nói ra: "Trương Nhược Trần trẻ tuổi nóng tính không biết nặng nhẹ, Minh Giang Vương là đã sống tiếp cận ngàn năm nhân vật, vậy mà cũng cùng hắn cùng một chỗ hồ nháo. Chẳng lẽ bọn hắn không biết trong Thánh Minh thành trận pháp cường đại đến cỡ nào uy lực? Chẳng lẽ bọn hắn không biết Lăng Tiêu Thiên Vương tu vi là bực nào khủng bố?"
+
+Trong Tiểu Thánh Thiên Vương Phủ, Vạn Hoa Ngữ đứng tại phủ tường đỉnh chóp, nhìn ra xa xa truyền đến từng đạo Thánh Đạo chiến khí sóng ánh sáng, ánh mắt lộ ra vẻ phức tạp, lầu bầu nói: "Trương Nhược Trần rốt cục vẫn là xuất thủ, trận chiến này, không thông báo chết bao nhiêu người."
+
+"Quận chúa, chúng ta muốn hay không điều động quân đội, tiến đến cứu viện Lăng Tiêu Thiên Vương Phủ?" Một vị lão giả tóc hoa râm hỏi.
+
+Vạn Hoa Ngữ lắc đầu , nói: "Lấy Lăng Tiêu Thiên Vương Phủ nội tình, đủ để ứng đối bất cứ địch nhân nào, căn bản không cần chúng ta viện trợ. Phụ vương không trong phủ, chúng ta hay là cẩn thận là hơn, lập tức khởi động hộ phủ đại trận, phòng ngừa Thánh Minh đại quân hướng Tiểu Thánh Thiên Vương Phủ khởi xướng tiến công."
+
+Thánh Minh thành là một tòa có được vượt qua trăm vạn năm lịch sử thành trì, không biết bao nhiêu cổ quốc từng trong này thành lập đô thành, thành vực tương đương rộng lớn, liên miên mấy vạn dặm, không nhìn thấy bờ.
+
+Cổ thành 81 cái phương vị, phân biệt đứng thẳng một tòa ngàn mét cao kim loại trận tháp.
+
+Một thanh âm, tại mỗi một tòa trận tháp trên không vang lên: "Thiên Vương có lệnh, lập tức khởi động hộ thành đại trận, trấn sát trong thành Thánh Minh nghịch tặc."
+
+Tại thời khắc này, trấn thủ tại trong trận tháp triều đình quan viên cùng Trận Pháp sư, vội vàng điều động thánh khí cùng tinh thần lực, toàn lực ứng phó thôi động hộ thành đại trận.
+
+"Ầm ầm."
+
+81 tòa kim loại trận tháp, đồng thời tách ra hào quang sáng tỏ, phóng xuất ra một cỗ khủng bố tuyệt luân lực lượng ba động.
+
+Phương viên mấy vạn dặm thành vực, đồng thời chấn động lên.
+
+Đứng ở trong thành, có thể nhìn thấy trên đường chân trời 81 đạo điểm sáng, như là 81 ngôi sao một dạng sáng chói chói mắt.
+
+Cho dù là Thánh Giả, tại thời khắc này, cũng cảm giác được sợ mất mật, có chút bỡ ngỡ.
+
+"Hộ thành đại trận khởi động, có thể tru sát hết thảy phản nghịch, Thánh Minh nghịch tặc toàn bộ đều đem tan thành mây khói."
+
+Trong Lăng Tiêu Thiên Vương Phủ vang lên một thanh âm như vậy, lại có tại trống trận vang lên, lập tức, triều đình quân đội sĩ khí tăng nhiều, phát động phản công, đem Thánh Minh Trung Ương đế quốc tu sĩ giết đổ một mảng lớn.
+
+Tiến đánh Lăng Tiêu Thiên Vương Phủ, tất nhiên sẽ phát sinh đổ máu cùng tử vong, đây là đang khó tránh khỏi sự tình.
+
+Kim loại trận tháp phát ra khí tức, ngày càng mạnh mẽ, thế nhưng là, hộ thành đại trận nhưng thủy chung không cách nào khởi động, trận pháp Minh Văn bị phá hư, căn bản không phát huy ra nên có uy lực.
+— QUẢNG CÁO —
+
+
+Cùng lúc đó, tiềm phục tại trong triều đình Thánh Minh cựu thần phát động công kích, chí ít có một nửa trận tháp nội bộ, đều đang phát sinh huyết chiến.
+
+"Hộ thành đại trận đã hủy đi, không đủ căn cứ, tiếp tục hướng phía trước xông, giết ra một đường máu, công phá Lăng Tiêu Thiên Vương Phủ cửa thành."
+
+Minh Giang Vương rút ra một thanh màu vàng thánh đao, thể nội trùng trùng điệp điệp thánh khí, giống như từng con sông lớn đang chảy, tràn vào tiến thân đao, vung đao chém ra ngoài.
 
 "Ngao!"
 
-Trong tháp, truyền ra thấp cang long ngâm.
+Đinh tai nhức óc tiếng long ngâm vang lên.
 
-Toàn bộ Thần Mộng trạch sinh linh, toàn bộ đều rung động phải nói không ra nói, Tổ Long sơn một vị Long Vương, có thể xưng Côn Lôn Giới đứng đầu nhất bá chủ, lại bị người dễ dàng trấn áp, thu nhập vào trong tháp.
+Ngay sau đó, hết thảy mười đầu long ảnh hiển hiện ra, mỗi một đầu đều có hơn mười dặm dài, theo màu vàng thánh đao đao mang cùng một chỗ hướng phía dưới phách trảm.
 
-Đứng ở hư không vị nam tử tóc vàng kia, đến cùng là lai lịch gì?
-
-"Thần Mộng trạch đã là nơi thị phi, không thể đợi tiếp nữa, Thần Long Bán Nhân tộc tộc nhân theo ta cùng một chỗ tiến vào Âm Dương Hải, Thần Long nhất tộc tài nguyên có thể toàn bộ đối với các ngươi mở ra, có thể có bao nhiêu người tỉnh lại Thần Long huyết mạch, liền nhìn tạo hóa của các ngươi."
-
-Nam tử tóc vàng thanh âm vô cùng mênh mông, truyền khắp toàn bộ Thần Mộng trạch, không ngừng giữa thiên địa quanh quẩn.
-
-. . .
-
-Bắc Vực, có lịch sử lâu đời, vô số truyền thuyết xa xưa, trong quá khứ xa xôi ấy, đã từng là Nhân tộc văn minh phồn hoa nhất cường thịnh địa phương.
-
-Đương nhiên, Bắc Vực văn minh theo Vu Đạo xuống dốc, cũng cùng theo một lúc xuống dốc, đã xa xa không cách nào cùng Trung Vực so sánh, thậm chí cùng Đông Vực, Nam Vực, Tây Vực so ra, cũng có một chút chênh lệch.
-
-Bây giờ Bắc Vực, gặp Bất Tử Huyết tộc càn quấy, giết chóc hoành hành, các đại phủ quận đều là chiến đến thiên hôn địa ám, máu tươi nhuộm đỏ sơn hà, một mảnh thê lương cùng rách nát.
-
-Trương Nhược Trần, Hoàng Yên Trần, Thanh Mặc bị truyền tống đến một tòa sơn cốc chất đầy nhân loại thi cốt, không phải liền là người tu luyện thi cốt, còn có lão nhân, tiểu hài, phu nhân thi cốt, đơn giản chính là một tòa Vạn Nhân Khanh.
-
-Để cho người ta rùng mình chính là, mặc dù chồng thi như núi, lại không nhìn thấy một giọt máu, toàn bộ đều là thây khô.
-
-Chỉ có tại sơn cốc dưới đáy, mới có một tòa trăm trượng vuông huyết trì, một đám người mặc chiến giáp Bất Tử Huyết tộc quân sĩ, vây quanh huyết trì, một bên hấp thu huyết khí, một bên tu luyện.
-
-Nơi đây, tựa hồ là Bất Tử Huyết tộc trữ hàng huyết dịch một chỗ trọng địa.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1291
-
-Chương 1288: Hỗn Độn mạch lạc
-
-Bất Tử Huyết tộc sở dĩ đại hưng giết chóc, chính là vì cướp đoạt huyết dịch, chỉ cần có thể hút đến đủ nhiều huyết dịch, tu vi của bọn hắn liền có thể tấn mãnh tăng lên.
-
-Trong đó, Nhân tộc huyết dịch, đối bọn hắn có sức hấp dẫn nhất, không cần luyện hóa, liền có thể trực tiếp bị thân thể hấp thu, chuyển hóa làm tu vi cùng lực lượng.
-
-Hấp thu Man thú huyết dịch, mặc dù đối bọn hắn cũng có rất lớn ích lợi, nhưng là, lại cần tiêu tốn rất nhiều thời gian luyện hóa, so ra mà nói muốn phiền phức rất nhiều.
-
-Nếu là có thể mỗi ngày hấp thu Nhân tộc Thánh Giả thánh huyết, Bất Tử Huyết tộc tốc độ tu luyện, đủ để cho Nhân tộc thiên kiêu cảm thấy tuyệt vọng.
-
-Tại Bắc Vực, Bất Tử Huyết tộc mỗi đánh hạ một chỗ, đều sẽ đem chém giết nhân loại thi hài tụ tập cùng một chỗ, tách ra máu của bọn hắn, thành lập thành một tòa huyết trì.
-
-Chỉ có trong chiến đấu, giết địch nhiều nhất, công lao lớn nhất Bất Tử Huyết tộc tu sĩ, mới có tư cách đến cạnh huyết trì duyên tu luyện, đề cao tu vi của bản thân.
-
-Sơn cốc dưới đáy huyết trì kia, không tính quá lớn, đương nhiên cũng không tính là nhỏ, xem như trung đẳng.
-
-Tụ tập tại cạnh huyết trì Bất Tử Huyết tộc, cơ hồ toàn bộ đều là Bán Thánh, chừng 60~70 vị.
-
-"Giết nhiều nhân loại như vậy, thật là đáng chết."
-
-Hoàng Yên Trần nhìn qua trong sơn cốc nhân loại thây khô, ánh mắt lộ ra hàn quang, lấy ra Thánh Kiếm, muốn xông đi lên chém giết cạnh huyết trì những Bất Tử Huyết tộc Bán Thánh kia.
-
-"Đừng xúc động."
-
-Trương Nhược Trần ngăn lại Hoàng Yên Trần, lại nói: "Chúng ta mới tới Bắc Vực, còn không có biết rõ ràng nơi này tình thế, tuyệt đối không nên hành động thiếu suy nghĩ. Một khi giết bọn hắn, khẳng định sẽ gây nên Bất Tử Huyết tộc chú ý, đối với chúng ta không có chỗ tốt."
-
-"Chẳng lẽ cứ như vậy buông tha bọn hắn?" Hoàng Yên Trần trầm giọng nói.
-
-"Đánh trước tra rõ ràng chúng ta vị trí cụ thể cùng Bắc Vực chiến cuộc tình huống, lại động thủ cũng không muộn."
-
-Trương Nhược Trần đối với Bất Tử Huyết tộc cũng không có hảo cảm, thậm chí lửa giận trong lòng càng thêm cuồng bạo, nhưng là, hắn lại so Hoàng Yên Trần tỉnh táo, hết sức rõ ràng như thế nào nên làm cái gì cùng không nên làm cái gì.
-
-Thanh Mặc thấp giọng nói ra: "Quận chúa điện hạ, chúng ta tới đến Bắc Vực là vì tìm kiếm Tiên Cơ cốc vị Đan Đạo Thánh Sư kia, trị liệu thương thế trên người Trương công tử, đây mới là chuyện trọng yếu nhất."
-
-Nghe nói như thế, Hoàng Yên Trần cuối cùng tỉnh táo lại.
-
-Tòa sơn cốc này, mặc dù tụ tập có vài chục vị Bất Tử Huyết tộc Bán Thánh, nhìn như nguy hiểm, trên thực tế ngược lại càng thêm an toàn, không có người sẽ ngờ tới, lại có nhân loại ẩn thân ở bên trong.
-
-Hoàng Yên Trần một thân một mình rời đi sơn cốc, tiến đến tìm hiểu tin tức, Thanh Mặc thì là lưu lại bảo hộ Trương Nhược Trần.
-
-Trương Nhược Trần cùng Thanh Mặc tại lít nha lít nhít thây khô nội bộ, dựng lên một tòa hang động, làm tạm thời chỗ ẩn thân.
-
-Thanh Mặc canh giữ ở cửa hang, Trương Nhược Trần thì là khoanh chân ngồi xuống, lấy ra Ngao Dịch đưa tặng cho hắn hai gốc thánh dược, Đoạn Tục Kim Liên cùng Ngân Tuyến Thánh Đằng.
-— QUẢNG CÁO —
-
-
-"Đều là bảo dược trị liệu kinh mạch cùng thánh mạch, trước thử một lần."
-
-Trương Nhược Trần tự nhiên không cam tâm trở thành một tên phế nhân, muốn tục tiếp ba mạch, một lần nữa đạp vào con đường tu luyện. Thế là, hắn lấy xuống Đoạn Tục Kim Liên một khối phiến lá, ngậm vào, hấp thu dược lực ẩn chứa trong thánh dược.
-
-Theo dược lực thẩm thấu tiến thân thể, thân thể quả nhiên lại toả ra một chút sinh cơ, thế nhưng là, ba mạch lại một chút biến hóa đều không có.
-
-Không cách nào tục tiếp ba mạch, như vậy, coi như hiện tại nhục thân trở nên sinh cơ bừng bừng, rất nhanh cũng sẽ xói mòn ra ngoài.
-
-Trương Nhược Trần nhẹ nhàng thở dài, không muốn lãng phí thánh dược, không có tiếp tục phục dụng, đem Đoạn Tục Kim Liên cùng Ngân Tuyến Thánh Đằng một lần nữa thu vào.
-
-Hiện giai đoạn, Trương Nhược Trần không cách nào tu luyện nhục thân cùng Võ Đạo, thế nhưng là, còn có thể tu luyện tinh thần lực, chỉ cần có thể để cho mình mạnh lên, chính là một đầu đường ra.
-
-Ngay tại Trương Nhược Trần chuẩn bị tu luyện tinh thần lực thời điểm, lại ngoài ý muốn phát hiện, thân thể trở nên cùng trước kia có chút khác biệt.
-
-Hắn sử dụng tinh thần lực tạo dựng ra tới từng cây vô hình huyết mạch, vậy mà bịt kín một tầng năm màu quang mang, tràn ngập không nói được linh tính.
-
-"Cái đó là. . . Hỗn Độn chi khí. . ."
-
-Trong cái khe của Càn Khôn Thần Mộc Đồ, không ngừng tiêu tán ra Hỗn Độn chi khí năm màu, tràn vào tiến Trương Nhược Trần bộ thân thể rách rưới kia, thẩm thấu tiến huyết nhục cùng xương cốt.
-
-Hỗn Độn chi khí, chính là khí thể thời điểm thiên địa sơ khai, mới có thể đản sinh, ẩn chứa vô tận sinh cơ, có thể dựng dục ra thiên địa vạn vật, cực kỳ cường đại Thái Cổ sinh linh chính là ở trong Hỗn Độn sinh ra.
-
-Bây giờ, Trương Nhược Trần thể nội ba mạch vỡ vụn, nhục thân kinh mạch toàn bộ đều biến mất, cùng thiên địa sơ khai thời điểm thế giới có chút tương tự, không có bất kỳ quy tắc cùng mạch lạc nào khác, tất cả đều là hỗn hỗn độn độn dáng vẻ.
-
-Hoàn cảnh như vậy, nhìn như âm u đầy tử khí, nhưng lại ẩn chứa vô tận sinh cơ, vô tận biến số.
-
-"Hỗn Độn chi khí vậy mà có thể tạo dựng ra từng cây huyết mạch, thật sự là không thể tưởng tượng nổi."
-
-Trương Nhược Trần phảng phất là trong bóng đêm, nhìn thấy một ngọn đèn sáng, trong lòng cuồng hỉ.
-
-Hỗn Độn chi khí ngưng tụ thành huyết mạch, chính là dựa theo Trương Nhược Trần tinh thần lực chỉ dẫn tạo dựng mà thành, cũng không ổn định, chỉ là từng đạo tia khí, muốn để nó biến thành chân chính huyết mạch, hiển nhiên không phải một chuyện dễ dàng.
-
-Có lẽ, chỉ có Đan Đạo Thánh Sư, mới có năng lực để trạng thái khí mạch lạc, biến thành chân chính huyết mạch.
-
-Trương Nhược Trần càng thêm bức thiết tìm tới Tửu Phong Tử nói tới vị Đan Đạo Thánh Sư kia, nếu là có thể tại dưới Hỗn Độn chi khí phụ trợ, tái tạo ba mạch, nói không chắc có thể nhân họa đắc phúc, từ Hậu Thiên sinh linh, biến thành Tiên Thiên sinh linh, vô luận là tiềm lực hay là thể chất đều có thể tiến thêm một bước.
-
-Đương nhiên, đây chỉ là Trương Nhược Trần lạc quan nhất ý nghĩ.
-
-Dù sao, cho dù là Đan Đạo Thánh Sư, đoán chừng cũng không có nắm chắc giúp một người phế bỏ tái tạo ba mạch.
-
-Lấy Trương Nhược Trần hiện tại cường độ tinh thần lực, chỉ có thể tạo dựng ra huyết mạch hệ thống một hai thành kết cấu mà thôi, muốn tạo dựng ra hoàn chỉnh huyết mạch hệ thống, cần càng cường đại hơn tinh thần lực.
-
-"Bằng vào ta hiện tại trước khi tình trạng cơ thể, không có một lần nữa ngưng tụ ra ba mạch, cũng chỉ có thể tu luyện tinh thần lực." Trương Nhược Trần thầm nghĩ.
-
-Chỉ cần là thông qua quan tưởng cùng lĩnh hội, tự thân cường độ tinh thần lực liền sẽ dần dần mạnh lên. Đương nhiên, đây chẳng qua là nhất truyền thống phương thức tu luyện, tinh thần lực tăng trưởng tốc độ tương đương chậm chạp.
-
-Trương Nhược Trần trong tay trong tay nắm giữ đại lượng tài nguyên, đều là có thể dùng đến nhanh chóng tăng lên tinh thần lực, không cần mới có truyền thống phương thức.
-
-Tỉ như:
-
-Từ trên Thất Tinh Thần Linh thu thập "Thanh Long Thần Lộ", chính là tuyệt hảo bảo dược tăng lên tinh thần lực.
-
-Lại tỉ như, Trương Nhược Trần có thể từ trong tự thân nắm giữ Thánh Nguyên, hấp thu Thánh Giả khác ký ức cùng tri thức, cũng có thể để cường độ tinh thần lực nhanh chóng tăng lên.
-
-Cuối cùng, Trương Nhược Trần lựa chọn tương đối bảo thủ phương thức, thông qua hấp thu Thanh Long Thần Lộ, tăng cường tự thân cường độ tinh thần lực.
-
-Tại Trương Nhược Trần tu luyện tinh thần lực thời điểm, ngoại giới cũng ngay tại phát sinh một chút chuyện trọng đại.
-
-. . .
-
-. . .
-
-Âm Dương Hải một trận chiến, rất nhanh liền truyền khắp Côn Lôn Giới, vô luận là Nhân tộc các đại thế lực, hay là chủng tộc khác sinh linh, toàn bộ đều bị chấn kinh.
-
-Một trong thập đại Thần Khí Thần Long Nhật Nguyệt Hỗn Độn Tháp vậy mà xuất thế, Thần khí phát ra khí tức, để thiên hạ tất cả Thánh Khí có được Khí Linh đều đang rung động.
-
-Thần khí, tại dụng cụ thế giới, tựa như là Thần Linh một dạng tồn tại.
-
-Một ngày này, thiên hạ toàn bộ sinh linh, cũng đang thảo luận Thần Long Nhật Nguyệt Hỗn Độn Tháp.
-
-"Trong Âm Dương Hải, có một đầu Thần Long thức tỉnh, cầm trong tay Thần Long Nhật Nguyệt Hỗn Độn Tháp, trấn áp Dực Long Vương, kích thương Lôi Bộ Thiên Vương cùng Sát Tẫn Vương, cường thế đến rối tinh rối mù."
-
-"Nếu hắn như vậy lợi hại, vì sao không có đi ra khỏi Âm Dương Hải, quân lâm thiên hạ?"
-
-"Trong Âm Dương Hải vị cường giả kia, hẳn không phải là Thần Long. Nếu là Thần Long thức tỉnh, Lôi Bộ Thiên Vương cùng Sát Tẫn Vương làm sao trốn được?"
-
-Có người đưa ra chất vấn, cảm thấy trong Âm Dương Hải vị cường giả kia, cũng không tính quá mạnh, chí ít không có đăng đỉnh.
-
-Hắn rất có thể là tại kiêng kị Côn Lôn Giới đứng đầu nhất mấy vị kia sinh linh, tỉ như: Tổ Long sơn "Bệ Hoàng", Bất Tử Huyết tộc "Tề Thiên Huyết Đế", Cửu Lê cung "Cửu Mệnh Thiên Hoàng" . . .
-— QUẢNG CÁO —
-
-
-Thần khí xuất thế, những Đại Đế, hoặc là Hoàng Giả đứng tại Côn Lôn Giới đỉnh cao nhất này, làm sao có thể không động tâm?
-
-Trong Âm Dương Hải vị cái thế cường giả kia, có lẽ còn không có thực lực cùng Bệ Hoàng, Tề Thiên Huyết Đế, Cửu Mệnh Thiên Hoàng chống lại, lo lắng không gánh nổi Thần Long Nhật Nguyệt Hỗn Độn Tháp, cho nên mới không có đi ra khỏi Âm Dương Hải.
-
-Đương nhiên, cũng có một chút tu sĩ cho rằng, trong Âm Dương Hải vị cái thế cường giả kia, chính là một đầu Thần Long, chỉ bất quá bị đóng băng quá lâu, tu vi còn không có hoàn toàn khôi phục, cho nên mới sẽ lựa chọn ẩn núp.
-
-Chờ đến tu vi của hắn hoàn toàn khôi phục, toàn bộ Côn Lôn Giới, đoán chừng không còn có sinh linh có thể cùng hắn chống lại.
-
-Ngay tại ngày thứ hai, trong Man Hoang bí cảnh có tin tức truyền tới, Âm Dương Hải lại bộc phát đại chiến, hư hư thực thực là Đế Hoàng cấp bậc sinh linh xâm nhập đi vào, muốn cướp đoạt Thần Long Nhật Nguyệt Hỗn Độn Tháp.
-
-Chiến đấu âm thanh kéo dài nửa ngày, trong Âm Dương Hải nước biển mãnh liệt phun trào, bao phủ bờ biển mấy ngàn dặm sơn xuyên đại địa.
-
-Cuối cùng, vị sinh linh hư hư thực thực Đế Hoàng cấp bậc kia bị thương rút đi, chạy ra Âm Dương Hải, khổng lồ vô biên thân thể biến mất tại trong Man Hoang.
-
-Thần khí xuất thế, toàn bộ sinh linh đều không thể giữ vững bình tĩnh.
-
-Liên tiếp năm ngày đi qua, chừng tám vị khí tức khổng lồ sinh linh xâm nhập Âm Dương Hải, thế nhưng là, toàn bộ đều thất bại tan tác mà quay trở về.
-
-"Hắn chiếm cứ có địa lợi ưu thế, lại nắm giữ lấy Thần Long Nhật Nguyệt Hỗn Độn Tháp, tại Âm Dương Hải, không có bất kỳ sinh linh gì là đối thủ của hắn." Trong Bất Tử Huyết tộc, truyền ra một tin tức như thế, nghe nói, chính là Thanh Thiên Huyết Đế chính miệng nói ra.
-
-Trước đây không lâu, Thanh Thiên Huyết Đế cùng Bất Tử Huyết tộc một vị Huyết Đế khác, đồng thời xâm nhập tiến Âm Dương Hải, cùng vị cái thế cường giả vừa mới thức tỉnh kia chiến đấu ròng rã một ngày, cuối cùng hai vị Huyết Đế trọng thương đào tẩu.
-
-Cùng là, Bất Tử Huyết tộc một vị Thánh Giả còn lộ ra, lấy Thanh Thiên Huyết Đế tu vi, cũng nhìn không thấu vị cái thế cường giả kia thân phận, cũng không biết hắn có phải hay không một đầu Thần Long.
-
-Thần khí xuất thế, khiên động Côn Lôn Giới cao cấp nhất một nhóm sinh linh thần kinh, đồng thời, Trương Nhược Trần bị Trung Doanh Vương phế bỏ ba mạch tin tức, cũng tại Nhân tộc thế hệ tuổi trẻ tạo thành oanh động cực lớn.
-
-"Trương Nhược Trần không phải tại độ Chuẩn Thánh kiếp thời điểm, đã chết đi? Làm sao lại tại Âm Dương Hải bị Trung Doanh Vương phế bỏ?" Rất nhiều tu sĩ đều biểu thị không hiểu.
-
-"Trương Nhược Trần là bực nào anh kiệt, làm sao có thể không độ được Chuẩn Thánh kiếp, đây chẳng qua là hắn ve sầu thoát xác thủ đoạn. Trên thực tế, Trương Nhược Trần là xâm nhập tiến vào Âm Dương Hải, đồng thời, giết chết một nhóm lớn Bất Tử Huyết tộc Thánh Giả, cuối cùng chọc giận Trung Doanh Vương, mới có thể gặp phải dạng này kiếp nạn."
-
-"Không biết xấu hổ, Trung Doanh Vương đã là sống hơn ngàn năm bá chủ, vậy mà đối với một tên tiểu bối xuất thủ."
-
-Tại trong Nhân tộc tu sĩ trẻ tuổi, Trương Nhược Trần nhân khí cực cao, rất nhiều tu sĩ đều đem hắn xem như thần tượng, hi vọng giống như hắn nhanh chóng quật khởi đại sát tứ phương, để Man thú cùng Bất Tử Huyết tộc tu sĩ trẻ tuổi nghe được danh tự liền vì đó run rẩy.
-
-Biết được Trương Nhược Trần bị Trung Doanh Vương phế bỏ, không biết có bao nhiêu người đều đang đau tiếc, không biết có bao nhiêu thiếu nữ ái mộ hắn tại gạt lệ. Đệ nhất nhân trong Nhân tộc tuổi trẻ Thánh Giả, cuối cùng vẫn là ngã xuống, không cách nào lại trở thành một tôn Đại Đế thủ hộ Nhân tộc.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1292
-
-Chương 1289: Hắc thủ phía sau màn
-
-"Nếu Trương Nhược Trần đã phế bỏ, mất đi tiếp tục trưởng thành tiềm lực, nên giao ra trên người hắn những tài nguyên tu luyện kia, vì Nhân tộc lớn mạnh làm một chút cống hiến. Rung chuyển lớn đã đến đến, Man thú cùng Bất Tử Huyết tộc đều đang không ngừng quật khởi, Nhân tộc cũng hẳn là trợ giúp lẫn nhau, đoàn kết lại, mới có thể vượt qua hạo kiếp."
-
-Không biết là ai, nói ra một câu nói như vậy, lập tức, đạt được vô số tu sĩ hưởng ứng.
-
-Tây Vực, Vạn Phật Đạo tam đại chi nhánh một trong Sinh Diệt Tự một vị Thánh Tăng, hiện thân Thiên Phật Thánh Thành, thả ra tin tức: "Nếu là, Trương Nhược Trần có thể đem Phật Đế Xá Lợi Tử quyên tặng cho Sinh Diệt Tự, từ nay về sau, hắn chính là Sinh Diệt Tự khách nhân tôn quý nhất , bất kỳ người nào đối địch với hắn, chính là đối địch với Sinh Diệt Tự. Vì Phật Đế Xá Lợi, Sinh Diệt Tự có thể trả bất cứ giá nào."
-
-Nếu là không đề cập tới Phật Đế Xá Lợi Tử, Sinh Diệt Tự đứng ra duy trì Trương Nhược Trần, đám người sẽ còn cảm thấy bọn hắn là tại đưa than sưởi ấm trong ngày tuyết rơi.
-
-Nhưng mà, hiện tại bất kỳ tu sĩ nào đều có thể nghe ra, Sinh Diệt Tự thế nhưng là tương đương ngấp nghé Phật Đế Xá Lợi Tử, thậm chí còn mang theo một chút uy hiếp ý vị, đơn giản chính là tại bỏ đá xuống giếng.
-
-Trong Bái Nguyệt ma giáo, cũng có một tin tức truyền ra, "Trương Nhược Trần nếu là có thể chủ động trả lại Giới Tử Ấn, Bái Nguyệt thần giáo cùng hắn ân oán có thể xóa bỏ. Nếu không, Bái Nguyệt thần giáo sẽ điều động cao thủ, tiến về Trung Ương Hoàng Thành, xin mời mẹ của hắn đến Vô Đỉnh sơn, cùng mẹ của hắn trao đổi việc này."
-
-Tin tức truyền ra, tất cả tu sĩ cùng Trương Nhược Trần quan hệ giao hảo, toàn bộ đứng ra, khiển trách Bái Nguyệt ma giáo cách làm quá mức hèn hạ.
-
-Giữa các tu sĩ ân oán, không nên liên lụy đến trên thân người nhà, huống chi mẫu thân của Trương Nhược Trần hay là một người bình thường không thể tu luyện.
-
-Nhị sư huynh Chu Hồng Đào tại cùng ngày, đuổi tới Bái Nguyệt ma giáo chỗ cương vực, đứng tại dưới Vô Đỉnh sơn, chửi ầm lên: "Bái Nguyệt ma giáo làm việc còn có thể lại không hổ thẹn một chút sao? Thật sự cho rằng Trương Nhược Trần ba mạch bị phế, các ngươi liền có thể tùy tiện nắm hắn? Lão tử đem nói ném ở chỗ này, các ngươi dám động mẫu thân của Trương Nhược Trần, ta liền tiêu diệt Bái Nguyệt ma giáo 100 tòa phân đà."
-
-Chu Hồng Đào một người cô đơn, không có gia tộc cùng người thân liên lụy, cho nên, không có chút nào sợ hãi Bái Nguyệt ma giáo.
-
-Một vị Thánh Giả, nếu là không có bất kỳ cố kỵ nào, trắng trợn giết chóc, chính là một sự tình tương đương đáng sợ. Bởi vì, lấy Thánh Giả lực lượng kinh khủng, hủy diệt một tòa thành trì, cũng không phải là chuyện khó khăn lắm.
-
-Cho dù là Bái Nguyệt ma giáo đỉnh cấp thế lực lớn như này, gặp được một vị bão nổi Thánh Giả, cũng là một sự tình tương đương nhức đầu.
-
-Họa Tông tông chủ Sở Tư Viễn tương đương bất mãn, hiện thân một tòa cổ thành, khiển trách Bái Nguyệt ma giáo không có cổ giáo khí độ, một chút đạo nghĩa cũng không nói, không xứng tự xưng thần giáo.
-
-Thân ở trận doanh khác biệt, Sở Tư Viễn không có nói cung cấp Trương Nhược Trần trực tiếp nhất trợ giúp, nhưng là, có thể đứng ra chỉ trích những người có ý khác kia, đã là tương đương không dễ dàng.
-
-Ngay tại cùng một ngày, Bái Nguyệt ma giáo Thần Tử Âu Dương Hoàn hiện thân tại một chỗ công chúng trường hợp , nói: "Ta đích xác rất muốn đoạt lại Giới Tử Ấn, thế nhưng là, chỉ muốn thông qua thực lực của mình đem hắn đoạt lại, chưa từng có sử dụng người nhà của hắn đến uy hiếp hắn, càng không có điều động thần giáo đệ tử khác làm như thế. Có người lòng dạ khó lường, tiềm phục tại thần giáo, việc này, thần giáo nhất định sẽ tra rõ."
-
-Bái Nguyệt ma giáo, Thánh Nữ cung.
-
-Lăng Phi Vũ đã xuất quan, tu vi nâng cao một bước, nghe nói Trương Nhược Trần sự tình, chính là triệu kiến Mộc Linh Hi, hỏi: "Trương Nhược Trần tình cảnh hiện tại tương đối nguy hiểm, hắn có hay không đưa tin cho ngươi, nói cho ngươi, hắn hiện tại ẩn thân ở nơi nào?"
-
-"Không có."
-— QUẢNG CÁO —
-
-Mộc Linh Hi biết được Trương Nhược Trần gặp phải, cũng tương đương lo lắng, thế nhưng là, cũng không có thu đến Trương Nhược Trần đưa tin. Hiện tại, nàng lại làm sao không muốn mau chóng tìm tới Trương Nhược Trần?
-
-Trương Nhược Trần đến cùng bị thương nặng bao nhiêu? Hắn hiện tại phải chăng tại màn trời chiếu đất? Hắn có hay không lọt vào cừu gia truy sát?
-
-Nghĩ đến như vậy đủ loại, Mộc Linh Hi tâm liền không cách nào bình tĩnh trở lại, rất muốn lập tức rời đi tổng đàn đi tìm hắn, nhưng lại không biết nên đi đâu mà tìm hắn.
-
-Lăng Phi Vũ nói: "Trương Nhược Trần trên thân có mấy món bảo vật, Thánh Vương cùng Đại Thánh cấp bậc nhân vật đều sẽ động tâm. Hiện tại, có người muốn sử dụng mẫu thân của Trương Nhược Trần làm mồi nhử, đem hắn bức đi ra. Ngươi đi thăm dò một chút, đến cùng là phương thế lực nào đang tác quái?"
-
-Lăng Phi Vũ cho Mộc Linh Hi một tấm lệnh bài, bằng vào lệnh bài, có thể tự do xuất nhập Thần giáo các đại trọng địa, đồng thời cũng có thể điều động Thánh Nữ cung tất cả cao thủ.
-
-"Vâng."
-
-Mộc Linh Hi tiếp nhận lệnh bài, lui xuống.
-
-"Trương Nhược Trần, ngươi đến cùng ẩn thân ở đâu?"
-
-Lăng Phi Vũ lầm bầm lầu bầu đọc lên một câu, sau đó, thân hình khẽ động, biến mất ở trong Thánh Nữ cung, xuất hiện tại đỉnh núi một tòa linh sơn.
-
-Nàng đứng ở trên vách núi cheo leo, thân thể mềm mại đứng nghiêm, tóc dài trong gió rét tung bay, một đôi mỹ lệ tuyệt luân con mắt nhìn ra xa dưới chân biển mây, ánh mắt như là Thần Kiếm phát ra kiếm quang.
-
-"Xoạt!"
-
-Thân hình biến mất, hóa thành một đạo lưu quang, xông vào tiến trong biển mây, đem mênh mông biển mây đều chia cắt mà ra, lưu lại một đạo thật dài kiếm lộ.
-
-Lúc đầu, tu sĩ biết mẫu thân của Trương Nhược Trần, tại Trung Ương Hoàng Thành cũng không nhiều.
-
-Thế nhưng là, trải qua lần này làm ầm ĩ, cơ hồ tất cả tu sĩ đều biết việc này.
-
-Coi như Bái Nguyệt ma giáo thật không có tính toán lợi dụng Lâm Phi đem Trương Nhược Trần dẫn ra, thế nhưng là, nhất định sẽ có thế lực khác cùng tu sĩ khác làm như thế.
-
-Cả sự kiện mục đích, chính là tại mê hoặc những người tham lam kia, vì bọn họ chỉ rõ một con đường.
-
-Lâm Phi là Trương Nhược Trần uy hiếp.
-
-Nếu là, Lâm Phi thật bị bắt lại, Trương Nhược Trần liền khẳng định sẽ hiện thân.
-
-Lăng Phi Vũ đem nhìn cục thế rất rõ ràng, biết tại cả kiện sự tình phía sau, khẳng định là có một vị nhân vật tương đương lợi hại đang mưu đồ. Dù sao, trên người Trương Nhược Trần mấy kiện đồ vật kia đều quá có lực hấp dẫn, Thánh Vương đều sẽ đỏ mắt, Đại Thánh đều sẽ tâm động.
-
-Người trong bóng tối điều khiển đây hết thảy, đến cùng là đến từ Bái Nguyệt ma giáo nội bộ, hay là triều đình, hoặc là thế lực khác?
-
-Nếu người kia là lợi dụng Lâm Phi làm mồi dụ, liền khẳng định sẽ tự mình tọa trấn tại Trung Ương Hoàng Thành, khống chế toàn bộ thế cục, chỉ chờ Trương Nhược Trần xuất hiện.
-
-Lăng Phi Vũ rời đi Ma giáo tổng đàn, chính là chuẩn bị tự mình đi một chuyến Trung Ương Hoàng Thành, gặp một lần người giật dây một mực tại mang tiết tấu, nhưng thủy chung không có hiện thân kia.
-
-Minh Đường tổng bộ xây ở một chỗ vô cùng ẩn bí chi địa, không trên đất mặt, mà là tại bầu trời, ở vào trên một viên tiểu hành tinh cách mặt đất 10 vạn trượng độ cao, giấu ở trong tầng mây.
-
-Bình thường tới nói, một viên tiểu hành tinh, không có khả năng xuất hiện tại địa phương cách xa mặt đất thấp như vậy.
-
-Trên thực tế, viên tiểu hành tinh kia chính là một chỗ Thần Di cổ địa, là một vị Thần Linh đã từng nơi ở, có rất nhiều huyền diệu, không có Minh Đường nội bộ nhân viên dẫn đầu, liền xem như Thánh Giả cũng tìm không thấy nó, càng thêm không cách nào leo lên tiểu hành tinh.
-
-Giờ phút này, trên tiểu hành tinh, một tòa kiến trúc hùng vĩ màu đỏ thắm nội bộ, truyền ra cuồng bạo thánh khí ba động, hình thành từng vòng từng vòng gợn nước một dạng gợn sóng, chấn động đến vùng thiên địa này đều đang rung động.
-
-"Trung Doanh Vương, ngươi là đang tìm cái chết."
-
-Một con Khổng Tước thất thải sắc, xông ra tiểu hành tinh, triển khai một đôi cánh chim già thiên tế địa, mang theo toàn thân sát khí, bay về phía Bắc Vực.
-
-Minh Đường tu sĩ toàn bộ đều nơm nớp lo sợ, sợ hãi bất an, không rõ Thánh Tổ tại sao lại tức giận như thế?
-
-Thẳng đến Thất Thải Khổng Tước thân ảnh, biến mất ở chân trời, trên người bọn họ áp lực mới là buông lỏng, từ dưới đất đứng lên thân đến, vẫn như cũ cảm giác được lòng còn sợ hãi.
-
-Sau đó mấy ngày, Trương Nhược Trần trên người bảo vật, trải qua người hữu tâm khuyếch đại, dẫn tới vô số tham lam tu sĩ vì đó phát cuồng.
-
-"Phật Đế Xá Lợi Tử, hội tụ có Phật Đế cùng Kim Long hai vị Phật Môn Đại Thánh suốt đời tu vi cùng tri thức, chỉ cần đưa nó luyện hóa, tương lai nhất định có thể trở thành Nhân tộc Đại Đế."
-
-"Trương Nhược Trần trong tay nắm giữ một kiện đỉnh hình Thần Di Cổ Khí, uy lực vô tận, so Bất Tử Huyết tộc Diệt Thần Thập Tự Thuẫn đều cường đại hơn, chỉ cần đạt được nó, đủ để cho một cái tông môn truyền thừa Vạn Cổ mà bất diệt."
-
-"Trầm Uyên cổ kiếm là dùng cùng Tích Huyết Kiếm một dạng tài liệu rèn đúc mà thành, có thể thôn phệ chiến khí khác, không ngừng tấn thăng, tương lai có khả năng tiến hóa làm Thần khí."
-
-"Trương Nhược Trần đạt được Thanh Long vương triều quốc khố, nắm giữ lấy Thanh Long Khư Giới Thế Giới Chi Linh, chỉ cần tìm được hắn, liền có thể đạt được lấy không hết tài phú."
-— QUẢNG CÁO —
-
-
-. . .
-
-Côn Lôn Giới tu sĩ, tất cả đều đều điên cuồng đứng lên, hận không thể lập tức đem Trương Nhược Trần bắt tới, chia cắt trên người hắn tất cả. Thậm chí, liền ngay cả Trương Nhược Trần huyết nhục đều bị miêu tả thành chí bảo, chỉ cần ăn một miếng, liền có thể tăng lên tu sĩ thể chất.
-
-Chỉ cần là người thoáng có chút trí tuệ, đều có thể nhìn ra, có một cái hắc thủ phía sau màn tại vỗ tâm tình của mọi người, muốn điều động toàn bộ Côn Lôn Giới tu sĩ đem Trương Nhược Trần tìm ra.
-
-Tại mọi người xem ra, Trương Nhược Trần hiện tại chính là một phế nhân tay trói gà không chặt, chỉ cần đem hắn tìm tới, liền xem như một võ giả bình thường cũng có thể đem hắn cầm xuống, cướp đoạt bảo vật trên người hắn, rất nhanh liền có thể trưởng thành là cao thủ tuyệt thế.
-
-Ý nghĩ như vậy, một khi sinh sôi đi ra, đủ để cho một người bình thường mất lý trí.
-
-Ai không muốn giống Trương Nhược Trần như thế tại trẻ tuổi một đời xưng vương xưng bá, tiếu ngạo một thời đại, chiến Thần Tử, hàng Thánh Nữ, trở thành đại nhân vật làm cho tất cả mọi người đều hâm mộ và sùng bái?
-
-Đang tu luyện Trương Nhược Trần, lại cũng không biết ra giới phát sinh những sự tình này.
-
-Liên tiếp tốn hao bảy ngày thời gian, Trương Nhược Trần phục dụng đại lượng Thanh Long Thần Lộ, cường độ tinh thần lực nâng cao một bước, đạt tới cấp 52.
-
-Tinh thần lực mỗi tăng lên một giai, đều là tiến bộ cực lớn.
-
-Cấp 52 tinh thần lực tu sĩ, trên lý luận tới nói, chí ít cũng là có thể cùng thượng cảnh Thánh Giả chống lại, trong đó một chút tu luyện cao cấp pháp thuật, hoặc là trong tay nắm giữ cường đại Tinh Thần Lực Thánh Khí nhân vật, thậm chí có thể giết chết Huyền Hoàng cảnh Thánh Giả.
-
-Phải biết, cho dù là Đại Địa Thần Điện Tư Mệnh Thần Nữ Tiên Phi Tử cùng Bất Tử Thần Điện Bất Tử Thần Nữ Huỳnh Hoặc, trước mắt cường độ tinh thần lực, cũng mới chỉ là cấp 53.
-
-Bất quá, các nàng đều trong tay nắm giữ bảo vật không giống bình thường, chỉ cần không gặp được Chân Thánh cấp bậc sinh linh, đủ để nghiền ép tất cả đối thủ.
-
-"Tinh thần lực đạt tới cấp 52, có thể điều động tinh thần lực, tại thể nội tạo dựng ra toàn bộ huyết mạch hệ thống năm thành."
-
-Trương Nhược Trần huyết mạch trong cơ thể hệ thống trở nên càng thêm hoàn thiện, thân thể lại khôi phục một chút hoạt tính, tại Hỗn Độn chi khí tẩm bổ phía dưới, mỗi một khắc, nhục thân đều trở nên càng thêm cường đại.
-
-Có thể dự đoán, nếu là có thể một lần nữa tạo dựng ra hoàn chỉnh huyết mạch hệ thống, ngưng tụ ra chân chính mạch máu, Trương Nhược Trần nhục thân cảnh giới cùng sức mạnh bùng lên khẳng định sẽ đạt tới một tầng khác.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1293
-
-Chương 1290: Trước khi đi
-
-Trương Nhược Trần tinh thần lực đặc tính, là điều khiển lôi điện, tại trong tinh thần lực tu sĩ, đại biểu công kích cùng chiến đấu.
-
-Bất quá, Trương Nhược Trần trước kia tu luyện là cấp thấp nhất Lôi hệ pháp thuật, cũng chỉ có cấp thấp tinh thần lực pháp khí, coi như cường độ tinh thần lực đạt tới cấp 52, tại trong ngang cấp tinh thần lực tu sĩ chỉ có thể coi là yếu nhất.
-
-"Xoẹt xoẹt."
-
-Trương Nhược Trần bàn tay phải bắn ra, lòng bàn tay xuất hiện từng đạo lôi điện mảnh khảnh như sợi tóc vậy, xen lẫn thành hình cầu, tản mát ra tử sắc quang hoa.
-
-Cấp một pháp thuật, Cầu Hình Thiểm Điện.
-
-Trương Nhược Trần cũng không có đem pháp thuật đánh đi ra, tại tinh thần lực khống chế xuống, lôi điện tiêu tán mà ra, hóa thành vô hình.
-
-Lập tức, Trương Nhược Trần lại điều động tinh thần lực, điều tra Thực Thánh Hoa trạng thái.
-
-Trung Doanh Vương đánh nát Trương Nhược Trần thể nội ba mạch thời điểm, cũng trọng thương Thực Thánh Hoa, khiến cho nó lâm vào ngủ say trạng thái, đến nay cũng không có thức tỉnh.
-
-May mắn Thực Thánh Hoa chịu trọng thương, bằng không, lấy Trương Nhược Trần trạng thái hiện tại, chưa hẳn không trấn áp được nó.
-
-Hoàng Yên Trần cũng sớm đã trở lại sơn cốc, đứng tại cách đó không xa, nhìn thấy Trương Nhược Trần trạng thái tinh thần không sai, thế là, xinh đẹp trên mặt cũng lộ ra một tia nụ cười nhàn nhạt , nói: "Thương thế của ngươi tựa hồ có chút chuyển biến tốt đẹp?"
-
-"Còn tốt, chỉ là tinh thần lực lại có một chút tăng lên."
-
-Trương Nhược Trần không muốn để cho nàng lo lắng, bảo trì lạc quan tâm thái, hỏi: "Căn cứ Tửu Phong Tử nói, vị Đan Đạo Thánh Sư kia, ở tại Hồng Xuyên phủ Hắc Phong quận, cách chúng ta vị trí hiện tại có bao xa?"
-
-Trương Nhược Trần tâm tình mười phần bức thiết, muốn mau chóng tục tiếp ba mạch.
-
-Hoàng Yên Trần nói: "Bắc Vực hết thảy bị chia làm 36 phủ, Hồng Xuyên phủ ở vào Bắc Vực trung bộ, chính là Bất Tử Huyết tộc cùng triều đình đại quân chiến đấu kịch liệt nhất một phủ. Chúng ta bây giờ chỗ ở, chính là Ninh Phong phủ, ở vào Bắc Vực Bắc Bộ, đã bị Bất Tử Huyết tộc toàn diện công chiếm."
-
-"Ròng rã một phủ đều bị công chiếm?"
-
-Nghe được nơi đây, Trương Nhược Trần tâm tình, trở nên có chút ủ dột.
-
-Đệ Nhất Trung Ương vương triều thành lập đằng sau, liền đem thiên hạ địa vực chia làm phủ cùng quận đến quản lý. Toàn bộ Bắc Vực, hết thảy cũng chỉ có 36 phủ, mỗi một phủ lại phân làm 36 quận.
-
-Chỉ là một cái quận cương vực cũng tương đương rộng lớn, vượt qua 10 vạn dặm.
-
-Mấy trăm năm thái bình thịnh thế, nhân loại có thể nghỉ ngơi lấy lại sức, bởi vậy, nhân khẩu tăng vọt. Một cái quận nhân khẩu, chí ít cũng có vài chục ức.
-— QUẢNG CÁO —
-
-Một phủ chi địa, chính là trăm vạn dặm cương vực, nhân khẩu vượt qua trăm tỷ.
-
-Toàn bộ một phủ đều bị Bất Tử Huyết tộc công chiếm, có thể nghĩ, đó là cỡ nào kinh người một sự kiện, không biết có bao nhiêu nhân loại chết oan chết uổng, biến thành bạch cốt. Không biết có bao nhiêu người loại biến thành Bất Tử Huyết tộc chăn nuôi súc vật, vì bọn họ cung cấp liên tục không ngừng huyết dịch.
-
-Hoàng Yên Trần thần sắc nghiêm nghị nói: "Trên thực tế, tại Bắc Vực, đã có mười phủ hoàn toàn luân hãm, Bất Tử Huyết tộc thập đại bộ tộc đều chiếm một phủ. Đồng thời, thập đại bộ tộc còn tại chiêu binh mãi mã, điều động binh lực, chuẩn bị tiếp tục công chiếm càng nhiều phủ quận. Hiện tại, tranh đấu kịch liệt nhất một phủ, chính là Hồng Xuyên phủ. Nghe nói, Hồng Xuyên phủ thập đại quan ải đều đã bị máu tươi nhiễm đỏ, đánh cho thiên hôn địa ám, Bất Tử Huyết tộc cùng triều đình tu sĩ đều tử thương thảm trọng."
-
-"Lúc này mới bao lâu thời gian, vậy mà đã có mười phủ luân hãm, quân đội của triều đình đến cùng đang làm gì?" Trương Nhược Trần âm thanh lạnh lùng nói.
-
-Hoàng Yên Trần thở dài: "Đệ Nhất Trung Ương đế quốc thái bình mấy trăm năm, những con em thế gia, môn phiệt truyền nhân kia đều trở nên xa hoa dâm đãng, rất ít kinh lịch sinh tử ác chiến, chỗ nào có thể cùng Bất Tử Huyết tộc trời sinh tính khát máu so sánh? Huống chi, Bất Tử Huyết tộc sinh mệnh lực khá cường đại, vốn là có ưu thế rất lớn, ở trên chiến trường, bọn hắn có thể không ngừng hút máu, khôi phục thương thế, vẫn luôn bảo trì dư thừa sức chiến đấu."
-
-Dừng một chút, Hoàng Yên Trần mới lại nói: "Bất quá, theo một hai năm sinh tử giao chiến này, tu sĩ Nhân tộc sức chiến đấu rõ ràng tăng lên một bậc thang, đã có thể cùng Bất Tử Huyết tộc đối kháng, không còn giống như kiểu trước đây một trận chiến mà bại."
-
-Trương Nhược Trần là triều đình trọng phạm, cùng Nữ Hoàng là tử địch, thế nhưng là, hắn cũng không phải là một người lãnh huyết vô tình, nhìn thấy nhân loại bị tàn sát, bị xem như đồ ăn, không cách nào làm đến thờ ơ.
-
-"Tính toán thời gian, Nho Đạo cùng trong triều đình bộ thanh lý, cũng đã kết thúc. Trong gần đây, Thánh Thư Tài Nữ đoán chừng liền sẽ đem « Huyết Tộc Mật Quyển » công bố thiên hạ."
-
-Trương Nhược Trần trong lòng thầm nghĩ, cảm thấy « Huyết Tộc Mật Quyển » công bố đằng sau, chiến cuộc khẳng định sẽ phát sinh cải biến.
-
-Đồng thời, Trương Nhược Trần cũng đang tự hỏi, hẳn là mau chóng đem Lục Thánh Đăng Thiên Tửu ủ chế đi ra, làm cho cả Nhân tộc thể chất trở nên càng thêm cường đại, bồi dưỡng được càng nhiều cường giả.
-
-Chỉ có Bán Thánh cùng Thánh Giả, mới là chống đỡ lấy một chủng tộc cột trụ, cũng là chủ yếu nhất lực lượng.
-
-Rất nhanh, Trương Nhược Trần trên mặt lại lộ ra một đạo cười khổ, hắn chính mình hiện tại cũng chỉ là một người bị phế một nửa, có thể khôi phục hay không hay là vấn đề rất lớn, lại còn nghĩ đến là toàn bộ Nhân tộc làm việc, sẽ có hay không có chút quá không biết tự lượng sức mình?
-
-"Tạm thời trước không quan tâm những chuyện đó, trong Nhân tộc, đại nhân vật so năng lực ta mạnh nhiều không kể xiết, những vấn đề này tự có bọn hắn đi giải quyết. Hiện tại, nối lại ba mạch, khôi phục tu vi, mới là trọng yếu nhất sự tình." Trương Nhược Trần tự giễu cười một tiếng.
-
-Lập tức, Trương Nhược Trần lại hỏi thăm , nói: "Âm Dương Hải một trận chiến, có kết quả sao?"
-
-Hoàng Yên Trần nhẹ gật đầu, nghiêm nghị nói: "Thần Long Nhật Nguyệt Hỗn Độn Tháp xuất thế, Côn Lôn Giới đứng đầu nhất một chút sinh linh kia đều từng xuất thủ tranh đoạt, Man Hoang bí cảnh trở nên càng thêm rung chuyển."
-
-Trương Nhược Trần sớm đã có suy đoán, thế nhưng là nghe nói Thần Long Nhật Nguyệt Hỗn Độn Tháp xuất thế, vẫn còn có chút chấn động, liền vội vàng hỏi: "Cuối cùng ai đoạt lấy Thần Long Nhật Nguyệt Hỗn Độn Tháp?"
-
-"Còn nhớ rõ vị sinh linh thần bí bị băng phong tại trên cầu đá kia? Hắn sống lại, nắm giữ lấy Thần Long Nhật Nguyệt Hỗn Độn Tháp, đánh bại các đại thế lực Đế Hoàng cấp bậc tồn tại, trở thành Âm Dương Hải Chúa Tể." Hoàng Yên Trần nói.
-
-"Nguyên lai là hắn."
-
-Trương Nhược Trần cảm giác được không thể tưởng tượng nổi, lập tức, lại hỏi: "Có hay không Tiểu Hắc tin tức?"
-
-Hoàng Yên Trần lắc đầu , nói: "Tiểu Hắc không có liên lạc qua chúng ta, ngoại giới cũng không có tin tức liên quan tới nó."
-
-"Đó là Bất Tử Điểu đâu?"
-
-Trương Nhược Trần không tin Tiểu Hắc đã vẫn lạc, có chút hoài nghi, Bất Tử Điểu kia chính là nó.
-
-Hoàng Yên Trần nói: "Có người chứng kiến công bố, Bất Tử Điểu bị Âm Dương Hải vị cái thế cường giả kia kích thương, chạy đến Man Hoang, sau đó, không có tin tức."
-
-Trương Nhược Trần lâm vào trầm mặc, một lát sau, mới vừa cười hỏi: "Ngoại giới có tin tức liên quan tới ta sao? Ta bị Trung Doanh Vương phế bỏ ba mạch tin tức, cũng đã truyền khắp thiên hạ a?"
-
-"Ngươi không cần quản nhiều như vậy, an tâm dưỡng thương. Chỉ có thương thế khỏi hẳn đằng sau, mới có thể đi làm chính mình chuyện muốn làm."
-
-Hoàng Yên Trần không có nói cho Trương Nhược Trần ngoại giới những sự tình kia, lo lắng hắn sẽ bị kích thích, mất lý trí, đối với hắn thương thế bất lợi.
-
-Trương Nhược Trần có thể phát giác được Hoàng Yên Trần đối với hắn có chỗ giấu diếm, thế nhưng là, cũng không có tiếp tục đuổi theo hỏi, bởi vì Hoàng Yên Trần nói đến rất chính xác, lấy hắn hiện tại tình trạng cơ thể, hoàn toàn chính xác hẳn là đem tất cả tinh lực đều đặt ở trên dưỡng thương.
-
-Thương thế không có khỏi hẳn, làm bất cứ chuyện gì đều là lực bất tòng tâm.
-
-"Đi thôi! Tiến về Hồng Xuyên phủ."
-
-Trương Nhược Trần đứng dậy, cùng Hoàng Yên Trần, Thanh Mặc cùng một chỗ, đi ra thây khô chồng chất thành hang động, đứng tại trong sơn cốc huyết khí tràn ngập, ánh mắt nhìn chăm chú về phía huyết trì dưới đáy sơn cốc kia.
-
-Ước chừng 60 vị Bất Tử Huyết tộc Bán Thánh, xếp bằng ở cạnh huyết trì tu luyện, phun ra nuốt vào huyết khí, trên người bọn họ khí tức không ngừng trở nên cường đại.
-
-Hoàng Yên Trần cảm nhận được trên thân Trương Nhược Trần tiêu tán đi ra sát khí, biết Trương Nhược Trần đang suy nghĩ gì , nói: "Tòa sơn cốc này, xây ở Lãng Tín quận thành phụ cận, quận thành xung quanh, đóng quân có gần trăm vạn Bất Tử Huyết tộc quân đội. Hết thảy có ba vị Huyết Thánh, trấn thủ trong quân đội. Bằng vào chúng ta tu vi, chỉ cần không bị quân đội vây quanh, có thể nhẹ nhõm toàn thân trở ra."
-
-"Trước khi đi, vậy liền lại cho Bất Tử Huyết tộc một bài học, vừa vặn thử một lần ta hiện tại tinh thần lực thủ đoạn công kích "
-
-Trương Nhược Trần nện bước nhẹ nhàng bước chân, hướng sơn cốc dưới đáy bước đi.
-
-Đang tu luyện Bất Tử Huyết tộc Bán Thánh, phát giác được nhân loại khí tức, toàn bộ đều đình chỉ tu luyện, mười phần kinh dị hướng Trương Nhược Trần ba người trông đi qua.
-
-"Từ đâu tới nhân loại, vậy mà xâm nhập tiến Vạn Tâm cốc, chẳng lẽ không biết nơi này là cấm địa?"
-
-Một vị Bất Tử Huyết tộc Bán Thánh, đứng dậy, nắm lên một cây màu đỏ như máu tinh thạch trường thương, bộc phát ra như chớp giật tốc độ, một thương đâm về trái tim Trương Nhược Trần.
-— QUẢNG CÁO —
-
-
-"Xoạt!"
-
-Trương Nhược Trần ngón tay nhẹ nhàng vung lên, điều động tinh thần lực, bổ ra một đạo điện đao, đem hắn chặt đứt thành hai đoạn. Hai đoạn thân thể trở nên cháy đen, tất cả sinh mệnh lực toàn bộ đều xói mòn hầu như không còn, coi như hắn là Bất Tử Huyết tộc, cũng đều đã đều chết hết.
-
-"Lớn mật."
-
-Tất cả Bất Tử Huyết tộc Bán Thánh, toàn bộ đều phẫn nộ, nhao nhao vận chuyển thánh khí, có đang thi triển thánh thuật, có tại điều động Thánh Khí.
-
-Trương Nhược Trần duỗi ra một ngón tay, chỉ hướng bầu trời, linh khí trong thiên địa, toàn bộ đều hội tụ đến trên đỉnh đầu hắn, ngưng tụ ra từng đạo lôi điện quang toa.
-
-Bất Tử Huyết tộc chư vị Bán Thánh, còn không có đánh ra thánh thuật cùng Thánh Khí thời điểm, những lôi điện quang toa kia liền từ trên trời giáng xuống, rơi ở trên thân bọn họ.
+Đó là mười đầu Thần Long hư ảnh.
 
 "Ầm ầm."
 
-Toàn bộ sơn cốc đều bị lôi điện bao trùm, tất cả thây khô toàn bộ đều hóa thành kiếp tro, liền ngay cả tảng đá cùng bùn đất đều hòa tan thành giọt nước.
+Ngoài cửa thành đại địa, bị đao khí xé toạc ra, lòng đất từng tầng từng tầng gia cố trận văn cũng đều bị chém đứt, nguy nga Nhật Nguyệt môn, bị oanh kích đạt được hiện vết rách.
 
-Cạnh huyết trì, Bất Tử Huyết tộc Bán Thánh ngã xuống một mảng lớn, trong đó có hai ba mươi vị đều tan thành mây khói, còn lại Bán Thánh cũng đều bị thương nặng, ngã trên mặt đất hấp hối.
+Phải biết, Lăng Tiêu Thiên Vương Phủ đã từng là Thánh Minh Trung Ương đế quốc hoàng cung, hộ cung cổ trận là từ Thượng Cổ liền còn sót lại.
 
-Tinh Thần Lực Thánh Giả cùng cùng cấp bậc Võ Đạo Thánh Giả giao phong, ưu thế cũng không phải là đặc biệt rõ ràng.
+Cho dù là có hộ cung cổ trận bảo hộ, Nhật Nguyệt môn nhưng vẫn là bị đánh ra mấy đạo vết rách, bởi vậy có thể thấy được, Minh Giang Vương một đao này lực lượng là đáng sợ đến bực nào.
 
-Thế nhưng là, Tinh Thần Lực Thánh Giả lợi hại nhất một chút, chính là có thể lấy một địch nhiều, đặc biệt là ở trên chiến trường, có lực phá hoại không phải Võ Đạo Thánh Giả có thể so sánh với, nếu là lực lượng vận dụng được tốt, thậm chí có thể cải biến một trận chiến tranh thắng bại.
+"Thập Long Đao."
 
-Đổi lại một vị Võ Đạo Thánh Giả, muốn giải quyết hơn mười vị Bán Thánh, tuyệt đối không có Trương Nhược Trần nhẹ nhàng như vậy.
-
-Trương Nhược Trần nhìn một chút lòng bàn tay điện mang, lại nhìn một chút ngã trên mặt đất Bất Tử Huyết tộc Bán Thánh, nhẹ nhàng thở dài: "Quả nhiên vẫn là hẳn là tu luyện một chút cao cấp pháp thuật, sử dụng cấp một pháp thuật, thế mà không có thể đem bọn hắn toàn diệt."
-
-"Vị nào Tinh Thần Lực Thánh Giả giá lâm Lãng Tín quận, bản thánh đến gặp ngươi một lần."
-
-Ngoài Vạn Tâm cốc, vang lên một tiếng quát lớn.
-
-Lập tức, một mảnh trùng trùng điệp điệp huyết vụ, từ đằng xa lao qua, lơ lửng tại sơn cốc trên không. Có một cỗ cường đại thánh khí ba động, từ trong huyết vụ truyền ra, lập tức, một vị Huyết Thánh mọc ra bốn cánh đi ra.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1294
-
-Chương 1291: Ngược sát
-
-Chương 1291: Ngược sát
-
-Vị Huyết Thánh kia thân cao ba mét, làn da hiện lên màu đỏ như máu, từ đầu đến chân đều ấn có vằn đen, trên lưng bốn cánh triển khai đằng sau chừng dài hơn bốn mươi trượng, phát ra khí thế cực kỳ kinh người.
-
-Tứ Dực Huyết Thánh nhìn thấy trong sơn cốc tu luyện Bất Tử Huyết tộc Thánh Giả đã chết đi một nửa, nổi giận gầm lên một tiếng: "Dám giết Bất Tử Huyết tộc Bán Thánh, ngươi là đang tìm cái chết."
-
-Một vị Bán Thánh, cần đại lượng tài nguyên, mới có thể bồi dưỡng được tới.
-
-Duy nhất một lần chết đi hơn mười vị Bán Thánh, tương đương với chết đi một nhóm lớn lực lượng trung kiên , bất kỳ thế lực nào đều sẽ phát điên.
-
-Trương Nhược Trần lại là lộ ra phong khinh vân đạm, hướng lên phía trên nhìn thoáng qua , nói: "Liền ngay cả Bất Tử Huyết tộc Thánh Giả, ta cũng chém qua không chỉ một vị, giết chết hơn mười vị Bán Thánh, lại coi là cái gì?"
-
-"Khẩu khí thật lớn, có dám hay không báo lên tính danh?"
-
-Tứ Dực Huyết Thánh tinh thần lực, còn kém rất rất xa Trương Nhược Trần, căn bản thấy không rõ Trương Nhược Trần dung mạo, cũng không biết thân phận của hắn.
-
-Trương Nhược Trần không có trả lời hắn, chỉ là chậm rãi nâng lên một tay nắm, lần nữa điều động ra tinh thần lực.
-
-Lập tức, từng sợi thiên địa linh khí, chuyển hóa làm lôi điện, xuyên thẳng qua trong không khí.
-
-"Phốc phốc!"
-
-"A. . ."
-
-Lôi điện ngưng tụ thành từng cây trường mâu, đánh rơi xuống dưới, nguyên bản còn sống Bất Tử Huyết tộc Bán Thánh toàn bộ đều bị trấn sát, một người sống cũng không có lưu lại.
-
-"Lớn mật."
-
-Tứ Dực Huyết Thánh giận không thể nuốt, ở trước mặt của hắn, chỉ là một kẻ nhân loại, lại còn dám đại hưng giết chóc?
-
-Phải biết, tại Bắc Vực, chỉ có Bất Tử Huyết tộc chém giết nhân loại, nô dịch nhân loại, nhân loại giết chết Bất Tử Huyết tộc Bán Thánh, chính là đại nghịch bất đạo hành vi.
-
-Tứ Dực Huyết Thánh một đôi mắt bóng trở nên vô cùng sáng tỏ, giống như hai viên hỏa cầu treo tại trong huyết vân. Hai viên "Hỏa cầu" nội bộ, dựng dục ra một cỗ lực lượng cuồng bạo, lập tức, hai cây hỏa diễm quang trụ từ trên trời giáng xuống, đánh về phía phía dưới Trương Nhược Trần.
-
-Trương Nhược Trần hai mắt khẽ híp một cái, thi triển ra một loại Lôi hệ pháp thuật "Bôn Lôi Thuật", thân hình khẽ động, hóa thành một đạo sáng tỏ thiểm điện lao ra, tránh đi Tứ Dực Huyết Thánh công kích, đi vào ven rìa sơn cốc một chỗ vị trí địa thế tương đối cao.
-
-"Lôi Hỏa Tuyền Qua."
-
-Trương Nhược Trần thi triển ra một loại cấp ba Lôi hệ pháp thuật, chỉ một thoáng, trên bầu trời, ngưng tụ ra một cái vòng xoáy đường kính mấy trăm trượng, có vô số lôi điện cùng hỏa diễm tại trong vòng xoáy xuyên thẳng qua.
-
-Trương Nhược Trần thi triển ra những pháp thuật này, đều là cấp thấp pháp thuật, tinh thần lực còn không có đạt tới Bán Thánh cảnh giới thời điểm, liền đã tu luyện mà thành.
-— QUẢNG CÁO —
-
-Mặc dù là mười phần cấp thấp pháp thuật, thế nhưng là, do một vị cường độ tinh thần lực đạt tới cấp 52 Tinh Thần Lực Thánh Giả thi triển đi ra, loại uy lực kia cũng là tương đương có thể nhìn, không phải bình thường Thánh Giả đỡ được.
-
-Lôi Hỏa Tuyền Qua đem Tứ Dực Huyết Thánh quét sạch đi vào, từng đạo lôi điện cùng hỏa diễm lực lượng liên tục không ngừng đánh rơi, bổ đến Tứ Dực Huyết Thánh phát ra tiếng kêu thảm, có đại lượng thánh huyết từ trong vòng xoáy vương xuống tới.
-
-Chờ đến Tứ Dực Huyết Thánh từ trong Lôi Hỏa Tuyền Qua tránh thoát đi ra thời điểm, toàn thân đều trở nên cháy đen, thánh khu bị thiêu hủy gần một nửa.
-
-"Chết."
-
-Tứ Dực Huyết Thánh biết Tinh Thần Lực Thánh Giả nhược điểm, chỉ cần tới gần thân thể của bọn hắn, bọn hắn liền hẳn phải chết không nghi ngờ.
-
-Mặc dù bị trọng thương, Tứ Dực Huyết Thánh hay là muốn giết ngược lại khi đến đường cùng, cấp tốc hướng phía dưới lao xuống, lòng bàn tay duỗi ra một cây màu bạc trắng gai nhọn, đâm về đỉnh đầu Trương Nhược Trần.
-
-Trương Nhược Trần nhẹ nhàng thở dài, ba mạch bị phế đằng sau, chính là phiền phức, đổi lại trước kia thời kì đỉnh phong, Tứ Dực Huyết Thánh chém giết tới, hắn chỉ cần một chưởng liền đem nó chụp chết.
-
-Hiện tại, chỉ có thể lựa chọn tránh lui.
-
-Vận dụng Bôn Lôi Thuật tránh đi đằng sau, Trương Nhược Trần phất tay quăng ra, một viên Cầu Hình Thiểm Điện bay ra ngoài, kích ở trên thân Tứ Dực Huyết Thánh, đánh cho hắn da tróc thịt bong, lần nữa phát ra tiếng kêu thảm.
-
-Thế nhưng là hết lần này tới lần khác Trương Nhược Trần đánh ra pháp thuật quá mức cấp thấp, uy lực có hạn, chỉ có thể làm bị thương Tứ Dực Huyết Thánh, không cách nào giết hắn.
-
-"Thật sự là một cái tên ghê tởm, rõ ràng có được cao thâm tinh thần lực tạo nghệ, lại vẫn cứ sử dụng cấp thấp nhất pháp thuật, hoàn toàn chính là đang cố ý nhục nhã ta."
-
-Tứ Dực Huyết Thánh cũng không biết Trương Nhược Trần không có tu luyện qua cao cấp tinh thần lực pháp thuật, chỉ cho là Trương Nhược Trần là muốn ngược sát hắn, trong lòng đã là biệt khuất, cũng rất phẫn nộ.
-
-"Hiện tại, trước hết để cho ngươi đắc ý , chờ đến hai vị Huyết Thánh khác chạy đến, là tử kỳ của ngươi."
-
-Tứ Dực Huyết Thánh biết rõ đối phương rất có thể là tại ngược hắn, nhưng như cũ tại kiên trì , chờ đợi viện quân, hôm nay, vô luận như thế nào cũng muốn để nhân loại phách lối này trả giá đắt, hút khô máu tươi của hắn, đem hắn luyện thành Huyết Nô.
-
-Kỳ thật, Trương Nhược Trần cũng rất im lặng, Bất Tử Huyết tộc sinh mệnh lực cùng sức khôi phục đều quá mạnh, sử dụng cấp thấp pháp thuật tại trong thời gian ngắn ở giữa, vậy mà không cách nào giết hắn.
-
-"Bành bành."
-
-Cầu Hình Thiểm Điện cùng điện đao tiếp tục không ngừng rơi xuống, ở trên thân Tứ Dực Huyết Thánh, lưu lại mấy chục đạo vết thương, đánh cho hắn không ngừng tru lên, máu tươi chảy ròng, sinh mệnh lực đang trôi qua nhanh chóng.
-
-Ngay tại Tứ Dực Huyết Thánh đều nhanh sắp không kiên trì được nữa chuẩn bị đào tẩu thời điểm, sơn cốc phương hướng tây bắc, truyền ra hai cỗ khổng lồ Thánh Đạo khí tức.
-
-Đồng thời, trên mặt đất, cũng có lít nha lít nhít Bất Tử Huyết tộc quân đội phóng tới sơn cốc. Bọn hắn là quân đội tinh nhuệ, chừng mấy chục vạn đại quân, kết thành chiến trận, cấp tốc đẩy về phía trước tiến, hành quân thanh thế chấn động đến toàn bộ sơn cốc đều đang rung động nhè nhẹ.
-
-Tứ Dực Huyết Thánh kích động đến nước mắt đều muốn chảy ra, phảng phất thấy được ánh rạng đông, không cần lại bị ngược, cả người đều như là điên cuồng đồng dạng, toàn thân bộc phát ra chói mắt huyết quang, hét lớn một tiếng: "Kinh Vân Huyết Thánh, Hồng Thiên Huyết Thánh, trợ bản thánh một chút sức lực, chém giết vị Nhân tộc Tinh Thần Lực Thánh Giả này. Hắn thánh huyết, ba người chúng ta chia đều."
-
-Nhưng mà, hai vị Huyết Thánh còn không có từ trong huyết vân bay xuống xuống tới, liền có một thanh dao phay màu bạc bay ra ngoài, đánh trúng trong đó một vị Huyết Thánh.
-
-"Phốc phốc."
-
-Trong huyết vân, vang lên một đạo bi thảm tiếng kêu.
-
-Ngay sau đó, một vị Huyết Thánh thi hài, từ thiên khung rơi xuống.
-
-Dao phay màu bạc giữa không trung vạch ra một cái đường cong, xoay tròn một vòng, lại đem một vị Huyết Thánh khác chém giết.
-
-Vẻn vẹn chỉ là trong nháy mắt, hai vị Huyết Thánh vẫn lạc, thậm chí cũng không kịp đào mệnh.
-
-Tứ Dực Huyết Thánh trợn mắt hốc mồm, nhìn chăm chú về phía đứng sau lưng Hoàng Yên Trần cái mới nhìn qua tiểu nha đầu người vật vô hại kia, không nhịn được muốn cuồng mắng.
-
-Một mực đến nay, hắn đều coi là Trương Nhược Trần là trong ba người người mạnh nhất, chỉ cảm thấy Hoàng Yên Trần cùng Thanh Mặc đều rất xinh đẹp, hẳn là Trương Nhược Trần gia quyến cùng thị nữ, bởi vậy, trực tiếp đưa các nàng không nhìn.
-
-Ai có thể nghĩ tới, các nàng vậy mà càng thêm cường đại?
-
-Sớm biết các nàng mạnh như vậy, cần gì phải thụ nhiều như vậy tội, Tứ Dực Huyết Thánh đã sớm lựa chọn đào mệnh.
-
-Đã trải qua Thanh Long Khư Giới, Huyết Thần Giáo, Âm Dương Hải luân phiên mấy lần giết chóc tẩy lễ, mặc dù, Thanh Mặc như trước vẫn là mười phần nhát gan, nhưng là, nhưng cũng có một ít tiến bộ, chí ít đã dám động thủ giết người.
-
-Luôn luôn cần kinh nghiệm sinh tử cùng máu tươi lịch luyện, tu sĩ mới có thể chân chính trưởng thành.
-
-Hoàng Yên Trần lẳng lặng đứng ở một bên, vẫn luôn đang chăm chú Trương Nhược Trần cùng Tứ Dực Huyết Thánh chiến đấu, chỉ cần Trương Nhược Trần gặp được nguy hiểm, nàng sẽ ở trước tiên xuất thủ.
-
-Thế nhưng là, nàng giật mình phát hiện, coi như ba mạch tẫn phế, Trương Nhược Trần vẫn như cũ tương đương lợi hại , bình thường Thánh Giả gặp được hắn, chỉ có bị ngược phần.
-
-"Trần ca, tốc chiến tốc thắng đi, Bất Tử Huyết tộc quân đội đã vây kín tới, chúng ta nhất định phải nhanh rời đi." Hoàng Yên Trần cũng cảm thấy Trương Nhược Trần thực lực sâu không lường được, chỉ là tại ngược Tứ Dực Huyết Thánh.
-
-Mấy chục vạn Bất Tử Huyết tộc tinh nhuệ đại quân, cũng không phải là quân lính tản mạn, mà là kết thành chiến trận, thật bị vây quanh, cho dù là lấy ba người bọn họ tu vi cũng sẽ tương đối nguy hiểm.
-
-Tứ Dực Huyết Thánh cũng sớm đã không kiên trì nổi, bị thương tương đương thảm trọng, biết Hoàng Yên Trần cùng Thanh Mặc đều là Thánh cảnh cường giả đằng sau, càng thêm không dám tiếp tục chiến đấu, thi triển ra một loại tật tốc thân pháp, hướng ngoài sơn cốc bỏ chạy.
-
-Nếu là Tứ Dực Huyết Thánh không trốn, Trương Nhược Trần đoán chừng còn phải tốn phí thời gian rất lâu mới có thể giết hắn, thế nhưng là, tâm hắn sinh khiếp đảm, lựa chọn trốn lui, cũng liền cho Trương Nhược Trần cơ hội.
-
-Trương Nhược Trần cấp tốc truy sát đi lên, bàn tay bóp thành đao hình, hướng về phía trước vung chém: "Cửu Trảm Điện Đao."
-
-Liên tiếp chín đạo lôi điện trường đao bay ra ngoài, như là sóng nước đồng dạng, một đao liên tiếp một đao, một tầng chồng lên một tầng, chém ở trên thân Tứ Dực Huyết Thánh.
-
-Phía trước bảy đao đều bị Tứ Dực Huyết Thánh ngăn trở, đao thứ tám rơi xuống, cuồng bạo lôi điện lực lượng, đem hắn phần lưng bốn cái huyết dực xé nát thành từng mảnh từng mảnh lớn chừng bàn tay khối thịt.
-— QUẢNG CÁO —
-
-Đao thứ chín bay ra, trực tiếp đem Tứ Dực Huyết Thánh thánh khu chia hai nửa, khiến cho sinh mệnh lực của hắn triệt để xói mòn hầu như không còn.
-
-Hoàng Yên Trần đi tới, nhìn chằm chằm Tứ Dực Huyết Thánh thi thể, ý vị thâm trường nói ra: "Cho dù chỉ là tu luyện tinh thần lực, sau này, ngươi cũng có thể xưng hoàng, xưng đế. Ai dám xem thường ngươi, đều đem bỏ ra giá cao thảm trọng."
-
-Trương Nhược Trần cảm giác được có chút mỏi mệt, không có nhiều lời , nói: "Đi thôi, mau chóng rời đi nơi này, tuyệt đối đừng bị Bất Tử Huyết tộc đỉnh tiêm Thánh Giả để mắt tới."
-
-Dù sao cũng là tại Bất Tử Huyết tộc địa bàn, náo ra động tĩnh lớn như vậy, khẳng định sẽ kinh động Bất Tử Huyết tộc cao tầng, Trương Nhược Trần không dám khinh thường.
-
-Ba vị Huyết Thánh Thánh Nguyên, toàn bộ đều bị Hoàng Yên Trần thu thập lại.
-
-Sau đó, Hoàng Yên Trần ở phía trước mở đường, Trương Nhược Trần cùng Thanh Mặc đi ở hậu phương, hình thành một hình tam giác, cùng mấy chục vạn Bất Tử Huyết tộc đại quân đụng vào nhau.
-
-Đại quân chiến trận, còn không có hoàn toàn ngưng tụ thành hình, ngăn không được Trương Nhược Trần ba người.
-
-Đại khái chỉ là một chén trà thời gian đằng sau, ba người bọn họ trùng sát ra ngoài, biến mất ở chân trời.
-
-Bên ngoài sơn cốc, chỉ là lưu lại một mảng lớn đẫm máu thi hài, chừng 3 vạn trở lên Bất Tử Huyết tộc tinh nhuệ quân sĩ tử vong, thụ thương quân sĩ càng là vô số kể.
-
-Ninh Phong phủ là thập đại bộ tộc một trong Thanh Thiên bộ tộc chiếm cứ lãnh địa, trận này giết chóc tin tức, rất nhanh liền truyền đến trong tai Thanh Thiên bộ tộc cao tầng.
-
-Trung Doanh Vương là Thanh Thiên bộ tộc nhân vật số hai, gần với Thanh Thiên Huyết Đế tồn tại.
-
-Giờ phút này, Trung Doanh Vương một đạo phân thân, đứng tại một tòa to lớn trong cung điện, tay nắm Truyền Tin Quang Phù, lầm bầm lầu bầu thì thầm: "Ba vị Huyết Thánh vẫn lạc, 3 vạn đại quân tinh nhuệ bị tàn sát, thủ bút thật lớn. Tra một chút ba người bọn họ cụ thể thân phận?"
-
-Một nữ tử tà dị người mặc màu đen áo choàng, trên mặt mang theo một tầng màu đen mạng che mặt, đứng tại phía dưới Trung Doanh Vương, thanh âm có chút khàn khàn , nói: "Bắc Vực mỗi một cái Thánh cảnh sinh linh đều bị đăng ký trong danh sách, có đầu phục chúng ta, có liệt ra tại trên « Tử Vong Danh Đan » , còn có một số chúng ta ngay tại lôi kéo. Thế nhưng là, ba người bọn họ, tựa hồ cũng không tại trong danh sách chúng ta đăng ký."
-
-Nàng này, tên là Chúc Khinh Y, là Trung Doanh Vương đệ tử đích truyền, cũng là một vị Thánh cảnh cường giả tương đương lợi hại.
-
-"Không phải Bắc Vực Thánh Giả?" Trung Doanh Vương nói.
-
-Chúc Khinh Y nói: "Trong ba người, có một vị Tinh Thần Lực Thánh Giả, có phải hay không là Đại Địa Thần Điện sai phái ra đến cao thủ, cố ý tại Ninh Phong phủ gây ra hỗn loạn, muốn ngăn cản Thanh Thiên bộ tộc cùng tam đại bộ tộc khác vây công Hồng Xuyên phủ kế hoạch?"
-
-Trung Doanh Vương hừ lạnh một tiếng , nói: "Bốn vị Huyết Đế đồng thời hạ lệnh, tứ đại bộ tộc tập kết ngàn vạn đại quân, thế tất là muốn cầm xuống Hồng Xuyên phủ, đây là chiều hướng phát triển, ai cũng không có khả năng ngăn cản. Nhiễu loạn Ninh Phong phủ, liền muốn ngăn chặn Thanh Thiên bộ tộc quân đội, hoàn toàn chính là si tâm vọng tưởng."
-
-Dừng một chút, Trung Doanh Vương lại hỏi một câu: "Ba vị Nhân tộc Thánh Giả kia sau khi thoát đi Lãng Tín quận, đi địa phương nào?"
-
-"Hồng Xuyên phủ." Chúc Khinh Y nói ra.
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1295
-
-Chương 1292: Lôi Thần Chi Chùy
-
-Chương 1292: Lôi Thần Chi Chùy
-
-Trung Doanh Vương nói: "Tại trên địa bàn Thanh Thiên bộ tộc giết người, sao có thể dễ dàng như thế thả bọn họ đào tẩu? Ngươi tự mình đi một chuyến, phải tất yếu chặn đường bọn hắn, không thể thả hổ về núi."
-
-"Căn cứ truyền lên tình báo phân tích, tu vi của bọn hắn cũng không phải là rất mạnh, không cần đệ tử tự mình xuất thủ, tùy tiện điều động một vị Tử Thần kỵ sĩ cũng có thể diệt bọn hắn." Chúc Khinh Y chỗ mi tâm, có một đóa màu đỏ tà hoa văn ấn, tản mát ra nhàn nhạt quang hoa, khiến cho nàng lộ ra càng thêm tà mị.
-
-Trung Doanh Vương nói: "Giết bọn hắn, chỉ là bên trong một cái nhỏ bé nhiệm vụ. Việc này, ngươi chân chính chuyện cần làm, chính là đi Hồng Xuyên phủ, đem một vị Đan Đạo Thánh Sư mời đến Thanh Thiên bộ tộc."
-
-"Một vị Đan Đạo Thánh Sư."
-
-Chúc Khinh Y thần sắc trở nên có chút nghiêm túc, không thể không nhìn thẳng vào việc này.
-
-Đan Đạo Thánh Sư có thể luyện chế ra thánh đan, có được "Sinh tử nhân, hoạt bạch cốt" thủ đoạn, đạt được một vị Đan Đạo Thánh Sư, toàn bộ Thanh Thiên bộ tộc thực lực đều sẽ tùy theo tăng lên một đoạn.
-
-Tại Bắc Vực, cũng chỉ có hai vị Đan Đạo Thánh Sư mà thôi, mỗi một vị cũng là có thể trở thành Huyết Đế đại nhân thượng khách khách. Nhân vật như vậy, sao có thể không thận trọng đối đãi?
-
-Trung Doanh Vương ngón tay búng một cái, một tấm giấy viết thư từ màu trắng giữa hai ngón tay xoay tròn lấy bay ra ngoài , nói: "Trên thư ghi lại là tư liệu vị Đan Đạo Thánh Sư kia, ngươi đến mau chóng chạy tới. Nghe nói, mấy bộ tộc khác cũng sai phái ra cường giả, chuẩn bị đi mời người này, tuyệt đối đừng bị bọn hắn vượt lên trước."
-
-Thập đại bộ tộc, đã là lẫn nhau hợp tác, cũng là cạnh tranh với nhau quan hệ.
-
-Chúc Khinh Y bắt lấy giấy viết thư, hé miệng cười một tiếng, một đôi con mắt phượng hơi nhếch lên, xinh đẹp như vậy một đôi mắt, lại là lộ ra một đạo sát ý , nói: "Nếu là muốn đi Hồng Xuyên phủ, như vậy đệ tử liền thuận tay chém ba vị Nhân tộc Thánh Giả kia."
-
-"Hoa —— "
-
-Lập tức, Chúc Khinh Y hóa thành một đoàn hắc vụ, hư không tiêu thất tại trong cung điện.
-
-Từ Ninh Phong phủ đến Hồng Xuyên phủ là một đoạn xa xôi khoảng cách, cách xa nhau hai triệu dặm, người bình thường coi như đi cả một đời, cũng vô pháp vượt qua.
-
-Giữa hai phủ, nhưng thật ra là có không gian trùng động kết nối, trong khoảnh khắc liền muốn đến. Chỉ bất quá, trùng động cửa vào có Bất Tử Huyết tộc trọng binh trấn giữ, căn bản là không có cách mượn đường, Trương Nhược Trần ba người chỉ có thể lựa chọn bay đi Hồng Xuyên phủ.
-
-Trên đường, Hoàng Yên Trần chém giết một vị Bất Tử Huyết tộc thống soái, cướp đoạt chiến xa của hắn.
-
-Chiến xa là do hai cái lục giai thượng đẳng Man thú kéo động, đã có thể ở trên lục địa chạy, cũng có thể bay lên tại thiên khung, mà lại, tốc độ nhanh nhất có thể so với hạ cảnh Thánh Giả, mỗi một ngày đều có thể vượt qua mấy chục vạn dặm cương vực.
-
-Trương Nhược Trần ngồi ở trong chiến xa, nhắm mắt minh tưởng, tìm kiếm trong đầu ký ức.
-
-800 năm trước, hắn từng đọc qua qua Thánh Minh Trung Ương đế quốc « Tinh Thần Lực Pháp Điển », thấy qua rất nhiều cao cấp Lôi hệ pháp thuật, chuẩn bị chọn lựa ra một hai loại đi ra tu luyện, tăng cường thực lực bản thân.
-
-Chỉ sử dụng cấp thấp pháp thuật, căn bản không phát huy ra Tinh Thần Lực Thánh Giả chân chính thực lực. Tựa như hắn cùng Tứ Dực Huyết Thánh giao thủ, đánh ra mấy chục đạo cấp thấp pháp thuật, cũng không có đem hắn giết chết.
-
-Pháp thuật, tổng cộng chia làm mười cấp.
-
-Trương Nhược Trần hiện tại cũng liền chỉ là tu luyện thành mấy cái cấp thấp pháp thuật, một chiêu lợi hại nhất "Lôi Hỏa Tuyền Qua", cũng chỉ là cấp ba pháp thuật, xa xa không cách nào cùng cấp mười pháp thuật đánh đồng.
-— QUẢNG CÁO —
-
-
-Tại trên cấp mười pháp thuật, còn có càng thêm lợi hại tinh thần lực chiêu số, xưng là thánh pháp.
-
-Chỉ có Tinh Thần Lực Thánh Giả cường độ tinh thần lực, mới có thể đem thánh pháp tu luyện thành công. Mỗi một chiêu thánh pháp, đều có kinh thiên động địa uy lực, có thể san bằng một vùng núi non, phần luyện một vùng biển, tiêu diệt một tòa đại thành.
-
-Thánh pháp cũng chia mười cấp, dù là chỉ là cấp một thánh pháp, tu luyện cũng là tương đương gian nan, cần tiêu tốn rất nhiều thời gian đi lĩnh hội.
-
-"Cấp một thánh pháp, Lôi Thần Chi Chùy."
-
-Trương Nhược Trần trong miệng đọc lên một câu, lập tức, trong đầu, hiện ra lít nha lít nhít văn tự.
-
-Trên lý luận tới nói, một loại pháp thuật, cần ròng rã một quyển sách đến ghi chép, chỉ có hiểu thấu đáo quyển sách này, mới có thể đem pháp thuật tu luyện thành công.
-
-Một loại thánh pháp, thì là cần một phòng sách để giải thích cùng trình bày, chỉ có đem một phòng sách toàn bộ đều tìm hiểu thấu đáo, mới có thể đem một loại thánh pháp tu luyện thành công.
-
-Lôi Thần Chi Chùy nội dung cùng thuyết minh, cũng sớm đã ghi tạc Trương Nhược Trần não hải, thế nhưng là bắt đầu tìm hiểu đến, nhưng lại là một chuyện khác. Hắn chỉ là minh tưởng một lát, cũng cảm giác được có chút hoa mắt váng đầu, ý thức dần dần trở nên mơ hồ.
-
-Trương Nhược Trần cũng không có từ bỏ, sử dụng cường đại tinh thần lực, tại trong ý thức hải, một bản một quyển nghiên cứu, đánh hạ nan quan này đến nan quan khác.
-
-Phải biết, lấy Trương Nhược Trần hiện tại cường độ tinh thần lực, chỉ cần thời gian một hơi thở, liền có thể đem một quyển sách nội dung toàn bộ ghi lại, đồng thời lý giải thấu ý tứ những nội dung kia.
-
-Thế nhưng là, hắn ròng rã tốn hao hai ngày thời gian, mới đưa Lôi Thần Chi Chùy tất cả nội dung cắt tỉa một lần, cũng chỉ là lĩnh hội đến trong đó năm, sáu phần mười chân lý mà thôi.
-
-"Tiếp tục."
-
-Trương Nhược Trần rất muốn tăng cường thực lực bản thân, nhất định phải mau chóng tu luyện thành một loại thánh pháp.
-
-Chỉ cần nắm giữ một loại thánh pháp, cho dù gặp được Huyền Hoàng cảnh Thánh Giả, Trương Nhược Trần cũng có rất lớn phần thắng.
-
-Huyền Hoàng cảnh Thánh Giả tại trong Thánh cảnh sinh linh, đã là tồn tại khá cường đại.
-
-Ngay sau đó, Trương Nhược Trần lại tốn hao một ngày một đêm, đem Lôi Thần Chi Chùy nội dung tìm hiểu lần thứ hai, lĩnh hội tới trong đó bảy tám phần chân lý.
-
-Trải qua ba ngày không ngủ không nghỉ tu luyện, lấy Trương Nhược Trần hiện tại tình trạng cơ thể, tự nhiên là có chút không chịu đựng nổi, không thể không dừng lại nghỉ ngơi.
-
-Chờ đến trạng thái khôi phục một chút, Trương Nhược Trần đi vào bên ngoài chiến xa, nếm thử thi triển loại thánh pháp này.
-
-Hai tay của hắn, kết thành một cái thủ ấn, lập tức, linh khí trong thiên địa, hướng hắn hội tụ tới, chuyển hóa làm từng đạo lôi điện màu tím, đan vào một chỗ.
-
-Toàn bộ bầu trời đều tối xuống, mây đen cuồn cuộn, trong tầng mây, dựng dục một cỗ khổng lồ khí tức.
-
-Trong vòng phương viên trăm dặm sinh linh, nhìn lên bầu trời kinh khủng dị tượng, cảm nhận được cỗ uy áp kinh người kia, toàn bộ đều dọa đến nhiếp nhiếp phát run.
-
-Thế nhưng là, Lôi Thần Chi Chùy cũng không có ngưng tụ ra, những lôi điện kia dần dần tản ra, biến mất vô tung vô ảnh, bầu trời lại khôi phục sáng sủa.
-
-Thi triển thất bại.
-
-Trương Nhược Trần không có nhụt chí, chỉ là khẽ lắc đầu cười một tiếng, lại bắt đầu lần thứ hai thi triển.
-
-Lần thứ hai, đã là thất bại.
-
-Lần thứ ba, thất bại.
+"Trong truyền thuyết, Minh Đế ngự đao."
 
 . . .
 
-Liên tiếp thất bại hai mươi lần, Trương Nhược Trần cảm giác được tinh thần có chút mỏi mệt, mới ngừng lại được, ở thời điểm khôi phục tinh thần lực, cũng tại cẩn thận suy nghĩ thất bại nguyên nhân.
+Minh Đế hết thảy có bốn kiện chiến bảo, phân biệt gọi là Bát Long Tán, Cửu Long Liễn, Thập Long Đao, Bách Long Minh Hoàng Giáp.
 
-Từ đầu đến cuối, Hoàng Yên Trần đều giữ yên lặng, một câu cũng không có nói, chỉ là lẳng lặng nhìn chằm chằm Trương Nhược Trần.
+Nghe nói, Bát Long Tán, Cửu Long Liễn, Thập Long Đao, đều là tương đương lợi hại Vạn Văn Thánh Khí, nội bộ phân biệt có 8 vạn đạo Minh Văn, 9 vạn đạo Minh Văn, mười vạn đạo Minh Văn.
 
-Thanh Mặc lặng lẽ truyền âm , nói: "Quận chúa, Trương công tử tựa hồ là gặp phải phiền toái, tại không có lão bối Tinh Thần Lực Thánh Giả dẫn đạo dưới, hắn căn bản không có khả năng đem một loại thánh pháp tu luyện thành công."
+Bách Long Minh Hoàng Giáp thì là một kiện Chí Tôn Thánh Khí, từ Trung Cổ thời kì liền truyền xuống, uy lực vô tận, có thể xưng Hoàng tộc đệ nhất chí bảo.
 
-Tinh thần lực tu sĩ, cũng có lão sư.
+800 năm trước, Minh Giang Vương là Minh Đế trong tất cả huynh đệ tỷ muội, thiên tư cao nhất một cái, bởi vậy, Minh Đế mới đưa Thập Long Đao đưa tặng cho hắn.
 
-Lão sư không chỉ có chỉ là giảng dạy tu luyện như thế nào tinh thần lực, cũng muốn dạy bọn hắn tu luyện như thế nào pháp thuật cùng thánh pháp.
+Thập Long Đao không phải bình thường Vạn Văn Thánh Khí có thể so sánh với, Minh Giang Vương toàn lực vung ra, đánh đâu thắng đó, liên tiếp mười mấy đao chém xuống đi, đánh cho hộ cung cổ trận đều tại mãnh liệt lắc lư, Nhật Nguyệt môn phụ cận tường thành càng là xuất hiện lít nha lít nhít vết rạn.
 
-Trong tu luyện một chút kỹ xảo cùng chi tiết, trên thư tịch căn bản cũng không có ghi chép, chỉ bằng vào chính mình đi lĩnh hội sẽ đi rất nhiều đường quanh co. Đừng nói mấy ngày thời gian, liền xem như tốn hao thời gian mấy tháng, thậm chí thời gian mấy năm, cũng chưa chắc có thể đem một loại thánh pháp tu luyện thành công.
-
-Hoàng Yên Trần nói: "Trương Nhược Trần không phải người bình thường, từ đạp vào con đường tu luyện đến nay, cơ hồ liền không có lão sư giảng dạy qua hắn, toàn bộ đều là hắn tại tự học. Nói cho cùng, kỳ thật chính là không có người dạy được hắn, bởi vậy có thể thấy được, ngộ tính của hắn không phải thường nhân có thể so sánh với. Một cái thánh pháp, khẳng định khó không được hắn."
-
-Thanh Mặc luôn cảm thấy quận chúa điện hạ đối với Trương Nhược Trần có một loại mù quáng tự tin, chẳng lẽ cũng bởi vì yêu một người, cho nên, tin tưởng hắn không gì làm không được?
-
-"Ta hiểu được, chỉ có Tinh Thần Lực Thánh Tướng cùng thiên địa linh khí kết hợp với nhau, mới có thể thi triển ra thánh pháp."
-
-Trương Nhược Trần khóe miệng hơi nhếch lên, lộ ra một đạo dáng tươi cười, lập tức đứng dậy, lần nữa kết xuất một đạo ấn pháp.
-
-"Xoẹt xoẹt."
-
-Tinh Thần Lực Thánh Tướng hiển hiện ra, chính là hình người, do lôi điện ngưng tụ mà thành, tản mát ra hào quang chói mắt, khiến cho bầu trời đêm đen kịt chiếu lên một tầng ánh sáng màu tím.
-
-Thiên địa linh khí liên tục không ngừng hướng Tinh Thần Lực Thánh Tướng hội tụ tới, ngưng tụ ra một thanh điện chùy.
-
-Thanh Mặc trợn mắt hốc mồm nhìn chằm chằm đứng sau lưng Trương Nhược Trần to lớn lôi điện thân ảnh, vậy liền giống như là một tôn Lôi Thần cầm trong tay điện chùy, phát ra khí tức tương đương cường hoành.
-
-Thanh Mặc thè lưỡi, trong lòng không thể không chịu phục, lầu bầu nói: "Thật là lợi hại, cũng chỉ là tốn hao ba ngày thời gian, liền tự học thành một loại thánh pháp."
-— QUẢNG CÁO —
-
-
-Đúng lúc này, Trương Nhược Trần giống như là đã nhận ra cái gì, ánh mắt hướng về phía sau lưng phương hướng liếc qua, lập tức, đem Lôi Thần Chi Chùy đánh đi ra, đánh về phía sáu mươi dặm bên ngoài một tòa núi cao.
-
-Một vị Tử Thần kỵ sĩ người mặc Thập Thánh Huyết Khải, đứng tại sơn nhạc đỉnh chóp, nhìn thấy từ trên trời giáng xuống điện chùy, vội vàng giơ lên một mặt đúc có đầu lâu tấm chắn.
-
-Lập tức, một viên đầu lâu màu đỏ như máu to lớn, từ trong tấm chắn bay ra đến, cùng Lôi Thần Chi Chùy đụng vào nhau.
-
-"Ầm ầm."
-
-Hơn hai ngàn mét cao đại sơn, hướng phía dưới sụp đổ, rất nhanh liền biến thành đất bằng, liền ngay cả một chút nham thạch đều hòa tan thành nham tương, tại nham tương mặt ngoài, còn có từng đạo lôi điện đường vân đang lưu động.
-
-Tử Thần kỵ sĩ cũng không có ngã xuống, vẫn như cũ bảo trì đứng thẳng tư thế, giơ tấm chắn.
-
-"Đùng!"
-
-Trong tay hắn tấm chắn phá toái, biến thành từng khối miếng sắt.
-
-Tử Thần kỵ sĩ trong miệng ho ra máu tươi, chịu một chút thương thế, cấp tốc hướng về sau lùi lại, cùng một vị Tử Thần kỵ sĩ khác hội hợp cùng một chỗ, đứng sóng vai.
-
-"Chẳng lẽ là Bất Tử Thần Điện điều động Tử Thần kỵ sĩ truy sát đi lên?"
-
-Hoàng Yên Trần cùng Thanh Mặc lập tức vận chuyển thánh khí, tiến vào trạng thái chiến đấu.
-
-Hai vị Tử Thần kỵ sĩ sau lưng, một nữ tử mang theo màu đen mạng che mặt đi ra, dáng người có lồi có lõm, đường cong ôn nhu, một đôi tròng mắt ẩn chứa tà dị lực lượng, ôn nhu nói: "Trước khi tới đây, ta ngược lại thật ra đánh giá thấp ngươi, lấy ngươi vừa rồi bạo phát đi ra lực công kích, tinh thần lực chỉ sợ đã đạt tới cấp 52 đi?"
-
-"Ngươi đến cùng là nhân loại, hay là Bất Tử Huyết tộc?" Trương Nhược Trần hỏi.
-
-Trên lưng nữ tử kia không có huyết dực, cho nên, Trương Nhược Trần mới có thể hỏi như vậy.
-
-Nàng mỉm cười: "Trong cơ thể của ta có một nửa Bất Tử Huyết tộc huyết dịch, cũng có một nửa nhân loại huyết dịch. Quên nói cho ngươi, tên ta là Chúc Khinh Y, là Trung Doanh Vương đệ tử đích truyền."
-
-"Trung Doanh Vương đệ tử."
-
-Trương Nhược Trần trong mắt, lộ ra một đạo vẻ lạnh lùng.
-
-Thật sự là oan gia ngõ hẹp.
-
-Chúc Khinh Y nói: "Tinh thần lực của ngươi cũng không tệ lắm, là một người mới, nói cho ta biết, tên của ngươi cùng lai lịch, nói không chắc còn có một con đường sống bày ở trước mặt của ngươi."
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1296
-
-Chương 1293: Bắc Vũ Điền
-
-Bất Tử Huyết tộc cũng không nhất định là sẽ đuổi tận giết tuyệt, gặp được Thánh Giả trong Nhân tộc, cũng sẽ tận lực đi thu phục.
-
-Thử nghĩ một chút, một vị Nhân tộc Thánh Giả đào ngũ hướng Bất Tử Huyết tộc, mà Nhân tộc nội bộ nhưng lại không biết. Như vậy, vị Nhân tộc Thánh Giả này giá trị, đối với Bất Tử Huyết tộc mà nói, chính là cỡ nào to lớn?
-
-Chúc Khinh Y chính là muốn thu phục Trương Nhược Trần, vì nàng sở dụng.
-
-Trương Nhược Trần sử dụng tinh thần lực lực lượng, cũng nhìn không thấu Chúc Khinh Y tu vi, chỉ biết là nàng thập phần cường đại, không kém gì Bất Tử Thần Nữ Huỳnh Hoặc, thậm chí càng thêm cường đại.
-
-"Toàn lực đánh ra một kích, sau đó, lập tức hướng phương bắc rút lui."
-
-Trương Nhược Trần hướng Hoàng Yên Trần cùng Thanh Mặc truyền âm, kết xuất thủ ấn, phóng xuất ra tinh thần lực, ngưng tụ ra "Lôi Thần Chi Chùy" thánh pháp, hướng lấy Chúc Khinh Y cầm đầu ba vị Bất Tử Huyết tộc cao thủ công kích đi qua.
-
-Cùng lúc đó, Hoàng Yên Trần đánh ra một thanh Thánh Kiếm, ngưng tụ ra mấy ngàn đạo kiếm khí, hóa thành một đầu Kiếm Hà, phát ra rầm rầm thanh âm, khiến cho mảnh địa vực này đều là cát bay đá chạy, lưu lại từng đạo nhìn thấy mà giật mình vết kiếm.
-
-"Cho ngươi cơ hội, lại không trân quý."
-
-Nhìn chằm chằm Trương Nhược Trần cùng Hoàng Yên Trần đánh ra công kích, Chúc Khinh Y khe khẽ lắc đầu, lộ ra một đạo thần sắc thất vọng, ngón tay hướng về phía trước một chút, lập tức, một tầng huyết vụ như màn nước tại đầu ngón tay ngưng tụ ra.
-
-"Bành bành."
-
-Lôi Thần Chi Chùy cùng Thánh Kiếm đụng vào trên màn nước, chỉ là toát ra hai đạo gợn sóng, căn bản là không có cách xâu vào.
-
-Chúc Khinh Y đang muốn đánh ra phản kích thủ đoạn, triệt để trấn sát Trương Nhược Trần ba người, đúng lúc này, màn nước hậu phương, một đạo màu bạc lưu quang cấp tốc bay tới, màn nước trong nháy mắt liền bị xé toạc ra.
-
-Chúc Khinh Y lộ ra một đạo thần sắc kinh dị, ngón tay vừa thu lại, lập tức, hai cái tuyết trắng bàn tay, đồng thời hướng về phía trước vỗ, đánh ra hai mảnh xích hồng sắc hỏa vân.
-
-Màu bạc lưu quang cùng hỏa vân tiếp xúc, tốc độ dần dần trở nên chậm chạp, Chúc Khinh Y cũng rốt cục thấy rõ, trong ngân quang lại là bao vây lấy một thanh dao phay.
-
-"Ầm ầm."
-
-Chúc Khinh Y hướng về sau bay ngược mấy trăm trượng, mới hóa giải lực lượng trên dao phay màu bạc, một lần nữa đứng vững bước chân, hướng về phía trước chằm chằm đi, ba tên Nhân tộc Thánh Giả kia đã chạy trốn tới chân trời.
-
-"Trong ba người, lại còn có cao thủ như thế. Đuổi theo cho ta!"
-
-Chúc Khinh Y thần sắc, trở nên nghiêm túc một chút, lồi lõm uyển chuyển thân thể mềm mại phân giải mà ra, hóa thành mấy chục đạo sương mù màu đen, cấp tốc đuổi theo.
-
-"Thật là lợi hại."
-
-Giờ phút này, Trương Nhược Trần cũng là mười phần kinh hãi.
-— QUẢNG CÁO —
-
-
-Phải biết, Thanh Mặc dao phay tuyệt đối không phải bình thường Thánh Khí, rất có thể là một kiện Thần Di Cổ Khí, mỗi một lần đánh đi ra đều là mọi việc đều thuận lợi, nhất định thấy máu. Thế nhưng là, vừa rồi Chúc Khinh Y tại dưới tình huống không có chút nào phòng bị, lại có thể ngăn trở dao phay màu bạc công kích.
-
-Trương Nhược Trần hoài nghi, coi như Thanh Mặc vận dụng ra dao phay màu bạc bản nguyên lực lượng, đoán chừng cũng không làm gì được nàng.
-
-Ba người bọn họ đều có một loại cảm giác cấp bách đến từ tử vong uy hiếp, Chúc Khinh Y tu vi quá cường đại, đơn giản không thể chiến thắng.
-
-Hoàng Yên Trần hướng về phía sau lưng nhìn chằm chằm một chút, trông thấy Chúc Khinh Y ngay tại nhanh chóng tới gần , nói: "Tốc độ thật nhanh, đã đuổi theo, chỉ có thể vận dụng chạy trốn bí thuật."
-
-Trương Nhược Trần ngăn cản lại Hoàng Yên Trần, nghiêm nghị nói: "Sử dụng chạy trốn bí thuật đích thật là có thể bộc phát ra mấy lần tốc độ, nhưng cũng có to lớn tác dụng phụ, thi triển đằng sau, sẽ lâm vào rất dài suy yếu kỳ. Thi triển thời gian quá dài, nói không chắc, cảnh giới của ngươi sẽ còn lùi lại."
-
-"Hiện tại là bị bất đắc dĩ, chỉ có vận dụng tự tổn bí thuật như vậy, mới có thể chạy thoát." Hoàng Yên Trần mười phần vội vàng, lại nói: "Tranh thủ thời gian thả ta ra, nếu để cho Chúc Khinh Y đuổi theo, chúng ta đều phải chết."
-
-"Vẫn là ta tới đi!" Trương Nhược Trần nói.
-
-Hoàng Yên Trần lộ ra một đạo nghi ngờ thần sắc, Trương Nhược Trần ba mạch đều đã gãy mất, chẳng lẽ còn có thể thi triển ra chạy trốn bí thuật?
-
-Trương Nhược Trần trong hai mắt, lộ ra một đạo quyết nhiên thần sắc, lập tức, đem Phật Đế Xá Lợi Tử lấy ra, nâng ở lòng bàn tay.
-
-Xá Lợi Tử, đại khái chỉ có đậu phộng lớn nhỏ, bày biện ra màu vàng, phát ra quang mang đâm vào Hoàng Yên Trần cùng Thanh Mặc con mắt đều có chút không mở ra được.
-
-"Đùng!"
-
-Trương Nhược Trần tinh thần lực hội tụ đến tay phải, sau đó, năm ngón tay bóp, Xá Lợi Tử tầng thứ tư phong ấn phá toái.
-
-Trương Nhược Trần trực tiếp đem Xá Lợi Tử nuốt vào trong bụng, một lát sau, thân thể của hắn, trở nên kim quang chói mắt, thể nội vang lên vạn phật tụng kinh thanh âm, từng cái phật văn tại mặt ngoài da của hắn chìm nổi, càng có phật ảnh đếm không hết từ trong cơ thể của hắn lao ra.
-
-Nguyên bản, Trương Nhược Trần tinh thần lực mới vừa vặn đột phá đến cấp 52, giờ phút này nhưng lại tại cấp tốc tăng trưởng, tựa hồ là muốn đột phá đến cấp 53.
-
-Xá Lợi Tử, có ngưng tụ Phật Đế cùng Kim Long hai vị Phật Đạo Đại Thánh thánh lực, có thể xưng vô giới chi bảo.
-
-Phật Đế cùng Kim Long, không chỉ có chỉ là tu luyện tới Võ Đạo, cũng tu luyện tinh thần lực, cho nên, trong Xá Lợi Tử cũng là ẩn chứa có bàng bạc tinh thần lực không gì sánh nổi.
-
-Kỳ thật, Trương Nhược Trần vẫn luôn không nguyện ý trực tiếp nuốt Xá Lợi Tử, đổi lấy tu vi đột nhiên tăng mạnh, tựa như tu sĩ khác luyện hóa Thánh Nguyên thành thánh một dạng, có rất nhiều tai hại, sẽ hạn chế thành tựu tương lai, đạt tới cảnh giới nhất định đằng sau, tu vi liền sẽ trì trệ không tiến, tương đương với chặt đứt tiềm lực của mình.
-
-Cho nên, Trương Nhược Trần chỉ là dự định từ từ hấp thu lực lượng trong Xá Lợi Tử, chưa bao giờ dự định nuốt Xá Lợi Tử.
-
-Đương nhiên, Xá Lợi Tử so với bình thường Thánh Nguyên muốn trân quý quá nhiều quá nhiều, coi như tồn tại tai hại, cũng muốn đợi đến Đại Thánh cảnh giới mới có thể hiển lộ ra.
-
-Đối với tuyệt đại đa số tu sĩ tới nói, mơ ước lớn nhất, chính là có thể đạt tới Đại Thánh cảnh giới, cho nên, căn bản sẽ không quan tâm nuốt Xá Lợi Tử tạo thành tiềm ẩn tai hại.
-
-"Hoa —— "
-
-Xá Lợi Tử lực lượng khổng lồ tại Trương Nhược Trần thể nội tán loạn, khiến cho Trương Nhược Trần tốc độ cuồng tăng, hắn một tay bắt lấy Hoàng Yên Trần, một tay bắt lấy Thanh Mặc, hóa thành một đạo màu vàng lưu quang, biến mất tại trong tầng mây.
-
-"Thật cường đại Phật Đạo khí tức, hẳn là bọn hắn cũng không phải là Đại Địa Thần Điện sai phái ra tới cao thủ, mà là đến từ Tây Vực Vạn Phật Đạo?"
-
-Chúc Khinh Y lại tiếp tục hướng về phía trước đuổi mấy trăm dặm, cuối cùng vẫn là không có đuổi kịp Trương Nhược Trần ba người, ngừng lại, rơi xuống đất.
-
-Trong đôi tròng mắt của nàng, đều là trầm lãnh sát khí, tự mình xuất thủ, vậy mà cũng không có lưu lại ba cái Nhân tộc Thánh Giả, một khi truyền đi, chỉ sợ trong Bất Tử Huyết tộc có không ít Thánh Giả đều sẽ chê cười nàng.
-
-Cũng không lâu lắm, hai vị Tử Thần kỵ sĩ đuổi theo, một trái một phải đứng sau lưng Chúc Khinh Y.
-
-Đứng ở bên trái Tử Thần kỵ sĩ nói: "Ba vị Nhân tộc Thánh Giả kia tu vi đến cùng đạt tới cảnh giới gì, làm sao ngay cả ngươi cũng lưu không được bọn hắn?"
-
-Chúc Khinh Y nói: "Vị Nhân tộc Tinh Thần Lực Thánh Giả kia, hẳn là nuốt một viên Xá Lợi Tử, trong nháy mắt, tinh thần lực đại bạo phát, cho nên mới sẽ thi triển ra mấy lần tốc độ. Tinh thần lực đại bạo phát, không có khả năng tiếp tục không ngừng, tốc độ của hắn chẳng mấy chốc sẽ khôi phục lại lúc đầu trình độ, lần nữa đuổi kịp hắn, chính là tử kỳ của hắn."
-
-Lập tức, Chúc Khinh Y cùng hai vị Tử Thần kỵ sĩ tìm lưu lại trong không khí khí tức, tiếp tục đuổi giết đi lên, càng thêm muốn chém giết Trương Nhược Trần ba người, cảm thấy ba người bọn họ đối với Bất Tử Huyết tộc uy hiếp rất lớn.
-
-"Hoa —— "
-
-Một đạo sáng tỏ đao quang, như là một vòng lãnh nguyệt , liên tiếp lấy bầu trời cùng đại địa, từ trong một ngọn núi thung lũng bay ra ngoài, chém về phía Chúc Khinh Y.
-
-Tại đao quang bay ra trong nháy mắt đó, toàn bộ thiên địa đều đang rung động, tựa như là từng đạo thiên địa quy tắc đều bị chém đứt đồng dạng.
-
-Chúc Khinh Y sắc mặt đột nhiên biến đổi, duỗi ra hai cái tuyết trắng ngọc thủ hướng nắm vào trong hư không một cái, lập tức, hai vị Tử Thần kỵ sĩ xuất hiện ở trong tay nàng, giống như hai mặt tấm chắn đồng dạng, hướng về phía trước ngăn cản.
-
-"Ầm ầm."
-
-Hai vị Tử Thần kỵ sĩ cùng Chúc Khinh Y đồng thời hướng về sau bay rớt ra ngoài, đụng xuyên một ngọn núi, rơi vào mặt đất, đem đại địa đều nện đến vỡ ra từng đạo rộng lớn vết nứt.
-
-Trong Thập Thánh Huyết Khải, hai vị Tử Thần kỵ sĩ đều bị đao khí chấn vỡ thành bùn máu, thánh cốt đều hóa thành bột mịn.
-
-Chúc Khinh Y cũng là mười phần thê thảm, thất khiếu chảy máu, hai tay vỡ nát, bị thương cực kỳ thảm trọng, làm sao cũng không có ngờ tới vậy mà lại gặp phải cao thủ khủng bố như thế.
-— QUẢNG CÁO —
-
-Vừa rồi người xuất đao, đến cùng là ai?
-
-Có thể đem đao pháp tu luyện tới trình độ như vậy Thánh Giả, toàn bộ Bắc Vực, cũng không cao hơn mười cái.
-
-"Chẳng lẽ là hắn?"
-
-Chúc Khinh Y trong đầu, hiện ra một cái tên, cái tên đó tại Bất Tử Huyết tộc trên « Tất Sát Danh Sách » , cũng là tương đương gần phía trước.
-
-Đúng lúc này, trong mi mắt của nàng, nhìn thấy một cái bóng người màu xám, trong tay dẫn theo một thanh thạch đao, từ trong bóng tối từng bước một đi ra.
-
-Thạch đao này mười phần thô ráp, tựa như là một khối thạch phiến, ai có thể nghĩ tới một thanh đao như vậy, lại có thể giết chết hai vị Tử Thần kỵ sĩ, trọng thương Chúc Khinh Y?
-
-Nhìn thấy chuôi này thạch đao, Chúc Khinh Y càng thêm xác định trong lòng phỏng đoán, hít sâu một hơi, đọc lên một cái tên: "Bắc Vũ Điền."
-
-"Ngươi có thể ngăn cản ta một đao mà không chết, coi là Bất Tử Huyết tộc đại nhân vật. Chém xuống đầu lâu của ngươi, hẳn là có thể từ Binh bộ đổi lấy đến không ít đỉnh cấp tài nguyên tu luyện." Bóng người màu xám kia thản nhiên nói.
-
-Chúc Khinh Y biết nam tử trước mắt này lợi hại, hôm nay căn bản không có khả năng trốn được, thế nhưng là, vẫn như cũ bảo trì trấn định , nói: "Giống như ngươi cao thủ, chỉ cần đầu nhập vào Thanh Thiên bộ tộc, ta có thể cam đoan với ngươi, ngươi có thể đạt được đếm mãi không hết tài nguyên tu luyện. Lấy một mình ngươi lực lượng, đi thu thập tài nguyên tu luyện, sẽ chỉ lãng phí bó lớn thời gian, tiếp tục như vậy, tu vi của ngươi khẳng định đuổi không kịp trên « Anh Hùng Phú » bốn người khác."
-
-Bóng người màu xám kia, chính là trên « Anh Hùng Phú » ngũ đại cao thủ một trong "Bắc Vũ Điền", cũng là trong năm người một Nhân tộc cao thủ duy nhất không có bối cảnh, không có chỗ dựa, bằng vào cố gắng của mình cùng sinh tử phấn đấu, không ngừng quật khởi đỉnh tiêm.
-
-"Ngươi là đang khuyên hàng ta sao?" Bùi Vũ Điền đạm mạc nói.
-
-"Không sai, ngươi cường giả như vậy, không nên bị mai một. Chỉ cần ngươi đầu nhập vào Bất Tử Huyết tộc, không lâu sau đó, ngươi tất nhiên sẽ vượt qua bốn người khác, trở thành trên « Anh Hùng Phú » đệ nhất cao thủ." Chúc Khinh Y nói.
-
-Bùi Vũ Điền khóe miệng có chút giương lên, trong tay thạch đao tản mát ra một đạo hàn khí, lập tức, một tầng Hàn Băng từ dưới chân của hắn, một mực hướng Chúc Khinh Y lan tràn đi qua.
-
-Mắt thấy Chúc Khinh Y liền bị hàn khí thôn phệ, trong hư không, một đạo dáng người thẳng tắp bóng người vọt ra, đi đến Chúc Khinh Y bên cạnh, từ trên người hắn xông ra một mảnh nồng đậm huyết vụ, ngăn cản được từ đối diện vọt tới hàn khí.
-
-Chúc Khinh Y nhìn thấy đứng trước người đạo nhân ảnh kia, rốt cục có chút thở dài một hơi , nói: "Đại sư huynh, ngươi cuối cùng đã tới!"
-
-. . .
-
-(mấy ngày nay có một ít sự tình, mỗi ngày một chương. Hôm qua không có càng, xế chiều hôm nay còn có một chương. Đại khái số 25 khôi phục đổi mới, đến lúc đó, tranh thủ có thể thoái thác tất cả việc vặt, toàn lực ứng phó gõ chữ. )
-
-Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
-Phong Lưu Chân Tiên Vô địch lưu đã full.
----------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1297
-
-Chương 1294: Tư Đồ Phượng Thành
-
-Đứng tại bên cạnh Chúc Khinh Y đạo nhân ảnh kia, tên là Tư Đồ Phượng Thành, là Trung Doanh Vương đại đệ tử, cũng là lần này tiến công Hồng Xuyên phủ Thanh Long bộ tộc đại quân phó thống soái, nắm giữ mấy trăm vạn đại quân, chính là một vị chân chính cự phách.
-
-Tư Đồ Phượng Thành thân cao gần hai mét, rộng thể rộng rãi, thân hình tráng kiện, ngũ quan góc cạnh mười phần rõ ràng, tựa như là dùng đao búa điêu khắc thành, toàn thân lộ ra một cỗ dương cương chi khí.
-
-Tư Đồ Phượng Thành thanh âm trầm hậu , nói: "Khinh Y, sư tôn vẫn luôn khen ngươi thông minh, không nghĩ tới ngươi cũng sẽ phạm sai lầm cấp thấp như vậy."
-
-"Sai lầm gì?"
-
-Chúc Khinh Y một lần nữa đứng dậy, một tầng thánh quang từ thể nội tuôn ra, lập tức, vết máu trên người toàn bộ đều biến mất không thấy, không còn lộ ra chật vật như vậy, lại khôi phục cường giả đỉnh cao ưu nhã khí chất.
-
-Tư Đồ Phượng Thành nói: "Bùi Vũ Điền nếu được xếp vào « Tất Sát Danh Sách », như vậy, cũng liền nói rõ, hắn không có khả năng đầu nhập vào Bất Tử Huyết tộc, ngươi tiếp tục chiêu hàng hắn có làm được cái gì?"
-
-"Đại sư huynh nói rất có đạo lý."
-
-Chúc Khinh Y trên mặt, lộ ra một đạo tà mị ý cười, lại nói: "Bất quá, cũng không phải là chẳng có tác dụng gì có, chí ít có thể lấy kéo dài thời gian , chờ đến ngươi tới cứu ta."
-
-Từ đầu đến cuối, Bùi Vũ Điền đều là bình tĩnh đứng ở một bên, khí thế trên người, dần dần trở nên lăng lệ, trong tay thạch đao cũng là hiện ra một chút đường vân cổ lão. Những đường vân kia, cùng Bắc Vực sơn hà địa lý đường vân, đúng là kinh người tương tự.
-
-Tư Đồ Phượng Thành hai tay chắp sau lưng, trên người áo giáp, tại dưới ánh trăng, phản xạ ra từng đạo ánh kim loại , nói: "Đông Vô Thiên, Tây Vô Pháp. Nam Tâm Thuật, Bắc Vũ Điền. Trung Vực Cửu Châu Vạn Triệu Ức. Đã sớm nghe nói năm người trên « Anh Hùng Phú » , chính là gần nhất trăm năm, Nhân tộc đản sinh mạnh nhất ngũ đại cao thủ, hôm nay gặp mặt, quả nhiên không để cho ta thất vọng, lấy ngươi tạo nghệ tại trên đao pháp, đủ để phong làm Bắc Vực Đao Thánh."
-
-"Tư Đồ Phượng Thành, ta cũng không chỉ một lần nghe qua tên của ngươi, ta đã giết 42 vị Huyết Thánh, hi vọng ngươi sẽ là vị thứ 43." Bùi Vũ Điền nói.
-
-Tư Đồ Phượng Thành lộ ra một đạo ý cười , nói: "Ngươi là một con mồi không tệ, đáng tiếc hôm nay, ta còn có chuyện khác muốn làm, không thể đánh với ngươi một trận."
-
-"Đó cũng không phải là ngươi nói tính, muốn đi, còn phải hỏi ta có đồng ý hay không." Bùi Vũ Điền nói.
-
-"Ta muốn đi, ngươi thật đúng là lưu không được ta."
-
-Tư Đồ Phượng Thành cười cười, ngón tay chỉ về phía trước, lập tức, ngón tay phương hướng truyền ra một đạo thanh âm điếc tai nhức óc, một đạo bóng người bao phủ tại trong 64 tầng huyết quang, chấn vỡ một tòa núi lớn, từ đại sơn nội bộ đi ra.
-
-Đó là một người nam tử trung niên, toàn thân tràn ngập huyết văn, cầm trong tay một thanh Thánh Kiếm, trên lưng còn đeo sáu chuôi Thánh Kiếm, toàn thân kiếm khí tung hoành, trực tiếp chính là hướng Bùi Vũ Điền công sát đi qua.
-
-"Ầm ầm."
-
-Kích thứ nhất va chạm, mảnh đại địa kia đều bị đao khí cùng kiếm khí xé nát, bầu trời tầng mây cũng bị đánh cho tán nứt, nơi đó biến thành tử địa , bất luận sinh linh gì xâm nhập đi vào, đều là một con đường chết.
-
-Tư Đồ Phượng Thành cùng Chúc Khinh Y, đã thối lui đến bên ngoài năm trăm dặm.
-
-Tư Đồ Phượng Thành con mắt co rụt lại, nhìn chằm chằm phiến địa vực bụi đất tung bay kia , nói: "Không hổ là Bắc Vũ Điền, quả nhiên là một cái nhân vật tương đương lợi hại, tu luyện cũng liền trăm năm, vậy mà đã cường đại như thế, nhất định phải mau chóng diệt trừ."
-
-Chúc Khinh Y cũng là hít vào một ngụm khí lạnh, tự hỏi coi như đem tất cả thủ đoạn toàn bộ đều thi triển đi ra, đoán chừng cũng ngăn không được Bùi Vũ Điền ba chiêu.
-— QUẢNG CÁO —
-
-Nàng hỏi: "Đại sư huynh, ngươi là từ đâu tìm đến vị Kiếm Đạo cường giả kia, vậy mà có thể cùng Bùi Vũ Điền phân cao thấp."
-
-"Đây chính là một vị Nhân tộc Kiếm Thánh." Tư Đồ Phượng Thành nói.
-
-"Kiếm Thánh?"
-
-Chúc Khinh Y tâm tình không thể bình tĩnh, cảm giác được kinh hãi.
-
-Phải biết, toàn bộ Bắc Vực, cũng chỉ có hai vị Nhân tộc Kiếm Thánh, đều là sống 500 năm trở lên lão quái vật, Thái Sơn Bắc Đẩu nhân vật , bất luận một vị nào xuất thủ, cũng đều nhất định là long trời lở đất.
-
-Tư Đồ Phượng Thành nói: "Người này, đã từng là Trấn Ngục Cổ tộc tộc trưởng Vương Bi Liệt, bị Huyết Đế đại nhân bắt, luyện thành Huyết Nô, hiện tại là tại vì Thanh Thiên bộ tộc làm việc. Lúc đầu coi là, bằng vào Vương Bi Liệt thực lực, đủ để chém giết Bùi Vũ Điền, lại không nghĩ rằng, Bùi Vũ Điền vậy mà cường đại đến tình trạng như thế."
-
-Chúc Khinh Y nói: "Bị luyện thành Huyết Nô đằng sau, Vương Bi Liệt ý thức khẳng định sẽ trên phạm vi lớn hạ thấp, căn bản không phát huy ra lúc đầu thực lực. Bằng không, Bùi Vũ Điền không có khả năng chống đỡ được hắn."
-
-Tư Đồ Phượng Thành không nhìn nữa lấy chiến trường kia, nhìn chằm chằm Chúc Khinh Y tấm kia tuyệt sắc dung nhan , nói: "Sư tôn điều động ngươi đến Hồng Xuyên phủ, hẳn là có nhiệm vụ bí mật a?"
-
-"Đích thật là có một cái trọng yếu nhiệm vụ. Từ trong quân doanh ngươi, cho ta chọn mấy Thánh cảnh cao thủ lợi hại, ta hiện tại liền muốn chạy tới." Chúc Khinh Y nói.
-
-. . .
-
-Trương Nhược Trần mang theo Hoàng Yên Trần cùng Thanh Mặc, bộc phát ra tật tốc, chạy trốn tới bên ngoài mấy vạn dặm.
-
-Thời gian dần trôi qua, Xá Lợi Tử lực lượng trở nên nhẹ nhàng, Trương Nhược Trần tốc độ cũng là dần dần khôi phục bình thường. Ba người không có ngừng, tiếp tục điên cuồng đi đường, đồng thời xóa đi lưu lại khí tức, để tránh Bất Tử Huyết tộc cường giả lần nữa truy sát đi lên.
-
-Hồng Xuyên phủ quả nhiên là chiến hỏa ngập trời, Trương Nhược Trần ba người trải qua địa phương, khắp nơi đều là đất khô cằn, rất khó coi đến người sống.
-
-Có tiểu trấn bị một đạo công kích đánh cho chìm vào lòng đất, biến thành một cái hố trời; có thành trì bị đánh đến rách tung toé, chất đầy bị hút khô máu tươi tử thi. Từng tòa sơn dã, đều bị máu tươi nhuộm đỏ, từng đầu dòng sông đều là nổi lơ lửng thi hài, tản mát ra hôi thối.
-
-Quá khốc liệt, không giống như là nhân gian, giống như là một tòa thế giới tử vong.
-
-Tiếp tục hướng phía trước đi, Trương Nhược Trần ba người gặp một chút Bất Tử Huyết tộc cỗ nhỏ quân đội, một đường giết tới, rốt cục đến một tòa Nhân tộc thành quan còn không có bị công phá.
-
-Tòa thành quan này, mười phần to lớn, tường thành cao tới trăm trượng, nguy nga đại khí, xa xa nhìn lại, giống như một đầu dãy núi màu đen nằm ngang ở trên đường chân trời.
-
-"Chỉ Lâm quan, là Hồng Xuyên phủ cảnh nội cuối cùng một đạo cửa ải lớn, cũng là triều đình nhân mã cùng Bất Tử Huyết tộc chém giết đến kịch liệt nhất địa phương. Một khi Chỉ Lâm quan bị công phá, toàn bộ Hồng Xuyên phủ đều sẽ luân hãm. Chúng ta muốn hay không tiến vào Chỉ Lâm quan tìm hiểu tin tức?" Hoàng Yên Trần nói.
-
-Trương Nhược Trần lắc đầu , nói: "Tốt nhất đừng kinh động triều đình cường giả, miễn cho hai mặt thụ địch, chúng ta từ phòng tuyến yếu kém vị trí đi vòng qua, trực tiếp đi Hắc Phong quận."
-
-Chỉ Lâm quan khoảng cách Hắc Phong quận đã không xa, đã nhanh muốn đạt tới mục đích.
-
-Triều đình thiết trí phòng tuyến, cũng không phải là mỗi một chỗ đều không có chút nào lỗ thủng, lấy Trương Nhược Trần ba người tu vi, tự nhiên là dễ dàng tựu xuyên toa đi qua, hướng Hắc Phong quận xuất phát.
-
-Sau đó mấy ngày, Trương Nhược Trần vẫn luôn đang hấp thu Xá Lợi Tử phát ra tinh thần lực, cường độ tinh thần lực tăng lên cực nhanh, đã đạt tới cấp 52 đỉnh phong.
-
-"Dựa theo tốc độ như vậy, hẳn là không cần mấy ngày, liền có thể đạt tới cấp 53."
-
-Hiện tại, Trương Nhược Trần căn bản không lo được cái khác, chỉ muốn toàn lực ứng phó tăng lên chiến lực của mình, miễn cho lần nữa gặp được Chúc Khinh Y thời điểm, bị đánh đến không hề có lực hoàn thủ.
-
-Chỉ có thể sau này lại nghĩ biện pháp hóa giải nuốt Xá Lợi Tử mang tới tai hại.
-
-"Chỉ sử dụng tinh thần lực, có thể hay không thi triển ra lực lượng không gian?"
-
-Trương Nhược Trần lớn nhất át chủ bài, chính là thời gian lực lượng cùng lực lượng không gian. Nếu là còn nắm giữ lấy hai loại lực lượng kia, gặp được Chúc Khinh Y, như thế nào lại trốn được chật vật như vậy?
-
-Thế nhưng là, hai loại lực lượng, cần thánh khí gia trì, mới có thể thi triển đi ra.
-
-Hiện tại, Trương Nhược Trần thể nội, chỉ có tinh thần lực tạo dựng ra tới huyết mạch, không có kinh mạch cùng Thánh Mạch, căn bản là không có cách điều động thánh khí.
-
-Trương Nhược Trần rất không cam tâm, thầm nghĩ: "Tinh thần lực có thể điều động thiên địa linh khí, có thiên địa linh khí gia trì, chưa hẳn không thể thi triển ra lực lượng không gian."
-
-"Vết nứt không gian."
-
-Trương Nhược Trần lấy tinh thần lực làm cơ sở, điều động thiên địa linh khí làm môi giới, giơ cánh tay lên, hướng về phía trước một chém.
-
-Không gian cũng không có xé toạc ra, chỉ là nhẹ nhàng chấn động một cái.
-
-Nhưng mà, liền nhẹ nhàng run rẩy này, lại làm cho Trương Nhược Trần trong lòng vui mừng, "Có hi vọng."
-
-Sau đó, Trương Nhược Trần lấy ra « Thời Không Bí Điển », bắt đầu nghiêm túc nghiên cứu Không Gian Chi Đạo.
-
-Trước khi thành thánh, Trương Nhược Trần vẫn luôn đang toàn lực ứng phó tu luyện chưởng pháp cùng kiếm pháp, cho tới bây giờ, mới xem như chân chính ổn định lại tâm thần nghiên cứu cùng tu luyện không gian.
-
-"Không gian, vô giới mà vĩnh tại."
-
-"Cái gọi là vô giới, chỉ là trong không gian bất luận một chút gì, đều là tùy ý phương vị điểm xuất phát."
-
-"Cái gọi là vĩnh tại, chỉ là không gian vĩnh viễn xuất hiện tại trước mắt thời khắc."
-
-. . .
-
-Không gian ẩn chứa tri thức tương đương huyền diệu, bác đại tinh thâm, Trương Nhược Trần cũng là thành thánh đằng sau, mới dám cẩn thận nghiên cứu. Trước đó, nghiên cứu quá sâu, ngược lại không có cái gì chỗ tốt.
-— QUẢNG CÁO —
-
-
-Về phần lực lượng thời gian, Trương Nhược Trần đến bây giờ cũng còn không dám tùy tiện đi đụng vào, vạn nhất lâm vào trong thời gian hư ảo, cả người đều sẽ sụp đổ.
-
-Trương Nhược Trần ánh mắt, chăm chú vào trong đó một tờ, phía trên trình bày chính là, không gian thủ đoạn trong đó một chiêu —— không gian vặn vẹo.
-
-Trước kia, Trương Nhược Trần cũng tu luyện qua không gian vặn vẹo, thế nhưng là đối với một chiêu này lý giải, dừng lại tại cấp độ tương đương nông cạn, gặp được chân chính đỉnh tiêm cao thủ, cũng liền mất đi tác dụng, đối phương tùy ý đánh ra một chiêu, liền có thể xuyên thấu vặn vẹo không gian.
-
-Cẩn thận nghiên cứu một chiêu này, Trương Nhược Trần mới phát hiện không gian vặn vẹo lực lượng nhưng thật ra là tương đương lợi hại, vô cùng sung mãn biến số, không chỉ có thể dùng để hóa giải công kích của địch nhân, còn có thể để công kích chuyển biến đến nhận chức ý phương hướng, dùng để phản kích địch nhân.
-
-Trừ cái đó ra, không gian vặn vẹo còn có thể dùng để cải biến dãy núi xu thế, sông lớn hướng chảy, phá giải trận pháp, thậm chí là bố trí không gian mê trận.
-
-Chỉ cần là trong không gian vật chất, chính là không cách nào đào thoát không gian vặn vẹo công kích.
-
-"Trước đem hai bên không gian vặn vẹo, lại liên tiếp, cố định cùng một chỗ, mới thật sự là không gian vặn vẹo. Ta trước kia tu luyện không gian vặn vẹo, vẻn vẹn chỉ là bóp méo hai bên không gian, cũng không có đưa chúng nó liên tiếp, cho nên, cũng không phải là ổn định như vậy, uy lực cũng liền có hạn."
-
-Tìm hiểu thấu đáo nguyên nhân căn bản, Trương Nhược Trần lần nữa bắt đầu tu luyện không gian vặn vẹo.
-
-Trương Nhược Trần hai tay cùng lúc nâng lên, phóng xuất ra tinh thần lực, lấy thiên địa linh khí, cải biến Không Gian quy tắc, khiến cho hai bên trái phải không gian đều trở nên vặn vẹo.
-
-"Kết nối."
-
-Trương Nhược Trần đọc lên một tiếng, lập tức, hai tay hướng ở giữa kết hợp, hai bên vặn vẹo không gian lập tức liên tiếp.
+"Chỉ có đánh vỡ hộ cung cổ trận, mới có thể đánh hạ Lăng Tiêu Thiên Vương Phủ. Hộ Long các ở nơi nào, còn không xuất thủ?" Trương Nhược Trần hét lớn một tiếng.
 
 "Soạt —— "
 
-Khung xe con đường phía trước, vốn là có mười mấy mét rộng, thế nhưng là, không khí vặn vẹo đằng sau, trong nháy mắt, con đường biến mất, khép kín cùng một chỗ.
+Từng đạo sáng tỏ bạch quang, từ trong màn đêm bay ra.
 
-Hai bên đường cổ thụ che trời, cũng đều mãnh liệt va chạm, trong đó một ít cây làm cùng nhánh cây vậy mà trùng điệp cùng một chỗ, có từng mảnh từng mảnh lá cây rớt xuống.
+Trong bạch quang bóng người, toàn bộ đều người mặc bạch bào, mang theo Tinh Không Mặt Nạ.
 
-Liền ngay cả không gian kết cấu đều bị mãi mãi cải biến.
+"Chúc Thiên Chỉ."
 
-"Đường không thấy!"
+Phó các chủ hai tay tiếp ra chỉ ấn, sau đó, ngón tay hướng về phía trước một chút, đánh ra một đạo thánh thuật.
 
-Ngay tại lái xe Thanh Mặc bị giật nảy mình, vội vàng khống chế lại kéo xe Man thú, ngừng lại.
+Thánh thuật cũng chia đê giai thánh thuật, trung giai thánh thuật, cao giai thánh thuật.
 
-Hoàng Yên Trần lại là không có một tia kinh ngạc, ngược lại, đôi môi đỏ thắm có chút nhất câu, lộ ra một đạo dáng tươi cười ý vị thâm trường mỹ lệ, tự lẩm bẩm: "Quả nhiên là bị áp bách đến càng hung ác, mới có thể trở nên càng là cường đại, tiềm lực của hắn vô cùng vô tận."
+Chúc Thiên Chỉ đã là tiến vào cao giai thánh thuật phạm trù, bạo phát đi ra uy lực, không phải Thánh Giả tu luyện đê giai thánh thuật có thể so sánh với.
+
+Chúc Thiên Chỉ Thánh Đạo lực lượng rơi vào trên hộ cung cổ trận, chừng mấy trăm vạn đạo hào quang đồng thời rơi xuống dưới, giống như Thần Linh xuất thủ một dạng, hình ảnh vô cùng kinh khủng, bao trùm toàn bộ Lăng Tiêu Thiên Vương Phủ, chấn nhiếp vô số triều đình quân sĩ nằm trên đất.
+
+Hộ cung cổ trận bị cỗ Thánh Đạo lực lượng kia, thiêu đến biến thành xích hồng sắc.
+
+Chúc Thiên Chỉ bộ phận lực lượng, thông qua trận pháp lồng phòng ngự, truyền đến Lăng Tiêu Thiên Vương Phủ nội bộ, khiến cho từng tòa hoa lệ cung điện sụp đổ mà ra, từng tòa sơn nhạc sụp đổ, rất như là một đạo diệt thế lực lượng.
+
+"Trời ạ. . . Đây là lực lượng gì, đến cùng là nhân vật đáng sợ cỡ nào giá lâm?"
+
+"Cao giai thánh thuật, tuyệt đối là cao giai thánh thuật, chẳng lẽ trong Thánh Minh nghịch tặc, lại có một vị Thánh Vương đỉnh phong cấp bậc nhân vật?"
+
+. . .
+
+Chí ít đều cần Thánh Vương đỉnh phong tu vi, mới có đầy đủ hùng hậu thánh khí, thi triển ra cao giai thánh thuật.
+
+Phàm là có thể đạt tới Thánh Vương đỉnh phong nhân vật, cái nào không phải uy chấn thiên hạ tồn tại? Nhân vật như vậy xuất hiện, ai có thể không sợ hãi?
+
+tRONG Lăng Tiêu Thiên Vương Phủ những vương tôn quý tộc kia, không còn có trước mấy ngày phách lối khí diễm, thật sự là bị Chúc Thiên Chỉ lực lượng, dọa đến linh hồn đều muốn xuất khiếu.
+
+Ngay tại phó cung chủ đánh ra Chúc Thiên Chỉ về sau, ngay sau đó, hơn mười vị Hộ Long các thành viên, riêng phần mình đánh ra một kiện Thánh Khí, hướng hộ cung đại trận công kích đến đi.
+
+Hơn 30 kiện Thánh Khí, yếu nhất một kiện cũng là có được 6000 đạo Minh Văn Thiên Văn Thánh Khí, trừ cái đó ra, còn có ba kiện Vạn Văn Thánh Khí.
+
+Lợi hại như vậy Thánh Khí , bất kỳ cái gì một kiện đều có thể chế tạo to lớn lực phá hoại, đủ để hủy một thành, diệt một lĩnh.
+
+Mấy chục kiện Thánh Khí đồng thời hạ xuống, Thiên Văn Hủy Diệt Kình cùng Vạn Văn Hủy Diệt Kình đan vào một chỗ, đúng là đem hộ cung cổ trận vỡ ra một góc.
+
+"Bành."
+
+Lăng Tiêu Thiên Vương Phủ tám môn một trong Nhật Nguyệt môn, cao mấy chục trượng cửa thành, trong nháy mắt, hòa tan thành nước thép.
+
+800 năm trước trận chiến kia, hộ cung cổ trận liền bị tổn hại, mặc dù, triều đình tiến hành chữa trị, nhưng là từ đầu đến cuối so ra kém trước kia uy lực.
+
+Đúng là như thế, tại dưới Hộ Long cung các toàn lực công phạt, chỉ là ngắn ngủi thời gian mấy hơi thở, liền đem hộ cung cổ trận đánh nát một góc.
+
+"Hộ Long các quả nhiên thật tồn tại, thật sự là quá tốt!"
+— QUẢNG CÁO —
+
+Minh Giang Vương trong mắt, lộ ra lửa nóng quang mang, trên thân chiến ý sôi trào, giơ lên Thập Long Đao, một ngựa đi đầu xông vào trong Nhật Nguyệt môn.
+
+Cùng lúc đó, phó các chủ truyền ra một đạo tinh thần lực, tiến vào Trương Nhược Trần hai lỗ tai: "Ta đi đối phó Lăng Tiêu Thiên Vương."
+
+Sau đó, phó các chủ hóa thành một đạo quang toa, cũng xông vào tiến Nhật Nguyệt môn.
+
+Một lát sau, Lăng Tiêu Thiên Vương Phủ chỗ sâu bộc phát Thánh Vương cấp bậc đại chiến, từng đạo thánh thuật phát ra quang mang, khiến cho đêm tối đều biến thành ban ngày.
+
+"Nhật Nguyệt môn bị công phá, cùng một chỗ giết đi vào, vì chết đi thân nhân cùng bằng hữu báo thù, vì Thánh Minh mà chiến, rửa sạch 800 năm trước sỉ nhục."
+
+Trương Nhược Trần một tay nắm lấy Thánh Minh chiến kỳ, một tay dẫn theo Trầm Uyên cổ kiếm, giống như một chi mũi tên, bằng tốc độ nhanh nhất đẩy về phía trước tiến, chỉ một thoáng, máu tươi bay đầy trời, giết tới phát cuồng, phảng phất là muốn đem những năm này tích lũy cừu hận toàn bộ đều phát tiết đi ra.
+
+Huyết Nguyệt Quỷ Vương, A Nhạc, Ma Viên, Thôn Thiên Ma Long theo sát sau lưng Trương Nhược Trần, sẽ từ trái, phải, về sau, bên trên bốn phương tám hướng vọt tới triều đình tu sĩ, toàn bộ đều đánh nát thành từng đám từng đám huyết vụ.
+
+"Ngươi chính là vị kia Thánh Minh hoàng thái tử, lão phu tới lấy tính mệnh của ngươi."
+
+Một vị tu vi đạt tới Chân Thánh cảnh giới lão giả, từ trong Lăng Tiêu Thiên Vương Phủ đi ra, bàn chân hướng phía dưới giẫm mạnh, lập tức một cỗ trời đất sụp đổ lực lượng quét sạch ra ngoài, đem Trương Nhược Trần kéo vào tiến hắn vòng chiến.
+
+Bởi vì Nữ Hoàng không có hậu nhân, Lăng Tiêu Thiên Vương Phủ chính là Đệ Nhất Trung Ương đế quốc Hoàng tộc cường đại nhất một chi, nội tình tự nhiên là khá kinh người, có rất nhiều lợi hại tu sĩ Nhân tộc, đều nguyện ý đầu nhập vào Lăng Tiêu Thiên Vương Phủ.
+
+Vị lão giả này, chính là một trong số đó.
+
+Hắn đã tu luyện hơn năm trăm năm, là một vị có thể so với Trung Cổ thế gia Thánh Chủ nhân vật.
+
+"Chỉ bằng ngươi, còn chưa xứng, đi chết đi."
+
+Thời khắc này Trương Nhược Trần chiến ý sôi trào, đồng thời phóng xuất ra Thời Gian lĩnh vực, Không Gian lĩnh vực, Kiếm Đạo lĩnh vực, tam đại lĩnh vực ngược lại đem vị kia Chân Thánh cảnh giới lão giả lôi kéo đi qua.
+
+"Ầm ầm."
+
+Trương Nhược Trần đem thánh khí toàn bộ quán chú tiến Trầm Uyên cổ kiếm, điều động Kiếm Thất kiếm ý, điên cuồng phách trảm xuống dưới, liên tiếp bổ ra hơn 30 kiếm, đánh cho vị lão giả kia không ngừng lùi lại, miệng phun máu tươi.
+
+Cuối cùng, Trương Nhược Trần một kiếm chém nát hắn Thánh Nguyên cùng khí hải, đem hắn chém giết
+
+Ửng đỏ Chân Thánh huyết dịch, nhuộm đỏ Trương Nhược Trần tóc cùng áo bào.
+
+"Giết!"
+
+Trương Nhược Trần hét lớn một tiếng, sử dụng chiến kỳ, bốc lên vị kia Chân Thánh thi thể, huy động chiến kiếm, tiếp tục hướng phía trước đánh tới, trên người có một cỗ quân lâm thiên hạ bá đạo khí thế.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
 
 Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
 Phong Lưu Chân Tiên Vô địch lưu đã full.
 ---------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1298
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1389
 
-Chương 1295: Tiên Cơ sơn
+Chương 1386: Đại chiến thảm liệt
 
-Trương Nhược Trần từ trong chiến xa đi tới, hai tay hướng trong hư không một trảo, không gian kết cấu lần nữa vặn vẹo, con đường nguyên bản khép kín, lại lần nữa mở ra, khôi phục như cũ bộ dáng.
+"Vì thái tử mà chiến, thái tử vạn tuế! Thái tử vạn tuế!"
 
-Thanh Mặc nhìn trợn mắt hốc mồm, tu sĩ khác, coi như tu vi lại cao hơn, cũng rất khó có được thủ đoạn như thế , nói: "Trương công tử, đây chính là lực lượng không gian sao?"
+"Nén giận mấy trăm năm, là thời điểm sử dụng Trì gia máu tươi, tắm rửa trên người chúng ta sỉ nhục, chiến, dù chết không hối hận."
 
-Trương Nhược Trần nhẹ gật đầu , nói: "Lực lượng không gian ảo diệu vô tận, cho dù chỉ là một chiêu không gian vặn vẹo, cũng còn cần ta tốn hao thời gian rất lâu đi nghiên cứu."
+Càng ngày càng nhiều Thánh Minh bộ hạ cũ, từ trong Thánh Minh thành bốn phương tám hướng hội tụ tới, rất nhanh liền vượt qua trăm vạn chi chúng, khí thế như hồng, tiếng hô 'Giết' rung trời, theo sát lấy "Thánh Minh" chiến kỳ, cùng năm chi triều đình đại quân bộc phát ra chiến đấu kịch liệt.
 
-Hiện tại, Trương Nhược Trần cũng chỉ là sơ bộ khống chế không gian vặn vẹo, thế nhưng là tại trên đường Không Gian Chi Đạo lại là phóng ra một bước dài, xem như đã nhập môn.
+Hộ Long các sau khi xuất hiện, lấy cường thế thủ đoạn, công phá Nhật Nguyệt môn, lập tức, Thánh Minh bộ hạ cũ sĩ khí cao, đánh cho mảnh đại địa này đều tại từng tấc từng tấc sụp đổ.
 
-Ba người bọn họ tiếp tục tiến lên, đang lúc hoàng hôn thời điểm, rốt cục tiến vào Hắc Phong quận lãnh địa, đi vào mây mù lượn lờ Tiên Cơ sơn.
+Trong Thánh Minh thành, những tu sĩ không có tham chiến kia, cũng đều động dung, cảm giác được kinh hãi.
 
-Căn cứ Tửu Phong Tử nói, vị Đan Đạo Thánh Sư kia, chính là ẩn cư ở trong Tiên Cơ sơn.
+"Hộ Long các, trong truyền thuyết Hộ Long các, lại có Thánh Vương đỉnh phong đáng sợ cường giả, hôm nay, Lăng Tiêu Thiên Vương sợ là gặp đối thủ."
 
-Tiên Cơ sơn, là Bắc Vực danh sơn một trong, ở Trung Cổ thời kì, là một cái nhất lưu tông môn đạo tràng, có đến ngàn vạn tu sĩ trong này tu luyện, linh khí dồi dào, tài nguyên phong phú, tuyệt đối là một chỗ thánh địa.
+"Chẳng lẽ Trương Nhược Trần hôm nay thật muốn quật khởi, đánh hạ Thánh Minh thành, xây lại Thánh Minh Trung Ương đế quốc?"
 
-Đứng dưới chân núi, nhìn lên trên, dãy núi liên miên chập trùng, chừng mấy trăm ngọn núi giấu ở đằng sau mây mù, ngẫu nhiên còn có tiếng gào thét của man thú từ trong mây mù truyền ra, cho người ta một loại cảm giác mờ mịt mà thần bí.
+. . .
 
-"Hiện tại, chiếm cứ tại Tiên Cơ sơn chính là thế lực nào?" Trương Nhược Trần hỏi thăm Hoàng Yên Trần.
+Có người muốn đem tin tức truyền đi, thế nhưng là, lại phát hiện Thánh Minh thành đều bị một cỗ lực lượng kỳ dị bao phủ , bất kỳ cái gì tin tức đều không thể truyền đi.
 
-Trước đây không lâu, nàng đi tìm hiểu qua tin tức, hẳn là đối với Tiên Cơ sơn sẽ có hiểu một chút.
+Thánh Minh thành trên không, xuất hiện 12 khỏa xa lạ tinh thần.
 
-Hoàng Yên Trần trầm tư một lát , nói: "Tiên Cơ sơn, ở Trung Cổ thời kì, là Bắc Vực đệ nhất tông môn Tiên Cơ tông đạo tràng. Tiên Cơ tông là ở trong Trung Cổ thời kì cuối náo động lớn hủy diệt, náo động lớn kết thúc về sau, cũng có một chút thế lực muốn leo lên Tiên Cơ sơn, chiếm cứ tòa tu luyện thánh địa này. Đáng tiếc, bọn hắn toàn bộ đều thất bại, ngược lại tổn thất nặng nề."
+Những ngôi sao này, hiện lên hình khuyên sắp xếp, vừa vặn đem phương viên mấy vạn dặm thành trì bao quát tại nội bộ.
 
-"Đám người biết rõ Tiên Cơ sơn có vô số trân bảo từ Trung Cổ thời kì để lại, thậm chí là thánh dược cùng một chút trọng yếu truyền thừa, thế nhưng là, cho đến ngày nay, cũng không có bất kỳ một thế lực nào có thể chiếm cứ nơi này."
+Đó là 12 khỏa Phật Đế luyện chế Phật châu, Trương Nhược Trần đưa chúng nó giao cho phó các chủ, do phó các chủ lấy cường đại Thánh Đạo tu vi tự mình khống chế, có thể phong bế toàn bộ Thánh Minh thành.
 
-Trương Nhược Trần cảm giác kinh ngạc, một tòa tu luyện thánh địa như vậy, thế mà không cách nào chiếm cứ, vậy đến có một cỗ sức mạnh đáng sợ cỡ nào giấu ở trong núi, mới có thể để cho kẻ trước ngã xuống, kẻ sau tiến lên chinh chiến nơi đây thế lực toàn bộ đều thất bại tan tác mà quay trở về?
+Lăng Tiêu Thiên Vương Phủ bốn phương tám hướng, đại chiến tiến vào gay cấn, đúng là có vượt qua 200 vị Thánh Giả đang chém giết lẫn nhau, có thể nói là chân chính tuyệt thế Thánh chiến, đổi lại là tại không có phòng ngự trận văn ngoài thành, đã sớm đánh cho thiên băng địa liệt, vạn dặm đất nung.
 
-"Trong Tiên Cơ sơn, đến cùng là có hung hiểm dạng gì?" Trương Nhược Trần hỏi.
+Triều đình có thể nói là cao thủ nhiều như mây, quan phủ, Binh bộ, Lăng Tiêu Thiên Vương Phủ Chư Thánh toàn bộ đều xuất thủ, tại Thánh Giả về số lượng chiếm cứ ưu thế rất lớn.
 
-Hoàng Yên Trần một đôi mắt đẹp, nhìn chăm chú về phía Trương Nhược Trần, trước nay chưa có ngưng trọng , nói: "Tại Bắc Vực, lưu truyền một thì truyền ngôn, nghe nói, Trung Cổ thời kì cuối thời điểm, Tiên Cơ tông là bị vực ngoại một thế lực tiêu diệt."
+Thế nhưng là, Thánh Minh một phương, lại có một nhóm lớn Chân Thánh cùng Chí Thánh, mỗi một cái đều là quét ngang một phương cường giả.
 
-"Tại hủy diệt trước đó, Tiên Cơ tông vận dụng một loại cấm kỵ thủ đoạn, đem cỗ vực ngoại thế lực cường giả kia toàn bộ đều vây chết ở trong Tiên Cơ sơn. Những thế lực muốn chiếm cứ Tiên Cơ sơn kia, toàn bộ đều gặp phải quỷ dị khó lường công kích, hư hư thực thực là vực ngoại cường giả lưu lại thủ đoạn."
+Bạch Lê công chúa là Thái Cổ di chủng, lại kinh lịch khai thiên tích địa tẩy lễ, cầm trong tay Âm Không Tháp, cùng bị trọng thương Xích Long quân chủ đánh cho long trời lở đất.
 
-Thì truyền ngôn này, ngược lại là thật để Trương Nhược Trần có chút giật mình , nói: "Vực ngoại thế lực, có thể tiêu diệt Côn Lôn Giới một cái tông môn đỉnh tiêm? Cho dù là thượng đẳng Khư Giới, chỉnh hợp một giới lực lượng, chỉ sợ cũng không có thực lực như vậy."
+Xích Long quân chủ năng đủ ngăn trở Bạch Tô bà bà công kích, không có chết đi, tu vi tự nhiên là vô cùng thâm hậu.
+
+"Đi theo Trương Nhược Trần sẽ chỉ là một con đường chết, không bằng quy thuận bản quân chủ, làm bản quân chủ tọa kỵ?" Xích Long quân chủ lạnh rống một tiếng.
+
+"Dám đối bản công chúa nói ra lời như vậy, hôm nay, nhất định để cho ngươi chết không toàn thây."
+
+Bạch Lê công chúa trong hai con ngươi, toát ra khiếp người hàn quang, toàn lực ứng phó đem thánh khí rót vào tiến Âm Không Tháp, lập tức, 72 đạo cửa tháp toàn bộ mở ra.
+
+Âm Không Tháp một bên xoay tròn, một bên bay lên, hóa thành một tòa kim loại sơn phong, trấn áp đến Xích Long quân chủ đỉnh đầu.
+
+Âm Không Tháp tại « Thiên Văn Thánh Khí Phổ » xếp hạng thứ hai, đủ để cùng một chút yếu kém Vạn Văn Thánh Khí chống lại.
 — QUẢNG CÁO —
 
 
-Thanh Long Khư Giới đã là thượng đẳng Khư Giới, tương đương huy hoàng cường thịnh, thế nhưng là cùng Côn Lôn Giới tông môn đỉnh tiêm, hay là không có cách nào đánh đồng.
+"Bành."
 
-Hoàng Yên Trần trầm mặc một lát, lại nói: "Cũng không phải là thượng đẳng Khư Giới, nghe nói, đó là một tòa đại thế giới có thể cùng Côn Lôn Giới đánh đồng, thậm chí so Côn Lôn Giới còn cường đại hơn. Trung Cổ thời kỳ náo động lớn, rất có thể, liền cùng Đại Thế giới kia có quan hệ."
+Xích Long quân chủ không có thể ngăn ở Âm Không Tháp, thánh khu chia năm xẻ bảy. Trên người hắn huyết nhục vỡ nát, chỉ còn từng cây óng ánh sáng long lanh thánh cốt, chết đến mức không thể chết thêm.
 
-Trương Nhược Trần vẫn như cũ giữ vững bình tĩnh, thế nhưng là, trong lòng hay là sinh ra gợn sóng không nhỏ , nói: "Đại sự như thế, trên lịch sử văn hiến không có khả năng không có ghi chép. Coi như thật có một tòa đại thế giới cùng Côn Lôn Giới một dạng cường đại, chỉ sợ cũng tại vũ trụ chỗ sâu, căn bản không có khả năng quy mô lớn đến Côn Lôn Giới."
+Cưỡng ép vận dụng Âm Không Tháp nửa viên mãn lực lượng, Bạch Lê công chúa đánh ra một kích này về sau, thể nội thánh khí tiêu hao hơn phân nửa, sắc mặt trở nên tái nhợt, tiến vào suy yếu kỳ.
 
-Hoàng Yên Trần lộ ra một đạo cười yếu ớt , nói: "Cũng chỉ là truyền ngôn mà thôi, chỗ nào có thể hoàn toàn coi là thật. Thậm chí còn có truyền ngôn, trong Tiên Cơ sơn có một tôn Ma Thần không hề chết hết, cái này cũng có thể làm thật?"
+"Trong truyền thuyết, chỉ có Thánh Vương còn có thể tùy tâm sở dục dẫn động Vạn Văn Thánh Khí viên mãn lực lượng, quả nhiên không giả. Âm Không Tháp chỉ là có thể so với Vạn Văn Thánh Khí, ta cũng chỉ là dẫn động nửa viên mãn lực lượng, đánh ra một kích về sau, lại có chút không cách nào chèo chống."
 
-Liên quan tới Tiên Cơ sơn truyền ngôn rất nhiều, trong đó một chút truyền ngôn, cho dù là Thánh Giả nghe được, trong lòng cũng sẽ nhấc lên thao thiên cự lãng.
+Bạch Lê công chúa vội vàng ăn vào một viên khôi phục thánh khí đan dược, sau đó, lại giết hướng Nhật Nguyệt môn phương hướng, theo sát tại Thánh Minh chiến kỳ hậu phương.
 
-Vô luận những truyền ngôn kia là có hay không thực, chí ít có một chút có thể khẳng định, nơi đây tương đương hung hiểm, tuyệt đối không phải tiên sơn thánh địa gì.
+Đương nhiên, nàng là không còn dám vận dụng Âm Không Tháp nửa viên mãn lực lượng, chỉ là kích hoạt lên trong tháp 3000 đạo Minh Văn, tiếp tục chiến đấu cùng công phạt.
 
-"Vị Đan Đạo Thánh Sư kia, làm sao lại ẩn cư ở nơi như thế này? Thật sự là kỳ quái." Thanh Mặc nói ra.
+"Quân chủ đại nhân chết trận!"
 
-Trương Nhược Trần trong lòng cũng tràn ngập nghi vấn, bất quá, hắn đối với Tửu Phong Tử vẫn có chút tín nhiệm, hẳn là sẽ không nói ra một cái Tử Vong Tuyệt Địa đến hố hắn.
+"Xích Long quân chủ bị Thánh Minh nghịch tặc giết chết, một vị trong quân truyền kỳ vậy mà ngã xuống, biến thành bạch cốt."
 
-Bỗng dưng, Trương Nhược Trần có chỗ phát giác, cảm ứng được một cỗ cường đại thánh khí ba động , nói: "Có tuyệt đỉnh cao thủ chính hướng Tiên Cơ sơn chạy đến."
+Xích Long quân chủ chiến tử, khiến cho triều đình đại quân một mảnh bối rối, toàn bộ đều cảm giác được sợ hãi.
 
-Trương Nhược Trần, Hoàng Yên Trần, Thanh Mặc thân hình lóe lên, xông vào tiến Tiên Cơ sơn, giấu đến một trong đám mây mù.
+Thương Long quân quân chủ trạm đi ra, ổn định quân tâm, hét lớn một tiếng: "Khởi động Bán Thánh cấp chiến hạm cùng Luyện Khí chiến sĩ, tiêu diệt Thánh Minh nghịch tặc."
 
-Ngay sau đó, Trương Nhược Trần trên cổ tay 12 khỏa màu trắng Phật châu, hiện ra ánh sáng màu trắng, đem bọn hắn ba người hoàn toàn bao vây lại.
+Từ trong Thánh Minh thành các đại thành vực, đều là bay lên từng chiếc từng chiếc chiến hạm.
 
-12 khỏa Phật châu, chính là Phật Đế luyện chế ra tới bảo vật, có thể che giấu trên người bọn họ khí tức.
+Chiến hạm, do Huyền Thiết rèn đúc, có từng tòa trận pháp cường đại quay chung quanh chiến hạm chuyển động, trên mặt đất hình chiếu ra từng cái to lớn bóng ma.
 
-Một lát sau, một mảnh xích hồng sắc ráng mây, từ phía trên bên cạnh bay tới, từ trên trời giáng xuống, rơi xuống Tiên Cơ sơn dưới núi.
+Đó là trong quân cấm khí "Bán Thánh cấp chiến hạm", không chỉ có rất mạnh phòng ngự, mà lại, có thể oanh sát Bán Thánh.
 
-Trong ráng mây, đi ra 12 vị quân sĩ người mặc chiến giáp màu trắng, tất cả đều là nữ tử trẻ đẹp, cũng không phải là bình hoa, từ trên thân các nàng phát ra Thánh Đạo khí tức đều là tương đương cường hoành, không có một cái nào là kẻ yếu.
+Nếu là, chỉ có một chiếc Bán Thánh cấp chiến hạm, tự nhiên là không đủ gây sợ, thế nhưng là chừng hơn ngàn chiếc Bán Thánh cấp chiến hạm đồng thời tiến vào, như thế hình ảnh, lại là kinh thiên động địa, chấn động không gì sánh nổi lòng người.
 
-"Thật là lợi hại một chi quân đội, đến cùng đến từ thế lực nào?"
+"Trời ạ, lại là Bán Thánh cấp chiến hạm, trong Thánh Minh thành lại có hơn ngàn chiếc."
 
-Trương Nhược Trần cảm giác được có chút kinh hãi, bởi vì 12 vị nữ tử cũng không phải là tu sĩ bình thường, mà là 12 vị Nữ Thánh. Trên người các nàng khí tức giống nhau y hệt, đồng thời đan vào lẫn nhau , tùy ý hai người, ba người, bốn người. . . , đều là có thể tổ hợp thành chiến trận. 12 vị Nữ Thánh lực lượng, tựa hồ cũng là có thể trùng điệp tại tất cả.
+"Triều đình khẳng định là đem những Bán Thánh cấp chiến hạm này đều giấu ở lòng đất, chính là thủ đoạn ẩn tàng, chuyên môn dùng để đối phó chúng ta."
 
-Tại Côn Lôn Giới, thế lực có thể có được 12 vị Thánh Giả, thế lực đã là khá là khổng lồ, đủ để tại một mảnh địa vực xưng vương xưng bá.
+. . .
 
-Trước mắt 12 Nữ Thánh lại càng thêm không được, không chỉ có tuổi trẻ mỹ mạo, tu luyện công pháp giống nhau như đúc, mà lại đứng yên phương thức cũng là ngay ngắn trật tự, hiển nhiên là từ nhỏ đã trải qua nghiêm khắc huấn luyện, biết được phối hợp lẫn nhau, không phải đơn thuần 12 vị Thánh Giả có thể so sánh với.
+Đối với Thánh Minh bộ hạ cũ mà nói, Bán Thánh cấp chiến hạm chính là ác mộng của bọn hắn.
 
-Cho dù là bảy đại cổ giáo, muốn bồi dưỡng được 12 vị Thánh Giả như vậy, cũng là rất khó.
+Một khi có Bán Thánh cấp chiến hạm xuất hiện, cũng liền đại biểu, lại có rất nhiều người sẽ gia phá nhân vong. Bình thường, xuất hiện mười chiếc Bán Thánh cấp chiến hạm đều là quy mô lớn hành động, bây giờ hơn ngàn chiếc Bán Thánh cấp chiến hạm đi đến tới, có thể tưởng tượng, tất nhiên sẽ có rất nhiều tu sĩ bị nghiền sát.
 
-Một nữ tử mỹ lệ người mặc Phượng Diễm Thánh Giáp, từ trong hỏa vân đi ra, đứng ở trước người 12 vị Nữ Thánh. Nàng này khí thế trên người càng thêm không được, cùng Chúc Khinh Y so ra, cũng là không thua bao nhiêu.
+Tại thời khắc này, Binh bộ cường đại, hoàn toàn bạo lộ ra.
 
-Dung nhan của nàng cực kỳ tú mỹ, dáng người thướt tha, một đôi tô phong đặc biệt sung mãn thẳng tắp, một đầu xích hồng sắc tóc dài giống như hỏa diễm đang thiêu đốt, cõng một thanh Thánh Kiếm, một đôi mắt lãnh duệ khiếp người, đơn giản chính là một vị mỹ nữ Võ Thần.
+"Giết, giết hết Thánh Minh nghịch tặc, thành lập cái thế công huân, phong vương gia tước."
 
-"Là nàng." Hoàng Yên Trần thấp giọng đọc lên một câu.
-
-"Ai?" Trương Nhược Trần hỏi.
-
-"Nữ Hoàng cận vệ, Cửu Thiên Huyền Nữ một trong Thương Lan Võ Thánh, chiến lực ở trong Cửu Thiên Huyền Nữ xếp hạng thứ nhất. Tại Tử Vi cung, bái kiến Nữ Hoàng thời điểm, ta từng gặp nàng một mặt. Nói đến, Thương Lan Võ Thánh cùng ngươi cũng có một chút quan hệ." Hoàng Yên Trần nói ra.
-
-"Cùng ta có thể có quan hệ gì?" Trương Nhược Trần nói.
-
-Hoàng Yên Trần nói: "Nàng là Minh Vương Kiếm Mộ sáu vị người cầm kiếm một trong, Phần Thiên Kiếm nhất mạch người cầm kiếm . Bất quá, Phần Thiên Kiếm đã di thất, bị Thanh Thiên bộ tộc một đời kỳ tài Tư Đồ Phượng Thành cướp đi."
-
-Trương Nhược Trần nghe qua Thương Lan tên Võ Thánh, từ tiếp xúc qua Thánh Nữ tài nữ cùng Tư Mệnh Thần Nữ, đại khái liền có thể suy đoán ra thực lực của nàng mạnh mẽ đến mức nào.
-
-Thế nhưng là, Thanh Thiên bộ tộc lại còn có kỳ tài, có thể từ trong tay nàng cướp đi Phần Thiên Kiếm, thật là có chút không thể tưởng tượng nổi.
-
-Hoàng Yên Trần nhìn ra Trương Nhược Trần có chút giật mình, lại tăng thêm một câu , nói: "Tư Đồ Phượng Thành là Trung Doanh Vương đại đệ tử, cũng là Chúc Khinh Y sư huynh, thiên tư so Thanh Thiên thái tử cũng cao hơn được nhiều, rất nhiều người đều cho là hắn thành tựu sẽ siêu việt Trung Doanh Vương, trở thành vị kế tiếp Huyết Đế."
-
-"Thật sự là thiên tài lớp lớp thời đại."
-
-Trương Nhược Trần cảm thán một câu, bất quá trong lòng cũng không có quá lớn chập trùng, dù sao, vô luận là Thương Lan Võ Thánh cùng Chúc Khinh Y, hay là Tư Đồ Phượng Thành, thời gian tu luyện đều vượt xa hắn.
-
-Lấy tuổi của hắn, liền có thực lực cường đại như vậy, chỉ sợ Thương Lan Võ Thánh, Chúc Khinh Y, Tư Đồ Phượng Thành bọn người, cũng có rất lớn cảm giác cấp bách, có chút lười biếng, liền sẽ bị siêu việt.
-— QUẢNG CÁO —
-
-
-Hoàng Yên Trần lại nói: "Đi theo Thương Lan Võ Thánh bên người 12 Nữ Thánh, hẳn là Bạch Vũ Thập Nhị Thánh trong 72 cung Nữ Thánh. Các nàng đã từng chỉ là Nữ Hoàng bên người cung nữ, về sau trổ hết tài năng, tu luyện đến Thánh cảnh, thân phận địa vị tự nhiên cũng liền không giống với."
-
-Nữ tử có thể tiến vào Tử Vi cung làm cung nữ, vốn là có địa vị không hề bình thường, cơ hồ đều là các đại thế gia, môn phiệt thiên chi kiêu nữ.
-
-Lại thêm, Tử Vi cung có thể nói là toàn bộ Côn Lôn Giới thiên địa linh khí nhất là dồi dào chi địa, trong các nàng một chút người nổi bật, có thể tu luyện thành thánh, cũng là chuyện rất bình thường.
-
-Đúng lúc này, lại có một cỗ khổng lồ thánh khí ba động, từ đằng xa bay tới.
-
-Chỉ gặp, mấy chục đạo tà vụ màu đen, bay ở giữa dãy núi, sau đó chồng vào nhau, ngưng tụ thành một nữ tử yêu mị mặt mang hắc sa, chính là Chúc Khinh Y.
+Trên hơn một ngàn chiếc Bán Thánh cấp chiến hạm Hỏa Thần đại trận, tại dưới linh tinh cùng thánh thạch thôi động, toàn bộ khởi động, đánh ra từng khỏa đường kính trăm trượng hỏa cầu, rơi về phía đại địa.
 
 "Ầm ầm."
 
-Trên mặt đất, vang lên từng đạo điếc tai âm thanh xé gió.
+Mỗi một khỏa hỏa cầu rơi xuống, đều có một mảng lớn Thánh Minh bộ hạ cũ bị trấn sát, hóa thành tro tàn.
 
-Hết thảy bốn vị Huyết Thánh bay tới, rơi xuống Chúc Khinh Y sau lưng, từng cái đều là hung thần ác sát bộ dáng, khi bọn hắn sau khi rơi xuống đất, mảnh địa vực này bùn đất đều biến thành màu đỏ như máu, giống như có thể thẩm thấu ra máu tươi.
+Một lát sau, Lăng Tiêu Thiên Vương Phủ bên ngoài liền biến thành một vùng biển lửa, không biết cùng bao nhiêu Thánh Minh bộ hạ cũ vẫn lạc, bị Bán Thánh cấp chiến hạm giết chết.
 
-Chúc Khinh Y một đôi tròng mắt, mang theo một đạo cười lạnh , nói: "Thật không nghĩ tới, vì Hóa Thánh Đan đan phương trong tay Cổ Tùng Tử, thậm chí ngay cả cao cao tại thượng Cửu Thiên Huyền Nữ đều tự mình chạy đến Hồng Xuyên phủ."
+Ngay sau đó, trong mỗi một chiếc Bán Thánh cấp chiến hạm, đều là đưa lên kế tiếp cái thiết cầu.
 
-Thương Lan Võ Thánh nói: "Ta đến Hồng Xuyên phủ, không chỉ có chỉ là vì lấy Hóa Thánh Đan đan phương, càng là tới lấy về Phần Thiên Kiếm."
+Mỗi một cái thiết cầu rơi xuống đất mặt đất, đều sẽ hóa thành một bộ cao ba mét sắt thép chiến sĩ, từ phía sau hướng Thánh Minh bộ hạ cũ vây công đi qua.
 
-"Phần Thiên Kiếm liền nắm giữ tại trong tay Đại sư huynh, thế nhưng là, bằng tu vi của ngươi, chỉ sợ là mãi mãi cũng lấy không quay về." Chúc Khinh Y nói.
+Đây là một kiện cấm khí trong quân khác, Luyện Khí chiến sĩ.
 
-Thương Lan Võ Thánh hướng Chúc Khinh Y sau lưng bốn vị Huyết Thánh nhìn chằm chằm một chút , nói: "Ngươi mang theo như thế mấy cái Huyết Thánh, liền dám xông vào nhập vào Hồng Xuyên phủ nội địa, ta cũng là bội phục dũng khí của ngươi. Nếu đã tới, vậy cũng chớ đi!"
+Luyện Khí chiến sĩ, có được có thể so với Ngư Long cảnh tu sĩ lực công kích, mấy vạn cỗ Luyện Khí chiến sĩ đồng thời xuất hiện, cùng triều đình Binh Thánh cùng bầu trời Bán Thánh cấp chiến hạm kết hợp với nhau, đơn giản tựa như là từ Địa Ngục xông ra Tử Thần quân đoàn, điên cuồng thu hoạch Thánh Minh bộ hạ cũ quân đội tính mệnh.
 
-"Ngươi cho rằng nơi này là Trung Ương Hoàng Thành, tất cả đều là ngươi nói tính? Tại Hồng Xuyên phủ, quy tắc hẳn là sửa lại."
+Mà lại, trong Bán Thánh cấp chiến hạm, còn tại không ngừng đưa lên thiết cầu, Luyện Khí chiến sĩ số lượng đang nhanh chóng gia tăng.
 
-Chúc Khinh Y ánh mắt, hướng thiên ngoại nhìn thoáng qua, nói: "Ma Thiên bộ tộc, Tề Thiên bộ tộc, Phong Thiên bộ tộc, các ngươi tam đại bộ tộc tu sĩ còn không hiện thân? Chỉ cần chúng ta liên thủ bắt giữ một vị Cửu Thiên Huyền Nữ, đủ để trọng thương triều đình đại quân sĩ khí."
+Luyện Khí chiến sĩ quân đoàn số lượng, rất nhanh liền phá 10 vạn.
+
+Bán Thánh cấp chiến hạm cùng Luyện Khí chiến sĩ xuất hiện, cải biến chiến cuộc, khiến cho Thánh Minh đại quân lâm vào hai mặt thụ địch nguy hiểm cục diện, có khả năng sẽ toàn quân bị diệt.
+
+"Đệ Nhất Trung Ương đế quốc triều đình, mới là Côn Lôn giới thế lực cường đại nhất, một câu nói kia, quả nhiên không giả. Những cổ giáo, Cổ tộc, Trung Cổ thế gia khác kia, cùng triều đình lực lượng so ra, chênh lệch thật quá lớn."
+
+Trong Thánh Minh thành tu sĩ, toàn bộ đều bị Bán Thánh cấp chiến hạm cùng Luyện Khí chiến sĩ làm kinh sợ, cảm thấy Trương Nhược Trần không nên đi tiến đánh Lăng Tiêu Thiên Vương Phủ, hôm nay chắc chắn sẽ binh bại người vong.
+
+Lăng Tiêu Thiên Vương Phủ có thể tọa trấn Thánh Minh thành, trấn áp Thánh Minh bộ hạ cũ mấy trăm năm, tự nhiên là có được khá cường đại thực lực, muốn tấn công xong đến, nào có dễ dàng như vậy?
+
+Lúc này, một vị Hộ Long các thành viên xuất thủ, đánh ra là một kiện Vạn Văn Thánh Khí, kích phát ra Vạn Văn Thánh Khí viên mãn lực lượng.
+
+"Ầm ầm."
+
+Vẻn vẹn chỉ là một kích, liền có hơn một trăm chiếc Bán Thánh cấp chiến hạm bị đánh đến tổn hại, thậm chí hòa tan thành nước thép, giống như từng tòa sắt thép đại sơn, từ thiên khung rơi xuống.
+
+Ngay sau đó, Vạn Văn Thánh Khí viên mãn lực lượng, lần nữa bạo phát đi ra, lại là đánh xuống tiếp theo mảng lớn Bán Thánh cấp chiến hạm.
+
+Tại vị kia Hộ Long các thành viên trên thân, có một cỗ quét ngang thiên hạ khí thế, một thân một mình, tựa hồ liền có thể tiêu diệt một cái Bán Thánh cấp chiến hạm quân đoàn.
+
+"Sử dụng Vạn Văn Thánh Khí, liên tục đánh ra hai đạo viên mãn lực lượng, chí ít cũng cần Chí Thánh đỉnh phong tu vi mới có thể làm đến. Trong Thánh Minh bộ hạ cũ, vậy mà lại toát ra một nhân vật đáng sợ."
+— QUẢNG CÁO —
+
+Chí Thánh đỉnh phong đại biểu lực lượng mạnh nhất dưới Thánh Vương, nhân vật như vậy, cũng là có tương đương đáng sợ lực uy hiếp, cầm trong tay Vạn Văn Thánh Khí đứng ở nơi đó, liền có thể đem Binh Thánh đều dọa đến run rẩy.
+
+"Bằng nhanh nhất tốc độ, hủy những đồng nát sắt vụn này."
+
+Lại có hơn mười vị Hộ Long các thành viên xuất thủ, có đánh ra thánh thuật, có đánh ra Thiên Văn Thánh Khí, công kích về phía bay ở bầu trời Bán Thánh cấp chiến hạm.
+
+"Ầm ầm."
+
+Vẻn vẹn chỉ là một khắc đồng hồ, hơn ngàn chiếc Bán Thánh cấp chiến hạm toàn bộ đều bị nổ xuống, giống như là hơn ngàn tòa sắt thép sơn nhạc nằm ngang ở trong thành, toàn bộ đều trở nên rách tung toé.
+
+Triều đình quân sĩ đứng tại trong chiến hỏa, trợn mắt hốc mồm, nội tâm càng khủng bố hơn.
+
+Hộ Long các thành viên, đứng thành một hàng, quét ngang ra ngoài, đánh cho hơn mười vạn cỗ Luyện Khí chiến sĩ hướng bốn phương tám hướng ném đi, có bị đánh đến hòa tan, có bị đánh đến tan ra thành từng mảnh.
+
+Quá khỏe khoắn, quá bá đạo, Hộ Long các vẻn vẹn chỉ có hơn mười người, lại là sở hướng vô địch, công vô bất khắc.
+
+Trương Nhược Trần bọn người giết vào tiến Nhật Nguyệt môn, lại gặp phải đến trở ngại.
+
+Hộ cung cổ trận đích thật là bị đánh nát một góc, thế nhưng là, còn có chín thành chín đều là hoàn hảo không chút tổn hại, có thể phát động công kích lực lượng, có thể diệt sát Thánh cảnh nhân vật.
+
+Lăng Tiêu Thiên Vương Phủ khu vực trung tâm, hộ cung cổ trận uy lực càng là cường đại, đủ để nghiền sát Thánh Vương.
+
+Giờ phút này, chỉ là tại Lăng Tiêu Thiên Vương Phủ khu vực bên ngoài, Yến Khải Toàn bị một đạo trận pháp công kích đánh trúng, ngực bị đánh xuyên, bị thương nặng.
+
+Liền ngay cả Chân Thánh cũng đỡ không nổi, có thể nghĩ, những tu sĩ khác kia gặp hộ cung cổ trận công kích, sẽ là dạng gì hạ tràng?
+
+Trương Nhược Trần tương đương quả quyết , nói: "Đi Chư Hoàng Từ Đường, sử dụng lịch đại Minh Đế lưu lại Đại Thánh Minh Văn, đối kháng hộ cung cổ trận."
+
+Chư Hoàng Từ Đường, là Hoàng tộc Trương gia cấm địa, lịch đại Minh Đế cũng sẽ ở nơi đó khắc lục Đại Thánh Minh Văn, có Chư Hoàng chi lực gia trì, liền xem như không có thành thần trước đó Trì Dao, cũng không có khả năng xông vào được, càng thêm không cách nào đem nơi đó hủy đi.
+
+Đương nhiên, làm Thánh Minh hoàng thái tử, Trương Nhược Trần tự nhiên là biết như thế nào tiến vào Chư Hoàng Từ Đường, cũng biết như thế nào khởi động Đại Thánh Minh Văn.
+
+Chỉ có xâm nhập tiến Chư Hoàng Từ Đường, mới có thể khóa chặt thắng cục.
+
+Trương Nhược Trần đem Thánh Minh chiến kỳ giao cho Ma Viên, sau đó, gọi ra Phật Đế Xá Lợi Tử, nâng ở lòng bàn tay, kích phát ra bản nguyên lực lượng trong Xá Lợi Tử, ngăn cản hộ cung cổ trận, nhanh chân hướng về phía trước đánh tới.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
 
 Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
 Phong Lưu Chân Tiên Vô địch lưu đã full.
 ---------------------------------------------------------
-https://metruyenchu.com/truyen/van-co-than-de/chuong-1299
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1390
 
-Chương 1296: Giao phong
+Chương 1387: Ngủ say trong lòng đất Hoàng tộc thân vương
 
-Trên mặt đất, hiện ra từng đạo đường vân màu đỏ như máu, rất như là hàng ngàn hàng vạn đầu huyết dịch dòng suối, bao trùm lấy phương viên trăm dặm chi địa, đem bầu trời đều chiếu thành huyết hồng, Ma Thiên bộ tộc, Tề Thiên bộ tộc, Phong Thiên bộ tộc Huyết Thánh, toàn bộ đều từ trong huyết khê nổi lên, tam đại bộ tộc chung vào một chỗ, lại có tiếp cận 20 vị Huyết Thánh.
+Trương Nhược Trần, A Nhạc, Huyết Nguyệt Quỷ Vương, Bạch Lê công chúa, Ma Viên, Oa Oa thực lực đều rất cường đại, ở trong Lăng Tiêu Thiên Vương Phủ xông ngang xông dọc, đánh đâu thắng đó, những nơi đi qua, cung điện bị đánh đến vỡ vụn, từng tòa linh sơn cùng linh uyển bị đánh thành phế tích, lưu lại đầy đất đẫm máu tử thi.
 
-Trong đó, tam đại bộ tộc người dẫn đầu, đều là cường giả số một, thực lực cùng Chúc Khinh Y so sánh, cũng là không thua bao nhiêu.
-
-Đối mặt đội hình cường đại như thế, Thương Lan Võ Thánh sắc mặt cũng là hơi biến đổi, cũng không có lựa chọn cứng đối cứng, mà là lập tức rút đi, mang theo Bạch Vũ Thập Nhị Thánh xông vào tiến Tiên Cơ sơn.
-
-"Bản thánh đã sớm muốn thu một vị Cửu Thiên Huyền Nữ làm tiểu thiếp, Thương Lan Võ Thánh chính là một cái lựa chọn tốt, ha ha."
-
-Ma Thiên bộ tộc người dẫn đầu, tên là Diệt Phong Huyết Thánh, thân thể cao tới ba trượng, thân thể chừng cối xay lớn như vậy, cao giọng cười to, nắm lên một thanh chiến kiếm ngân quang lóng lánh, đuổi theo, một kiếm chém về phía phía trước Thương Lan Võ Thánh cùng Bạch Vũ Thập Nhị Thánh, ngăn cản các nàng rời đi.
-
-Kiếm khí như là dòng sông đồng dạng, dài đến mấy ngàn thước, hướng phía dưới quét sạch. Mỗi một đạo kiếm khí dư ba rơi xuống, cũng sẽ ở trên mặt đất, lưu lại một hố to đường kính 10 trượng.
-
-Thương Lan Võ Thánh hừ lạnh một tiếng, động lòng người thân thể mềm mại hướng về sau uốn éo, lập tức, Thánh Kiếm trên lưng rời vỏ bay ra, hóa thành một đạo bạch hồng, cùng Diệt Phong Huyết Thánh đánh ra chiến kiếm đụng vào nhau.
+Bọn hắn bước vào một mảnh đứng vững mấy chục toà linh sơn khu vực, khoảng cách Chư Hoàng Từ Đường càng ngày càng gần.
 
 "Ầm ầm."
 
-Sương mù màu trắng mãnh liệt chấn động, vô số kiếm khí đang cuộn trào, ra lả tả thanh âm.
+Mấy chục toà linh sơn trên không, ngưng tụ ra một mảnh mây trắng.
 
-Diệt Phong Huyết Thánh cuối cùng vẫn không ngăn được Thương Lan Võ Thánh đánh ra kiếm quyết, kiếm khí như là như hạt mưa rơi ở trên người hắn, cùng áo giáp đụng vào nhau.
+Trong mây, hộ cung cổ trận trận pháp Minh Văn nổi lên, hội tụ vào một chỗ, hóa thành một đạo chùm sáng màu trắng, hướng bọn hắn oanh kích tới.
 
-"Không hổ là Cửu Thiên Huyền Nữ, thực lực quả nhiên rất cường đại."
+Phật Đế Xá Lợi Tử là một kiện Đại Thánh Cổ Khí, thế nhưng là, lấy Trương Nhược Trần tu vi hiện tại, còn không cách nào tiếp tục không ngừng kích phát nó bản nguyên lực lượng.
 
-Diệt Phong Huyết Thánh hướng về sau bay ngược, áo giáp trên người, bị đánh ra từng cái cái hố nhỏ, thể nội huyết khí bốc lên, nếu không phải lực phòng ngự của hắn đủ cường đại, chỉ sợ vừa rồi đã thụ thương.
+Đối với thánh khí tiêu hao quá lớn, càng nhiều là một loại đối với địch nhân uy hiếp, mà không phải sử dụng nó để chiến đấu.
 
-Phải biết, Diệt Phong Huyết Thánh thế nhưng là một vị "Thông Thiên Huyết Tướng" .
+A Nhạc, Bạch Lê công chúa đồng thời đánh ra một đạo thánh khí quang trụ, rót vào tiến Phật Đế Xá Lợi Tử, hợp ba người bọn họ chi lực, điều động ra trong Xá Lợi Tử càng cường đại hơn bản nguyên lực lượng, lần nữa ngăn cản được hộ cung đại trận đợt công kích.
 
-Tại Bất Tử Huyết tộc, chỉ có trong Thông Thiên cảnh Thánh Giả cường đại nhất đám người kia, mới có tư cách thu hoạch được "Thông Thiên Huyết Tướng" phong hào, danh xưng sinh linh mạnh mẽ nhất dưới Chân Thánh.
+"Thật sự cho rằng Lăng Tiêu Thiên Vương Phủ không người nào sao? Một đám tiểu bối cũng dám giết tiến đến?"
 
-Mỗi bộ tộc Thông Thiên Huyết Tướng, cũng chỉ có ba năm cái, mỗi một cái đều là đại nhân vật uy danh hiển hách, sử dụng ra át chủ bài, thậm chí có thể cùng Chân Thánh qua thoáng qua một cái chiêu.
+Tại trong mấy chục toà linh sơn kia, từng vòng từng vòng thánh khí gợn sóng phun trào, lập tức, một vị lão giả tóc trắng xoá, bay ra.
 
-"Một kiếm liền đánh lui Diệt Phong Huyết Thánh, thực lực của nàng, thật đúng là có chút không thể khinh thường."
+Hắn người mặc cũ nát Thánh Y, trên Thánh Y, tất cả đều là bùn đất, rất như là từ lòng đất leo ra, toàn thân tản ra khủng bố khiếp người thánh uy, thể nội thánh khí vận chuyển lại, đúng là phát ra điếc tai tiếng oanh minh.
 
-Chúc Khinh Y nhãn thần trở nên càng thêm trầm lãnh, hóa thành một đạo đạo tà vụ màu đen, đuổi vào tiến Tiên Cơ sơn. Trên người nàng, có một cỗ sát khí ngập trời, không có khả năng thả Thương Lan Võ Thánh cùng Bạch Vũ Thập Nhị Thánh rời đi.
+"Bái kiến Thất vương gia."
 
-Cùng lúc đó, ba vị người dẫn đầu cùng tứ đại bộ tộc Huyết Thánh khác, hóa thành mấy chục đạo lưu quang, vang lên từng đạo tiếng nổ, từ khác nhau phương hướng đuổi theo.
+"Thất thái công lại còn còn sống, quá tốt rồi! Xin mời Thất thái công xuất thủ, trấn áp Trương Nhược Trần cùng Thánh Minh nghịch tặc."
 
-Một lát sau, trong Tiên Cơ sơn, tuôn ra đinh tai nhức óc chiến đấu âm thanh, cả kinh tất cả phi cầm tẩu thú đều đang chạy trốn, có chạy ra ngoài núi, có trốn hướng Tiên Cơ sơn chỗ sâu.
+Trong Lăng Tiêu Thiên Vương Phủ Hoàng tộc tử đệ, nhao nhao quỳ xuống lễ bái, đối với vị lão giả kia tương đương cung kính.
 
-Trương Nhược Trần, Hoàng Yên Trần, Thanh Mặc từ trong sương trắng đi tới, nhìn ra xa chiến đấu âm thanh truyền đến phương hướng.
+"Thánh Minh nghịch tặc vậy mà đánh vào tiến Lăng Tiêu Thiên Vương Phủ, ai cho bọn hắn lá gan?"
+
+Ngay sau đó, trong một tòa linh sơn khác, hai vị khô gầy như củi lão giả, từ cái khe dưới một đạo vực sâu đi ra.
+
+"Bái kiến Thập Cửu vương gia, nguyên lai Thập Cửu vương gia cũng còn sống."
+
+"Bái kiến Tứ Thập Lục vương gia."
+
+. . .
+
+Đệ Nhất Trung Ương đế quốc Hoàng tộc thành viên, chỉ cần là đạt tới Thánh cảnh, liền có thể phong làm "Thân vương" .
+
+Trì gia vốn là gia tộc siêu lớn, viễn siêu những Trung Cổ thế gia kia. Đệ Nhất Trung Ương đế quốc thành lập về sau, Trì gia tử đệ có thể hưởng thụ được tài nguyên tốt nhất bồi dưỡng, tự nhiên là đản sinh ra rất nhiều Thánh cảnh cường giả.
+
+Từ lòng đất đi ra ba vị lão giả, đều là trong hoàng tộc lão cổ đổng, bối phận cùng Trì Dao Nữ Hoàng giống nhau, liền ngay cả Hoàng tộc tử đệ đều cho là bọn họ đã chết già, lại không nghĩ rằng, vậy mà tại Chư Hoàng Từ Đường bên ngoài linh sơn lòng đất ngủ say.
+
+Phải biết, đối với Thánh Giả tới nói, 720 tuổi là một đạo đường sinh tử, liền xem như tu vi mạnh nhất Chí Thánh cũng rất khó sống qua đạo khảm này.
 — QUẢNG CÁO —
 
-Ánh mắt của bọn hắn, đều có chút trầm ngưng. Triều đình cùng Bất Tử Huyết tộc đều có số lớn Thánh cảnh cường giả xuất hiện tại Tiên Cơ sơn, tuyệt đối không phải một chuyện tốt.
+Bạch Tô bà bà có thể sống đến hơn tám trăm tuổi, hoàn toàn chính là dựa vào kéo dài tính mạng thánh dược tại chèo chống, bằng không, cũng sớm đã chết già.
 
-"Bọn hắn cùng chúng ta mục đích một dạng, vậy mà cũng là tìm đến Cổ Tùng Tử." Hoàng Yên Trần một đôi trong đôi mắt đẹp, lộ ra sầu lo thần sắc.
+Ba vị Hoàng tộc lão cổ đổng, sở dĩ lựa chọn trong lòng đất ngủ say, có hai cái nguyên nhân.
 
-Tửu Phong Tử nói vị Đan Đạo Thánh Sư kia, chính là tên là Cổ Tùng Tử.
+Thứ nhất, rơi vào trạng thái ngủ say đằng sau, có thể trì hoãn thọ nguyên xói mòn tốc độ.
 
-Thanh Mặc nói: "Ta làm sao nghe được bọn hắn nói, Cổ Tùng Tử đạt được Hóa Thánh Đan đan phương. Hóa Thánh Đan thế nhưng là trong truyền thuyết thánh đan, giống như Thánh Nguyên một dạng, Bán Thánh chỉ cần ăn vào Hóa Thánh Đan, liền có rất lớn cơ hội tu luyện thành thánh."
+Nói một cách khác, bọn hắn tại sống đến 700 tuổi thời điểm, cảm giác được không cách nào đột phá Thánh Vương cảnh giới, thế là, liền lựa chọn tới lòng đất ngủ say. Nguyên bản còn lại 20 năm thọ nguyên, bởi vì ngủ say nguyên nhân, thọ nguyên xói mòn trở nên chậm, có khả năng ngủ say 200 năm cũng sẽ không triệt để chết đi.
 
-Trương Nhược Trần tự nhiên cũng là minh bạch Hóa Thánh Đan giá trị, nghe nói, ở Trung Cổ thời kì, có một cái Đan Đạo tông môn có thể luyện chế ra loại đan dược này, tạo ra được một cái huy hoàng thời đại, vẻn vẹn chỉ là một cái tông môn, chính là đản sinh ra hơn ngàn vị Thánh Giả.
+Kể từ đó, tại thời khắc mấu chốt, liền có thể phát huy ra tác dụng cực lớn.
 
-Thế nhưng là, thịnh cực tất suy.
+Không chỉ có là Thánh Giả, liền ngay cả một chút Thánh Vương, tại thọ nguyên sắp hết thời điểm, cũng sẽ lựa chọn tiến vào ngủ say, tiếp tục thủ hộ gia tộc. Chỉ cần Thánh Vương không chết, chính là một tấm hộ thân phù, chính là một sự uy hiếp.
 
-Bởi vì Hóa Thánh Đan giá trị thực sự quá lớn, vô số người đều đỏ mắt, Đan Đạo tông môn kia gặp phải tai vạ bất ngờ, bị một cỗ thế lực thần bí tiêu diệt.
+Thứ hai, Chư Hoàng Từ Đường là một chỗ khá là ghê gớm đất kỳ dị, bọn hắn trong lòng đất ngủ say, có thể hấp thu Chư Hoàng lưu lại tới thánh lực cùng Thánh Minh Trung Ương đế quốc còn sót lại khí vận, liền có thể lấy kéo dài thọ nguyên, cũng có thể tiếp tục tăng cường tu vi.
 
-Theo Đan Đạo tông môn kia hủy diệt, Hóa Thánh Đan đan phương cũng biến mất không thấy gì nữa.
+Thất vương gia, Thập Cửu vương gia, Tứ Thập Lục vương gia , dựa theo lúc sinh ra đời để tính, đều đã vượt qua 800 tuổi, thế nhưng là, bọn hắn vẫn chưa có chết đi, ngược lại tinh thần thịnh vượng, huyết khí như rồng.
 
-Trương Nhược Trần nói: "Cũng không biết bọn hắn là từ đâu có được tin tức, bất quá, Hóa Thánh Đan đan phương lần nữa xuất thế, thế lực khắp nơi khẳng định đều sẽ nghe tin lập tức hành động, ta nhất định phải đuổi tại trước bọn hắn tìm tới Cổ Tùng Tử tiền bối."
+Rất hiển nhiên, bọn hắn trong này ngủ say, đạt được lợi ích cực kỳ lớn.
 
-Thanh Mặc có chút bận tâm , nói: "Thế nhưng là Bất Tử Huyết tộc số lớn Thánh cảnh cường giả đều tiến vào Tiên Cơ sơn, vạn nhất cùng bọn hắn gặp gỡ, chúng ta chẳng phải là một con đường chết?"
+"Vậy mà tại lòng đất hấp thu ta Trương gia lịch đại tiên tổ để lại thánh lực, hôm nay, liền chém các ngươi, đem bọn ngươi thi cốt mai táng ở chỗ này, triệt để hóa thành bụi đất."
 
-"Bất Tử Huyết tộc muốn giết ta, ta lại làm sao không muốn giết bọn hắn? Tính toán thời gian, Sử gia giúp ta luyện chế Trấn Huyết Phù, cũng đã toàn bộ luyện chế hoàn tất."
+Trương Nhược Trần xông về trước ra ngoài, cánh tay vung lên, đánh ra một khe hở không gian, đồng thời hướng ba vị lão giả công phạt.
 
-Trương Nhược Trần trong mắt, một đạo sát ý nổi lên.
+Ba vị Vương gia cảm nhận được không gian ba động, lập tức vận dụng ra không giống bình thường cực tốc, né tránh tới.
 
-Trước khi tiến vào Âm Dương Hải, Trương Nhược Trần liền đem 1000 vạn giọt thần huyết đưa đến Sử gia, để bọn hắn hỗ trợ luyện chế Trấn Huyết Phù.
+Sau đó, bọn hắn lại lấy tốc độ nhanh hơn khởi xướng tiến công, liên tiếp đánh ra ba loại thánh thuật, hướng Trương Nhược Trần nghiền ép tới.
 
-Nếu thật là nhóm Trấn Huyết Phù này toàn bộ đều luyện chế ra đến, Trương Nhược Trần cùng Bất Tử Huyết tộc giao thủ, hoàn toàn có thể thần cản giết thần, phật cản giết phật. Cho dù là Chúc Khinh Y loại cường giả cấp bậc kia, cũng có thể đưa nàng trấn áp.
-
-"Yên Trần, ngươi đi một chuyến Minh Vương Kiếm Mộ, đem nhóm Trấn Huyết Phù kia cho ta mang tới." Trương Nhược Trần nói.
-
-Hoàng Yên Trần cũng rõ ràng cục thế trước mặt, suy tư một lát , nói: "Ta đơn độc đi Minh Vương Kiếm Mộ, Thanh Mặc liền lưu lại bảo hộ ngươi. Lấy ngươi bây giờ tình trạng cơ thể, gặp được nguy hiểm, tuyệt đối không nên gượng chống."
-
-"Yên tâm, ta không phải một người không có lý trí." Trương Nhược Trần mỉm cười.
-
-Hoàng Yên Trần xoay người, đang chuẩn bị rời đi.
-
-"Yên Trần."
-
-Trương Nhược Trần gọi lại nàng, sau đó, đi tới, duỗi ra một tay sờ lấy nàng gương mặt tuyết trắng kia, nhẹ nhàng một hôn, hai môi đụng vào nhau.
-
-Trên gương mặt Hoàng Yên Trần hiện ra đỏ ửng, đúng là có chút khẩn trương, hô hấp dừng lại, lông mi thật dài run lên một cái. Hai người đôi mắt, nhìn chằm chằm vào đối phương, tình ý nồng đậm.
-
-Một lát sau, rời môi.
-
-"Ngươi cũng cẩn thận một chút, bây giờ Côn Lôn giới đã là chiến loạn nổi lên bốn phía, chỗ nào cũng không an toàn." Trương Nhược Trần dặn dò một câu.
-
-Hoàng Yên Trần rời đi về sau, Trương Nhược Trần cùng Thanh Mặc cũng tiến vào Tiên Cơ sơn.
-
-Tiên Cơ sơn, cũng không chỉ là một ngọn núi, mà là dãy núi san sát, liên miên chập trùng, chiếm cứ có một mảnh tương đương rộng lớn cương vực. Cho dù là Thánh cảnh sinh linh, cũng rất khó đến Tiên Cơ sơn chỗ sâu.
-
-Trong núi chiến đấu âm thanh, phân tán đến mấy cái phương hướng. Rất hiển nhiên, Bất Tử Huyết tộc tứ đại bộ tộc Huyết Thánh cùng Thương Lan Võ Thánh dẫn đầu Bạch Vũ Thập Nhị Thánh chiến đấu, đã chia mấy cái chiến trường.
-
-Có lẽ, có một phương ngay tại phân tán phá vây.
-
-Trương Nhược Trần cũng không muốn dính vào tiến bọn hắn chiến đấu, mặc toàn thân áo trắng, như là một cái thư sinh yếu đuối, chỉ là không nhanh không chậm đi đường.
-
-Thanh Mặc cùng sau lưng Trương Nhược Trần, không có một tia Thánh cảnh cường giả khí thế, cùng một tiểu nha hoàn không hề khác gì nhau.
-
-Nghe được chiến đấu âm thanh, Thanh Mặc lộ ra có chút lo lắng, tròng mắt không ngừng chuyển động, bờ môi động lại động, cuối cùng vẫn nhịn không được nói ra: "Công tử, Thương Lan Võ Thánh cùng Bạch Vũ Thập Nhị Thánh khẳng định không phải là đối thủ của Bất Tử Huyết tộc, chẳng lẽ chúng ta liền không xuất thủ giúp một tay các nàng?"
-
-"Ta cùng các nàng cũng không có giao tình gì, tại sao muốn bốc lên phong hiểm lớn như vậy đi giúp các nàng?" Trương Nhược Trần cũng không quay đầu lại, chỉ là hỏi ngược một câu.
-
-Mặc dù, Thương Lan Võ Thánh cùng Bạch Vũ Thập Nhị Thánh đều là cận vệ bên người Trì Dao, nhưng là, Trương Nhược Trần cũng không có đem cừu hận đối với Trì Dao, chuyển thêm đến trên người của các nàng .
-
-Tựa như hắn đối với Cửu Thiên Huyền Nữ một trong Thánh Thư Tài Nữ, cũng không có hận ý, ngược lại đưa nàng coi là hồng nhan tri kỷ.
-
-Không muốn ra tay, chỉ là bởi vì, hắn hiện tại vốn là có trọng thương tại thân, có thể nói là Nê Bồ Tát qua sông tự thân khó đảm bảo, càng thêm không thể xen vào việc của người khác, trêu chọc phiền toái không cần thiết.
-
-Trương Nhược Trần nói: "Hiện tại, mau chóng tìm tới Cổ Tùng Tử, khôi phục ba mạch, mới là trọng yếu nhất sự tình."
-
-Thanh Mặc muốn thuyết phục Trương Nhược Trần, tiếp tục nói: "Thế nhưng là, Nhân tộc Nữ Thánh rơi vào trong tay Bất Tử Huyết tộc, khẳng định sẽ lọt vào nhục nhã. Đặc biệt là Cửu Thiên Huyền Nữ một trong Thương Lan Võ Thánh, nếu là nàng cũng bị bắt, khẳng định sẽ ảnh hưởng toàn bộ Nhân tộc đại quân sĩ khí. Vạn nhất Chỉ Lâm quan bị công phá, Bất Tử Huyết tộc đánh hạ Hồng Xuyên phủ, lại có bao nhiêu nhân loại sẽ chết đi, lại có bao nhiêu nhân loại sẽ biến thành Bất Tử Huyết tộc nuôi nhốt huyết thực?"
-
-"Công tử, ngươi vẫn luôn là một người tâm hệ thiên hạ thương sinh, cũng không có mặt ngoài lạnh lùng như vậy, chẳng lẽ liền nhẫn tâm nhìn xem Bất Tử Huyết tộc khi nhục nhân loại?"
-
-Trương Nhược Trần dừng bước lại, xoay người, nhìn chằm chằm Thanh Mặc hai mắt.
-
-Thanh Mặc vội vàng cúi đầu xuống, không dám cùng Trương Nhược Trần đối mặt.
-— QUẢNG CÁO —
-
-
-"Đây là ai dạy ngươi nói? Yên Trần sao?"
-
-Trương Nhược Trần không quá tin tưởng lấy Thanh Mặc cái tiểu nha đầu này trí tuệ, có thể biểu xuất ngôn luận dạng này, không chỉ có phân tích đến đạo lý rõ ràng, hơn nữa còn cho hắn đeo một đỉnh "Tâm hệ thiên hạ thương sinh" tâng bốc.
-
-Thanh Mặc trầm mặc không nói.
-
-"Ầm ầm."
-
-Phía trước, cường đại Thánh Đạo khí kình quét sạch toàn bộ sơn lĩnh, một đạo màu đen liêm đao từ Trương Nhược Trần cùng Thanh Mặc hướng trên đỉnh đầu bay đi, lập tức, truyền ra một đạo nữ tử tiếng kêu thảm thiết.
-
-Giọt giọt thánh huyết, từ trên không vương xuống tới.
-
-Bịch một tiếng, một vị Nữ Thánh người mặc màu trắng chiến giáp, rơi xuống tại trong khu rừng khoảng cách Trương Nhược Trần cùng Thanh Mặc không xa, rừng cây kia đều tại hướng phía dưới sụp đổ, biến thành một mảnh đất chết.
-
-Vị Nữ Thánh kia bị thương cực nặng, hai tay bưng bít lấy bụng dưới vị trí, nơi đó có một đạo thật dài miệng máu, cũng không biết là bị cái gì lợi khí kích thương?
-
-Màu đen tà khí, không ngừng từ trong vết thương dũng mãnh tiến ra, bao phủ thân thể mềm mại của nàng, sắc mặt của nàng trở nên tái nhợt, biểu lộ hết sức thống khổ.
+A Nhạc cùng Bạch Lê công chúa xuất thủ lần nữa, đánh ra thánh khí rót vào tiến Phật Đế Xá Lợi Tử, cùng Trương Nhược Trần liên thủ, kích phát ra Xá Lợi Tử bản nguyên lực lượng.
 
 "Hoa —— "
 
-Một vị Nữ Thánh người mặc áo giáp màu trắng khác, quạt một đôi cánh chim, cầm trong tay một thanh Thánh Kiếm, từ giữa không trung bay xuống xuống tới, liền tranh thủ vị Nữ Thánh kia dìu dắt đứng lên , nói: "Nguyên Tốc, ta mang ngươi rời đi."
+Một đầu Kim Long và mấy ngàn cái phật văn màu vàng bay ra ngoài, đụng xuyên ba đạo thánh thuật, bức bách đến ba vị Vương gia đều không thể không lui tránh.
 
-"Còn muốn đi?"
+"Phật Đế Xá Lợi Tử, lại là Phật Đế Xá Lợi Tử."
 
-Một đạo trầm lãnh tiếng cười vang lên.
+Thập Cửu vương gia hai mắt, toát ra lửa nóng quang mang, vô cùng muốn có được Trương Nhược Trần trong tay Xá Lợi Tử.
 
-Lập tức, một vị Huyết Thánh mặt mũi tràn đầy dữ tợn, cầm trong tay một thanh liêm đao nhuộm thánh huyết, quạt một đôi huyết dực, từ trong sương trắng lao ra, ngăn lại hai vị Nữ Thánh đường đi.
+Chỉ cần đạt được Phật Đế Xá Lợi Tử, khẳng định có thể nhất cử trùng kích đến Thánh Vương cảnh giới, thọ nguyên tăng nhiều, chỗ nào còn cần trong này ngủ say chờ chết?
 
-Một vị đầu trọc Huyết Thánh khác, cũng vọt ra, trong ánh mắt tràn ngập tham muốn giữ lấy, có chút dâm đãng cười nói: "Nghe nói, các ngươi danh xưng 72 cung Nữ Thánh, ở tại Tử Vi cung, chính là nữ quan ở gần nhất Nữ Hoàng, bình thường đều là cao cao tại thượng, cho dù là trong triều đình Quận Vương, Vực Vương nhìn thấy các ngươi đều muốn nhún nhường ba phần. Nếu là bắt lấy một cái, dạy dỗ thành nữ nô, không biết những tu sĩ Nhân tộc xem các ngươi là tiên tử kia sẽ làm cảm tưởng gì? Ngân ngân."
+"Thanh Thiên Ấn, Diệt Vũ Pháp."
 
-Ngay sau đó, lại có ba vị Huyết Thánh chạy tới.
+Thập Cửu vương gia mi tâm, hiện ra một đạo cổ lão màu xanh ấn ký, tay phải lòng bàn tay, tuôn ra lít nha lít nhít Thánh Đạo quy tắc, không ngừng hướng ra phía ngoài khuếch tán, một mực bao trùm đến bên ngoài ba dặm.
 
-Hết thảy năm vị Huyết Thánh, đem hai vị Nữ Thánh vây quanh, đều là ra tiếng cười, tựa hồ đã tuyên án các nàng kết cục.
+Những Thánh Đạo quy tắc kia, kết thành một đạo ấn pháp, hướng Trương Nhược Trần trấn áp xuống dưới.
+
+Thập Cửu vương gia tu vi, đạt tới đến Thánh cảnh giới, toàn lực đánh ra một đạo thánh thuật, tự nhiên là có không thể coi thường lực lượng hủy diệt.
+
+"Đem Âm Không Tháp cho ta." Huyết Nguyệt Quỷ Vương lạnh lẽo nói.
+
+Bạch Lê công chúa lấy ra Âm Không Tháp, đưa cho Huyết Nguyệt Quỷ Vương.
+
+Huyết Nguyệt Quỷ Vương hai cái tuyết trắng bàn tay, phun ra hai cỗ âm hàn quỷ khí, liên tục không ngừng rót vào tiến Âm Không Tháp. Trong tháp Minh Văn toàn bộ đều hiện lên đi ra, hóa thành một tòa mấy trăm trượng cao kim loại Quỷ Tháp, hướng về Thập Cửu vương gia oanh kích tới.
+
+Âm Không Tháp cùng ba dặm dáng dấp Thanh Thiên Ấn pháp đụng vào nhau, đúng là đem từng đạo Thánh Đạo quy tắc đều đánh cho đứt đoạn, ấn pháp bị xé nứt.
+
+"Nửa viên mãn lực lượng."
+
+Thập Cửu vương gia nhận ra Âm Không Tháp, biết sự lợi hại của nó, đặc biệt là kích phát ra nửa viên mãn lực lượng đằng sau, bạo phát đi ra uy lực, cho dù là hắn cũng muốn lui tránh.
+
+"Thập Cửu thái công lại bị đánh lui, Quỷ Vương kia, đến cùng là lai lịch gì?"
+
+"Thật cường đại Quỷ Vương, hẳn là đã vượt qua lần thứ ba quỷ kiếp. . . Không tốt, Âm Không Tháp phát ra quỷ khí trở nên mạnh hơn, hướng bên này lan tràn tới, chẳng lẽ nàng là muốn kích phát ra Âm Không Tháp viên mãn lực lượng. . ."
+
+Nhận quỷ khí trùng kích, trong Lăng Tiêu Thiên Vương Phủ Hoàng tộc tử đệ, có vài chục vị đều ngã trên mặt đất, nhục thân biến thành nùng huyết màu đen, thể nội thánh hồn bị rút đi, biến thành từng sợi quỷ khí.
+
+Xa xa nhìn lại, Huyết Nguyệt Quỷ Vương cùng Âm Không Tháp đều bị màu đen quỷ khí bao phủ, hóa thành một mảnh quỷ vân, chỉ có thể nhìn thấy một vòng yêu dị huyết nguyệt lúc ẩn lúc hiện.
+
+Thập Cửu vương gia lộ ra thần sắc kinh hãi , nói: "Nàng vậy mà thật muốn kích phát Âm Không Tháp viên mãn lực lượng, mọi người cùng nhau xuất thủ, toàn lực ứng phó chống cự."
+
+Chân Thánh cùng Chí Thánh đều hết sức rõ ràng, Vạn Văn Thánh Khí viên mãn lực lượng là khủng bố cỡ nào, đủ để phá hủy hết thảy, không có một kiện khác Vạn Văn Thánh Khí, căn bản ngăn cản không nổi.
+
+Ba vị Vương gia toàn lực ứng phó điều động thánh khí, đánh ra ba đạo uy lực vô tận thánh thuật.
+
+Cùng lúc đó, Âm Không Tháp từ trong quỷ vân bay ra, hướng về Thập Cửu vương gia nghiền ép tới.
+
+"Phốc phốc."
+
+Thập Cửu vương gia nửa người đều bị đánh nát, đại lượng thánh huyết chảy xuôi ra ngoài, tay phải, đùi phải toàn bộ đều hóa thành bùn máu. Liền xem như Chí Thánh, cũng không có khả năng chống đỡ được Âm Không Tháp viên mãn lực lượng.
+
+Huyết Nguyệt Quỷ Vương từ trên trời giáng xuống, lại là một chưởng vỗ xuống dưới, đánh cho Thập Cửu vương gia thân thể tàn phế cắt thành ba đoạn, đồng thời, còn đem trong cơ thể hắn thánh hồn rút ra, luyện chế thành quỷ đan.
+
+"Thập Cửu thái công. . . Thái công, vậy mà. . . Bị giết chết. . ."
+
+"Thật là đáng sợ, Thánh Minh nghịch tặc thực lực, làm sao lại cường đại như thế, "
+
+. . .
+
+Trong Lăng Tiêu Thiên Vương Phủ Hoàng tộc tử đệ, toàn bộ đều bị dọa ngốc, cảm giác kinh hãi, một vị đến Thánh cấp lão tổ tông khác đều bị trấn sát, trận chiến này, không khỏi cũng quá thảm liệt.
+
+Huyết Nguyệt Quỷ Vương vì đánh giết Thập Cửu vương gia, cũng trả một cái giá thật là lớn, Thất vương gia cùng Tứ Thập Lục vương gia đánh ra thánh thuật, đánh trúng vào nàng Quỷ Thể, đưa nàng Quỷ Thể đánh tan hai lần.
+— QUẢNG CÁO —
+
+
+Huyết Nguyệt Quỷ Vương vội vàng ăn vào quỷ đan, an dưỡng thương thế, đồng thời cũng tại đền bù Quỷ Thể to lớn tiêu hao, chuẩn bị lần nữa kích phát Âm Không Tháp viên mãn lực lượng.
+
+Đột nhiên, Trương Nhược Trần phát giác được một cỗ chấn động thánh hồn lực lượng, vẻn vẹn chỉ là một đạo khí tức, phảng phất liền muốn đem hắn thánh hồn đều chấn vỡ.
+
+"Mọi người cẩn thận, có Vương giả trong Thánh Đạo đang thức tỉnh." Trương Nhược Trần rống lớn một tiếng.
+
+Huyết Nguyệt Quỷ Vương vội vàng dừng bước lại, phát giác được nguy hiểm, nhanh chóng hướng về sau lùi lại.
+
+Nơi xa, trong một tòa linh hồ trời quang mây tạnh, đột nhiên, xuất hiện một cái vòng xoáy khổng lồ, phát ra rầm rầm thanh âm.
+
+"Ầm ầm."
+
+Một cái ánh sáng sáng tỏ bóng, từ trong vòng xoáy bay ra, lên tới giữa không trung, lơ lửng tại cách đất mấy chục trượng vị trí, như là một vòng màu xanh trăng tròn.
+
+Quang cầu nội bộ, đứng vững một vị người mặc màu bạc bảo y lão ẩu, trên đầu mỗi một cây tóc bạc, đều là tản mát ra lực lượng ba động kinh khủng.
+
+Nàng một đôi đồng tử toát ra chói mắt màu xanh thánh quang, bạo phát đi ra thánh uy, chấn động vùng thiên địa này.
+
+"Thanh Nguyệt Lạc Tổ, lại là Thanh Nguyệt Lạc Tổ, vậy những Thánh Minh nghịch tặc kia hẳn phải chết không nghi ngờ, Hoàng tộc uy nghiêm, không phải bọn hắn có thể mạo phạm."
+
+"Thanh Nguyệt Lạc Tổ là cùng Thanh Đế nhân vật cùng một thời đại, tính toán ra, hẳn là Thanh Đế đường muội, như vậy lão quái vật vậy mà đều còn sống, thật sự là không thể tưởng tượng nổi."
+
+"Nàng trong lòng đất ngủ say, mà lại hấp thu Thánh Minh Trung Ương đế quốc lịch đại Hoàng Giả đại lượng thánh lực, đây mới thật sự là nhân vật kinh khủng."
+
+Thanh Nguyệt Lạc Tổ một cây sợi tóc màu bạc phiêu động lên, có lít nha lít nhít Thánh Đạo quy tắc quay chung quanh sợi tóc lưu chuyển, sau đó, hóa thành một đạo mấy chục dặm dài màu bạc Thiên Đao, hướng Huyết Nguyệt Quỷ Vương chém đi qua.
+
+Từ trong miệng của nàng, phát ra một đạo thanh âm khàn khàn: "Dám giết Hoàng tộc thân vương, nhất định phải trả giá đắt."
+
+Tuy là một cây tóc bạc, lại là mang theo kinh khủng lực lượng hủy diệt, đem Trương Nhược Trần, A Nhạc, Bạch Lê công chúa đánh ra phòng ngự thủ đoạn đánh xuyên, cho dù là Phật Đế Xá Lợi Tử bản nguyên lực lượng đều không thể chống cự.
+
+Ngay tại Trương Nhược Trần liều mạng điều động Càn Khôn giới lực lượng thời điểm, nơi xa, một mảnh Hạo Nhiên chính khí bay đi, đúng là đem Thanh Nguyệt Lạc Tổ tóc bạc thổi bay ra ngoài.
+
+Tất cả lực lượng hủy diệt, trong nháy mắt, hóa thành vô hình.
+
+Thanh Nguyệt Lạc Tổ hai mắt ngưng tụ, trầm giọng nói: "Trong Thánh Minh nghịch tặc, lại có một vị Nho Đạo Thánh Vương, các hạ còn không hiện thân?"
+
+Hạo Nhiên chính khí trong mây mù, một người mặc màu trắng thánh bào, mang theo Tinh Không Mặt Nạ bóng người hiện ra, cho dù toàn thân đều bị bao phủ, nhưng như cũ cho người ta một loại văn nhã cảm giác, trên người có đại nho khí chất.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1391
+
+Chương 1388: Nho Đạo Thánh Vương
+
+Đệ Nhất Trung Ương đế quốc thành lập về sau, đại lực đến đỡ Nho Đạo, sử dụng Nho Đạo đến kiềm chế Thái Cực Đạo cùng Vạn Phật Đạo, khiến cho ba đạo thế lực đạt tới một loại cân bằng.
+
+Chính là bởi vì nguyên nhân này, Nho Đạo cùng Đệ Nhất Trung Ương đế quốc có thiên ti vạn lũ liên hệ, quan văn cơ hồ đều là từ trong Nho Đạo truyền nhân tuyển bạt.
+
+Cho dù là toàn bộ Nho Đạo, có thể tu luyện tới Tinh Thần Lực Thánh Vương cảnh giới nhân vật, cũng là có thể đếm được trên đầu ngón tay, mỗi một cái đều có tên có tuổi, tuyệt đối là Nho Đạo tổ sư cấp bậc tồn tại.
+
+Trong Thánh Minh nghịch tặc, thế mà xuất hiện một vị Nho Đạo Thánh Vương, trong Lăng Tiêu Thiên Vương Phủ những Nho Thánh, Binh Thánh kia tự nhiên là vô cùng giật mình.
+
+"Nho Đạo bốn đại thánh địa tông chủ, cũng không có đạt tới Thánh Vương cảnh giới, người này lại so tứ đại tông chủ còn muốn lợi hại hơn, rốt cuộc là ai? Vì sao muốn cùng Trương Nhược Trần cùng một chỗ tạo phản?"
+
+Không chỉ có là bọn hắn, liền ngay cả Trương Nhược Trần cũng đều hơi kinh ngạc, không ngờ rằng, trong Hộ Long các, ngoại trừ Thái Nhất tổ sư, lại còn có một vị Thánh Vương.
+
+Không hổ là danh xưng đế quốc nội tình, Hộ Long các thực lực, cường đại đến có chút biến thái.
+
+"Ngươi rốt cuộc là ai?" Thanh Nguyệt Lạc Tổ hỏi.
+
+Vị kia Nho Đạo Thánh Vương thanh âm rất lạnh nhạt , nói: "Hỏi nhiều như vậy làm cái gì? Người giống như ngươi, đã sớm hẳn là chết đi, cần gì phải ngủ say trong lòng đất tham sống sợ chết?"
+
+Thanh Nguyệt Lạc Tổ nói: "Nữ Hoàng đã thành thần, thần lực bao trùm toàn bộ thiên địa, chỉ cần một câu liền có thể định sinh tử của ngươi. Ngươi chẳng lẽ liền không sợ chết sao?"
+
+"Có nhiều thứ, so với chính mình sinh mệnh quan trọng hơn. Như ngươi loại người ngủ say trong lòng đất kéo dài hơi tàn, chỉ muốn sống lâu mấy trăm năm này, lại thế nào khả năng lý giải? Sinh mệnh có thể chỉ là trong nháy mắt, nhưng là, lại nhất định phải không sợ, cho dù là thiêu thân lao đầu vào lửa, cũng có thể tách ra ánh lửa sáng ngời." Vị kia Nho Đạo Thánh Vương nói ra.
+
+"Tốt, ta đến thành toàn ngươi."
+
+Thanh Nguyệt Lạc Tổ điều động Băng hệ Thánh Đạo quy tắc, bầu trời trên đỉnh đầu biến thành màu xanh, dưới chân đại địa bị hàn băng phong bế, mấy chục toà linh sơn cũng đều hóa thành núi tuyết.
+
+Vùng thiên địa này quy tắc, tựa như là phát sinh cải biến, xuất hiện một chút dị tượng kinh người, có long ảnh màu xanh từ lòng đất lao ra, có thác nước từ không trung chảy xuôi xuống tới, có từng đạo thánh ảnh quay chung quanh Thanh Nguyệt Lạc Tổ phi hành.
+
+"Lạc Tổ đại nhân vô địch thiên hạ, nhất định có thể trấn sát Thánh Minh nghịch tặc."
+
+"Cũng chỉ có Thánh Vương cấp bậc nhân vật, mới có như vậy cải thiên hoán địa lực lượng."
+
+Thanh Nguyệt Lạc Tổ nâng lên một bàn tay, vung chém ra ngoài, từng đạo Thanh Long hư ảnh cũng cùng theo một lúc liền xông ra ngoài, đem mảnh Hạo Nhiên chính khí kia xé nát.
+
+"Thiên địa hữu chính khí, Tạp nhiên phú lưu hình."
+
+Vị kia Nho Đạo Thánh Vương trong miệng, đọc lên một câu như vậy, lập tức, có sáng tỏ bạch quang, từ trên người hắn dâng trào đi ra, hóa thành càng thêm hùng hậu Hạo Nhiên chính khí.
+
+"Hạ tắc vi hà nhạc, Thượng tắc vi nhật tinh."
+
+Hạo Nhiên chính khí bao phủ thiên địa, dưới chân hắn, ngưng kết thành sơn nhạc cùng đại giang; tại đỉnh đầu của hắn, ngưng kết thành đầy trời tinh thần.
+— QUẢNG CÁO —
+
+
+"Vu nhân viết hạo nhiên, Phái hồ tắc thương minh."
+
+. . .
+
+Vị kia Nho Đạo Thánh Vương mỗi đi về phía trước ra một bước, trong miệng liền sẽ đọc lên một câu « Chính Khí Vân Trung Ca », Hạo Nhiên chính khí càng ngày càng bàng bạc, phảng phất có thể tận mắt thấy sơn nhạc nguy nga, có thể nghe được giang hà chảy xiết tiếng sóng.
+
+Mỗi một cái văn tự, đều là một ngôi sao.
+
+Thanh Nguyệt Lạc Tổ đánh ra Thanh Long hư ảnh cùng thủ ấn, trực tiếp bị Hạo Nhiên chính khí chấn vỡ.
+
+"Phốc phốc."
+
+Đầy trời tinh thần trụy lạc xuống dưới, đánh cho Thanh Nguyệt Lạc Tổ miệng phun thánh huyết, lảo đảo lui lại, trên thân thêm ra từng cái lỗ máu, không nói ra được thê thảm.
+
+Một vị sống hơn một ngàn năm Hoàng tộc lão tổ, lại bị một vị thân phận không rõ Nho Đạo Thánh Vương toàn diện áp chế, vô luận là triều đình đại quân, Thánh Minh đại quân đều là cảm giác được vô cùng giật mình.
+
+"Nguyên lai thái tử tọa hạ lại có cường đại như thế nhân vật, khó trách dám tiến công Lăng Tiêu Thiên Vương Phủ."
+
+"Hôm nay, vô luận như thế nào, cũng muốn đánh hạ Lăng Tiêu Thiên Vương Phủ, để Trì gia cùng triều đình, hoàn lại 800 năm trước nợ máu."
+
+. . .
+
+Chiến đấu tiến vào gay cấn, càng ngày càng nhiều triều đình quân đội cùng Thánh Minh quân đội chém giết lẫn nhau, mỗi một khắc đều có trên vạn người chết đi, máu tươi thuận đường đi chảy xuôi, biến thành một đầu huyết hà.
+
+"Hổ Bí Thiên Vương ở đây, ai dám tại Lăng Tiêu Thiên Vương Phủ làm càn?"
+
+Một tòa đường kính trăm trượng Thánh Thành, từ đằng xa bay tới, một đường nghiền ép lên đi, có vượt qua 3 vạn Thánh Minh đại quân trong nháy mắt bị trấn sát, trong đó còn bao gồm hai vị Thánh cảnh cường giả.
+
+Vị kia Hổ Bí Thiên Vương cường thế đến rối tinh rối mù, phảng phất là có thể hủy diệt thế gian hết thảy.
+
+"Bành bành."
+
+Thánh Thành đều đã bay qua, trên mặt đất thân thể những Thánh Minh quân sĩ cùng Thánh Giả kia mới là bạo liệt mà ra, hóa thành từng đám từng đám huyết vụ.
+
+Thánh Thành bay vào Lăng Tiêu Thiên Vương Phủ, hướng về kia vị Nho Đạo Thánh Vương va đập tới, ngăn cản hắn tiếp tục ra tay với Thanh Nguyệt Lạc Tổ.
+
+Vị kia Nho Đạo Thánh Vương lộ ra không nhanh không chậm, kết xuất một đạo thủ ấn, tiếp tục đọc lên « Chính Khí Vân Trung Ca » , nói: "Đương kỳ quán nhật nguyệt, Sinh tử an túc luận."
+
+Một vòng liệt nhật cùng một vầng minh nguyệt đồng thời hiển hiện ra, cùng đối diện bay tới Thánh Thành phát sinh va chạm mạnh, một cỗ gợn sóng năng lượng điên cuồng dũng xuất ra ngoài, đem hộ cung cổ trận bộ phận Minh Văn đều xé nát.
+
+Trương Nhược Trần liên tiếp trải qua mười sáu lần điều động, rốt cục thành công điều động ra Càn Khôn giới thế giới chi lực, đem Huyết Nguyệt Quỷ Vương, Bạch Lê công chúa, A Nhạc bọn người bảo hộ ở sau lưng, ngăn cản được từ hai vị Thánh Vương trên thân truyền ra công kích dư ba.
+
+Trương Nhược Trần ngẩng đầu nhìn lại, chỉ gặp, trong toà Thánh Thành trăm trượng kia, ngồi một vị râu ria đại hán, người mặc Bạch Hổ Thánh Giáp, phảng phất là một tôn Chiến Thần giá lâm.
+
+Trong Thánh Minh thành, không chỉ có chỉ có một tòa Lăng Tiêu Thiên Vương Phủ, còn có khác một chút Thiên Vương, cũng đem phủ đệ xây ở chỗ này.
+
+Hổ Bí Thiên Vương, chính là một cái trong số đó, vừa vặn gần nhất hắn đợi tại Thánh Minh thành, phát giác được trong Thánh Minh thành biến đổi lớn, lập tức khống chế một tòa Thánh Thành, chạy tới cứu viện.
+
+Hổ Bí Thiên Vương chính là Binh bộ cao tầng, quanh năm tọa trấn Hỗn Độn Vạn Giới Sơn, Nữ Hoàng thành thần đằng sau, mới trở lại Côn Lôn giới.
+
+"Đa tạ Hổ Bí Thiên Vương tới cứu viện, vị này Nho Đạo Thánh Vương cường độ tinh thần lực tuyệt đối không chỉ cấp 55 đơn giản như vậy, là một cái nhân vật tương đương lợi hại. Thiên Vương trước đem hắn ngăn trở một lát, ta đi điều động hộ cung cổ trận lực lượng, sử dụng cổ trận lực lượng, đem hắn trấn sát."
+
+Thanh Nguyệt Lạc Tổ vết thương trên người, nhanh chóng khép lại, sau đó, hóa thành một vòng thanh nguyệt, hướng Lăng Tiêu Thiên Vương Phủ chỗ sâu bay đi.
+
+"Muốn điều động hộ cung cổ trận, trước qua lão phu cửa này."
+
+Thái gia lão tổ dẫn theo một ngụm màu tử kim cổ kiếm, đạp nát từng mảnh từng mảnh đại địa, huy kiếm hướng Thanh Nguyệt Lạc Tổ oanh kích tới, hét lớn một tiếng: "Thái tử điện hạ, nội các đại thần Thái Nguyên Tịch đến đây giúp ngươi giết địch, trọng chấn Thánh Minh hùng uy."
+
+Thanh Nguyệt Lạc Tổ cùng Thái gia lão tổ tu vi tại sàn sàn với nhau, thế nhưng là, lúc trước Thanh Nguyệt Lạc Tổ lại bị Hạo Nhiên chính khí kích thương, tự nhiên cũng liền ăn thua thiệt rất lớn, bị Thái gia lão tổ một kiếm bổ đến ném đi ra ngoài.
+
+Thanh Nguyệt Lạc Tổ vô cùng phẫn nộ, hô lên một tiếng: "Thái Nguyên Tịch, ngươi lão bất tử này đồ vật, cũng dám phản Đệ Nhất Trung Ương đế quốc?"
+
+"Năm đó, nếu không phải Minh Đế đại nhân mất tích, thái tử gặp chuyện, triều đình loạn quyền, trong Thánh Minh thành khắp nơi đều là một hồi gió tanh mưa máu, lão phu làm sao có thể đầu hàng các ngươi? Nếu thái tử trở về, Thánh Minh Trung Ương đế quốc lại có chính thống, lão phu tự nhiên là muốn vì Minh Đế đến đỡ thái tử, nếu không, như thế nào xứng đáng Minh Đế đại nhân ơn tri ngộ?"
+
+Thái gia lão tổ tóc dài bay lên, đỏ bừng cả khuôn mặt, thể nội thánh khí mãnh liệt vận chuyển, trong tay Tử Kim cổ kiếm hóa thành một tòa Tử Kim sơn kiếm sơn, hướng về Thanh Nguyệt Lạc Tổ nghiền ép xuống dưới.
+
+Vị này gần đất xa trời lão giả, nhìn thấy Thánh Minh chiến kỳ thời điểm, chính là nhiệt huyết sôi trào, so rất nhiều tu sĩ trẻ tuổi còn kích động hơn cùng điên cuồng.
+
+Rất nhanh, Lăng Tiêu Thiên Vương Phủ bên ngoài, Thái gia tu sĩ, kết hợp thành một chi đại quân, công sát đi qua.
+
+Trương Nhược Trần trong lòng biết thời gian rất gấp bách, Đệ Nhất Trung Ương đế quốc nước rất sâu, cường giả như mây, thời gian kéo càng lâu, đối với Thánh Minh đại quân thế cục liền sẽ càng là bất lợi.
+
+Cho dù có 12 khỏa Phật Đế Phật châu phong bế toàn thành, thế nhưng là, Nho Đạo còn có Thiên Địa Kỳ Cục, có thể nhìn rõ thiên cơ, biết được toàn bộ Côn Lôn giới phát sinh đại sự.
+
+Nhất định phải tốc chiến tốc thắng.
+
+Nhất định phải nhanh nắm giữ Đại Thánh Minh Văn trong Chư Hoàng Từ Đường, mới có thể khóa chặt thắng cục.
+— QUẢNG CÁO —
+
+A Nhạc cùng Thất vương gia đối đầu, Huyết Nguyệt Quỷ Vương thì là cùng Tứ Thập Lục vương gia đánh nhau.
+
+Có hai người bọn họ ngăn trở Hoàng tộc lão cổ đổng, Trương Nhược Trần vận dụng ra tốc độ nhanh nhất, từ Thánh Vương chiến trường kẽ hở, xông vào tiến trong mảnh linh sơn kia, chỉ muốn mau chóng tiến vào Chư Hoàng Từ Đường.
+
+"Chạy đi đâu, cùng bản vương lưu lại."
+
+Lòng đất, vang lên một tiếng bạo rống, một mảnh thánh quang dũng mãnh tiến ra.
+
+Vậy mà lại có một vị trong lòng đất ngủ say Hoàng tộc thân vương thức tỉnh, thi triển một đạo thánh thuật quyền ấn, từ dưới lên trên đánh ra. Đương nhiên, tu vi của hắn, không có Thất vương gia bọn người khủng bố như vậy, chỉ là một vị Chân Thánh sắp chết không chết.
+
+Trương Nhược Trần liên tiếp đánh ra mười đạo Long Tượng Bàn Nhược Chưởng, vô số long ảnh cùng tượng ảnh bày biện ra đến, điên cuồng đánh vào vị thân vương kia trên thân, đem hắn thánh khu đánh cho bạo liệt.
+
+Tiến vào linh sơn chỗ sâu, một cỗ lực lượng vô hình, tác dụng ở trên thân Trương Nhược Trần, áp chế đến Trương Nhược Trần rơi xuống mặt đất, không cách nào tiếp tục bảo trì phi hành.
+
+Đã tiến vào Chư Hoàng Từ Đường khu vực bên ngoài, không gian kết cấu trở nên vô cùng vững chắc, thiên địa quy tắc phát sinh biến hóa kỳ dị , bất luận sinh linh gì cũng không thể trong này phi hành.
+
+Đột nhiên, có tiếng long ngâm vang lên, xa xa trong một mảnh thánh quang, xông ra chín đầu có được Thánh cảnh tu vi Giao Long.
+
+Chín đầu Thánh Long đồng thời chạy, loại uy thế cường đại kia, khiến cho mảnh này kết cấu vững chắc đại địa đều tại khẽ chấn động.
+
+Tại Cửu Long hậu phương, thì là một mảnh chói lọi hào quang màu vàng, trong lúc mơ hồ, có thể trông thấy hào quang màu vàng nội bộ, lại là một chiếc khung xe.
+
+"Kim Bộ Long Liễn."
+
+Trương Nhược Trần hai mắt co rụt lại, nhận ra đó là phụ hoàng hắn Minh Đế chiến xa, tức được xưng là Kim Bộ Long Liễn, cũng được xưng là "Cửu Long Liễn", chính là một kiện vô cùng lợi hại Vạn Văn Thánh Khí.
+
+Chín đầu Giao Long thân thể biến thành xích hồng sắc, tản mát ra nóng rực lực lượng, ngay sau đó, theo bọn chúng trong miệng, đồng thời phun ra một ngụm Thánh Hỏa, xoay quấn ở cùng một chỗ, hướng Trương Nhược Trần mạnh vọt qua.
+
+Sóng lửa ngập trời, có phần thiên chử hải uy lực kinh khủng.
+
+Trương Nhược Trần chống lên Không Gian lĩnh vực, vận dụng ra không gian vặn vẹo thủ đoạn, vốn là hướng hắn vọt tới sóng lửa, tại cách hắn còn có 10 trượng thời điểm, vậy mà đảo ngược tuôn trở về.
+
+Trong Kim Bộ Long Liễn, truyền ra một thanh âm tuổi trẻ mà có chút kiêu căng: "Không hổ là Thời Không truyền nhân, ngươi vẫn có chút bản sự."
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1392
+
+Chương 1389: Thiên Đạo Kiếm Quyết
+
+Trương Nhược Trần giật mình, nghĩ tới điều gì , nói: "Ngươi chính là 200 năm trước Trì gia vị tuyệt thế thiên kiêu kia?"
+
+"Không sai."
+
+Ngồi ở trong Kim Bộ Long Liễn Trì Độc Phượng, trong giọng nói, lộ ra một cỗ cường đại tự tin.
+
+Lấy hắn thân phận Hoàng tộc tử đệ tôn quý kia, còn có đạt tới Kiếm Thánh cảnh giới Kiếm Đạo tạo nghệ, tại trong cùng thế hệ có thể xưng nhân vật thủ lĩnh, thậm chí so với lão bối Thánh Giả tu luyện năm sáu trăm năm kia còn cường đại hơn, có được thành tựu như vậy, đích thật là hẳn là tự tin.
+
+Trì Độc Phượng nói: "Ngươi có thể xông đến nơi này đến, xem ra trong những Thánh Minh phản tặc kia, còn có không ít cao thủ. Phía ngoài chiến đấu, hẳn là rất khốc liệt a?"
+
+"Hoàn toàn chính xác rất khốc liệt, rất nhiều Trì gia tử đệ đều bị gạt bỏ, bao quát một chút sống hơn mấy trăm năm lão gia hỏa, cũng đều bị xử lý." Trương Nhược Trần rất không khách khí nói ra.
+
+Trì Độc Phượng so với ai khác đều rõ ràng Lăng Tiêu Thiên Vương Phủ thực lực cường đại đến cỡ nào, chỉ bằng Thánh Minh phản tặc điểm này thực lực, có thể đánh vào tiến đến chỉ sợ đều là bỏ ra cái giá rất lớn.
+
+Muốn trọng thương Lăng Tiêu Thiên Vương Phủ, còn kém rất xa.
+
+Trì Độc Phượng hừ nhẹ một tiếng, hiển nhiên là không tin Trương Nhược Trần lời nói, cười nói: "Ngươi đi vào Chư Hoàng Từ Đường mục đích, hẳn là muốn khống chế Đại Thánh Minh Văn, thay đổi bên ngoài ác liệt chiến cuộc, đúng không? Đáng tiếc, ngươi gặp bản vương, nhất định hôm nay Thánh Minh phản tặc sẽ toàn quân bị diệt."
+
+Trương Nhược Trần không muốn tiếp tục cùng hắn nói nhảm, chuẩn bị bằng tốc độ nhanh nhất trấn sát hắn, thế là, toàn lực ứng phó điều động Càn Khôn giới thế giới chi lực.
+
+Liên tiếp điều động chín lần, lập tức, một cỗ cuồn cuộn vô biên lực lượng, từ trong Càn Khôn giới tuôn ra, thông qua Trương Nhược Trần năm cái thánh mạch bạo phát đi ra.
+
+Trương Nhược Trần huy động Trầm Uyên cổ kiếm, chém ngang tới.
+
+"Cỗ lực lượng này, thật đáng sợ. . ."
+
+Trì Độc Phượng phát giác được từ trên thân Trương Nhược Trần sức mạnh bùng lên ba động rất không thích hợp, sắc mặt hơi biến đổi, hai tay hướng về phía trước nhấn một cái, thể nội thánh khí liên tục không ngừng tràn vào tiến chín đầu xiềng xích, hướng chín đầu Giao Long truyền đi qua.
+
+"Cửu Long Hợp Nhất, Hoành Tảo Bát Hoang."
+
+Chín đầu Thánh cảnh Giao Long thể nội, có ánh sáng nóng rực dâng trào đi ra, những Thánh Đạo lực lượng kia xoay quấn ở cùng một chỗ, chiếu sáng vùng thiên địa này.
+
+Tại chín đầu Thánh cảnh Giao Long trên không, bày biện ra một đầu Thần Long hư ảnh, giống như Cửu Long hợp nhất đồng dạng, Thánh Đạo lực lượng cũng là chồng chất lên nhau, nghênh kích đi lên.
+
+"Ầm ầm."
+
+Điều động Càn Khôn giới thế giới chi lực, Trương Nhược Trần có thể kích phát ra Trầm Uyên cổ kiếm viên mãn lực lượng, trên kiếm phong, có vạn trượng hắc quang trào ra ngoài, đánh cho đầu kia Thần Long hư ảnh sụp đổ.
+
+Mũi kiếm chém ngang tới, đánh đâu thắng đó, đúng là một kiếm đem chín đầu Thánh cảnh Giao Long thân thể toàn bộ đều chặt đứt, long huyết giống như chín đầu màu đỏ như máu thác nước vương xuống đến, chín khỏa đầu rồng cung điện khổng lồ như vậy, hướng về hậu phương ném đi ra ngoài.
+
+Nếu là có ngoại nhân ở đây, khẳng định sẽ bị dọa sợ.
+— QUẢNG CÁO —
+
+Trương Nhược Trần một kiếm này có vô địch chi thế, kiếm khí tuôn ra đi đằng sau, kém một chút đánh cho Kim Bộ Long Liễn ngã ngửa trên mặt đất. Bất quá, Kim Bộ Long Liễn là khá là ghê gớm bảo vật, có không có gì sánh kịp lực phòng ngự, vậy mà đem kiếm khí dư ba cản lại.
+
+Chín đầu Thánh Long bị Trương Nhược Trần một kiếm toàn bộ chém giết.
+
+Trì Độc Phượng tâm tư khó mà bình tĩnh, vô cùng kinh ngạc.
+
+Tại Ma giáo tổng đàn, Trương Nhược Trần liên tiếp thi triển ra ba chiêu, cũng chỉ là miễn cưỡng đánh lui Mộc Kình Thiên, thực lực là có thể đánh giá. Nhưng là, giờ phút này hắn bạo phát đi ra thực lực, so Mộc Kình Thiên đâu chỉ cường đại gấp 10 lần.
+
+"Không đúng, trên người hắn lực lượng, ngay tại nhanh chóng hạ thấp."
+
+Trì Độc Phượng tỉnh ngộ lại, vừa rồi một kiếm kia, cũng không phải Trương Nhược Trần thực lực chân thật, mà là mượn ngoại lực.
+
+Nghĩ đến đây, hắn mới bình tĩnh lại.
+
+Chỉ cần là mượn dùng ngoại lực, khẳng định là muốn trả một cái giá thật là lớn, mà lại, cũng không có khả năng sở tâm sở dục vận dụng cỗ lực lượng kia. Bằng không, tất cả mọi người đi mượn dùng ngoại lực, ai còn sẽ cước đạp thực địa nghiêm túc tu luyện?
+
+Trì Độc Phượng cũng trong tay nắm giữ mượn dùng ngoại lực thủ đoạn, thế nhưng là, không đến sinh tử tồn vong thời điểm, tuyệt đối sẽ không sử dụng.
+
+"Thật cường đại thực lực, Trương Nhược Trần, ngươi quả nhiên là có ẩn tàng át chủ bài, đáng tiếc, ngươi đã đi đến tự hủy chi lộ. Đối với chân chính thiên kiêu mà nói, mượn dùng ngoại lực chiến đấu, có trăm hại mà không một lợi."
+
+Trì Độc Phượng nhìn ra Trương Nhược Trần là một cái cường địch, thế là, cười to một tiếng, chuẩn bị trước dùng ngôn ngữ đánh tan Trương Nhược Trần tâm cảnh: "Lúc đầu, bản vương coi là, lấy thiên tư của ngươi, hẳn là có thể tu luyện tới Đại Thánh cảnh giới, trở thành Minh Đế như thế cái thế bá chủ. Đáng tiếc, ta đánh giá cao ngươi."
+
+"Đại Thánh phía dưới, ở chỗ ngộ tính cùng thiên phú. Đại Thánh phía trên, lại càng cần hơn luyện tâm."
+
+"Tại ngươi không kiêng nể gì cả mượn dùng ngoại lực thời điểm chiến đấu, tâm của ngươi, đã bị ăn mòn. Ngươi là đang tiêu hao tự thân tiềm lực, ma diệt ý chí của mình, chỉ là hình nhất thời lực lượng, hủy đi toàn bộ con đường tu luyện."
+
+Hắn lại không biết, Trương Nhược Trần rất rõ ràng đạo lý này.
+
+Bất kỳ vật gì, đều là có lợi có hại, tại ngươi đạt được lực lượng cường đại đồng thời, khẳng định sẽ bỏ ra một chút nhìn không thấy đại giới to lớn.
+
+Nếu không phải vội vàng muốn đi vào Chư Hoàng Từ Đường, Trương Nhược Trần cũng sẽ không chủ động điều động Càn Khôn giới thế giới chi lực.
+
+"Tự cho là đúng. Người giống như ngươi, tâm cảnh mới có càng lớn sơ hở."
+
+Trương Nhược Trần lần nữa điều động Càn Khôn giới thế giới chi lực, đáng tiếc, lại điều động thất bại, không thể thành công.
+
+Trì Độc Phượng nắm lấy thời cơ, không cho Trương Nhược Trần tiếp tục mượn dùng ngoại lực cơ hội, nhấc lên một thanh Thánh Kiếm, từ trong Kim Bộ Long Liễn lao ra, kích phát ra « Thanh Chiếu Thần Công », điều động ra Kiếm Thất kiếm ý, công liền một hơi ba kiếm.
+
+"Thiên Tượng Tam Kiếm."
+
+Kiếm thứ nhất, như là kinh thế gió lốc, có ngàn vạn đạo phong nhận đi theo kiếm khí du tẩu, hội tụ thành một cây kiếm khí dây dài.
+
+Kiếm thứ hai, có lôi âm cùng điện quang bạo phát đi ra, ngưng tụ ra một mảnh rộng lớn lôi điện hải dương, vẻn vẹn chỉ là bạo phát đi ra lôi âm, liền có thể chấn vỡ một chút Thánh Giả màng nhĩ.
+
+Kiếm thứ ba, kiếm khí như là mưa to đồng dạng rơi xuống, cùng gió lốc cùng lôi điện hòa làm một thể, hỗ trợ lẫn nhau, một tầng chồng lên một tầng, uy lực liên tục tăng lên.
+
+Cái gọi là Thiên Tượng Tam Kiếm, chính là căn cứ ba loại thiên tượng sáng lập đi ra kiếm pháp, có thể cùng Thiên Đạo quy tắc phù hợp, mỗi một kiếm đều là thánh thuật.
+
+Chỉ có Kiếm Thánh mới có thể để cho ba chiêu kiếm pháp hòa làm một thể, từ đó uy lực gấp đôi chồng tăng.
+
+Đối mặt Trì Độc Phượng cường giả như vậy, Trương Nhược Trần nhất định phải toàn lực ứng phó, phóng xuất ra kiếm ý, thi triển ra Thao Thiên Kiếm nhất mạch kiếm pháp, Chân Nhất Lôi Hỏa kiếm pháp.
+
+"Thần Tiêu Chân Lôi."
+
+Bầu trời trở nên đen kịt một màu, mấy trăm đạo lôi điện, từ trên trời giáng xuống, cùng Trầm Uyên cổ kiếm hòa làm một thể, vung chém ra ngoài, nghênh tiếp Trì Độc Phượng đánh ra Thiên Tượng Tam Kiếm.
+
+"Ầm ầm."
+
+Hai cỗ cường đại kiếm ý cùng kiếm khí phát sinh va chạm mạnh, đây là Kiếm Thánh cấp bậc quyết đấu, đối với tu sĩ bình thường mà nói, giống như là Chân Thần đang chiến đấu.
+
+Tại trong đoàn kiếm khí lít nha lít nhít kia, Trương Nhược Trần lui đi ra, liên tiếp lui lại mấy chục bước, rơi xuống bên ngoài mấy dặm. Trên người hắn áo bào xuất hiện mấy chục đạo vết nứt, liền ngay cả tóc cũng bị chặt đứt một sợi.
+
+Trì Độc Phượng người mặc màu vàng vương bào, lộ ra vô cùng anh tuấn thoải mái, một cỗ màu xanh thánh khí, như là gợn sóng đồng dạng dũng xuất ra ngoài, làm vỡ nát bốn phía kiếm khí.
+
+Tay hắn cầm Thánh Kiếm, nhìn xem có chút chật vật Trương Nhược Trần, khóe miệng lộ ra một đạo ý cười , nói: "Ngươi biết vì cái gì bản vương lại ở chỗ này chờ ngươi? Bởi vì, Chư Hoàng Từ Đường bên ngoài vùng thiên địa này, thời gian cùng không gian kết cấu đều mười phần vững chắc, có thể trình độ lớn nhất áp chế ngươi lực lượng không gian cùng thời gian. Muốn trách, chỉ có thể trách các ngươi Trương gia lão tổ tông, trong này khắc lục Minh Văn quá nhiều."
+
+Rất rõ ràng, Trì Độc Phượng mặc dù cuồng ngạo đến có chút không coi ai ra gì, nhưng, lại là một người tương đương thông minh, làm việc cũng rất cẩn thận cẩn thận, bằng không, giống hắn người tính tình như vậy, cũng sẽ không sống hơn 200 năm đều không có chết.
+
+Từ vừa mới bắt đầu, Trì Độc Phượng ngay tại công kích Trương Nhược Trần tâm cảnh.
+
+Bởi vì, hắn biết rõ, Kiếm Thánh cấp bậc giao phong, đấu tâm vi thượng, đấu kiếm vi hạ. Một khi tâm cảnh bị công phá, cũng liền thua không nghi ngờ.
+
+Trì Độc Phượng đã từng bằng vào dung hợp đằng sau "Thiên Tượng Tam Kiếm", sở hướng vô địch, gặp thần giết thần, gặp ma giết ma, Trương Nhược Trần có thể ngăn trở "Thiên Tượng Tam Kiếm", kỳ thật, nội tâm của hắn là tương đương giật mình, không hề giống mặt ngoài nhẹ nhàng như vậy.
+
+Trì Độc Phượng một tay rút kiếm, một tay vác tại sau lưng, đi bộ nhàn nhã đồng dạng đi về phía trước , nói: "Nói thực ra, thực lực của ngươi, có chút vượt quá bản vương đoán trước. Đáng tiếc, trong vòng mười chiêu, như trước vẫn là muốn chết tại bản vương dưới kiếm."
+
+Trương Nhược Trần tâm, kiên cố, mảy may đều không bị ảnh hưởng , nói: "Thực lực của ngươi, cũng có chút vượt quá dự liệu của ta."
+
+"Thật sao?"
+
+Trì Độc Phượng hơi cười một tiếng.
+— QUẢNG CÁO —
+
+Ngay sau đó, Trương Nhược Trần lại nói: "Nghe nói, 200 năm trước, ngươi có thể cùng Lạc Hư tiền bối giao thủ hơn mười chiêu mà không bại. Mà bây giờ, chỉ sợ Lạc Hư tiền bối chỉ cần một quyền, liền có thể đưa ngươi đánh chết. Những năm này, ngươi đã triệt để tụt lại phía sau!"
+
+Trì Độc Phượng nụ cười trên mặt biến mất, sát cơ lộ ra , nói: "Xem ra, đến làm cho ngươi kiến thức bản vương chân chính thực lực, để cho ngươi đã chết tâm phục khẩu ngữ."
+
+"Thiên Ý Tam Kiếm."
+
+Lả tả thanh âm vang lên.
+
+Trì Độc Phượng trong tay Thánh Kiếm, xông ra hơn vạn đạo kiếm khí, bay thật nhanh ở chung quanh vùng thiên địa này.
+
+Trương Nhược Trần sắc mặt hơi biến đổi, thầm nghĩ: "Trì Độc Phượng đem Thiên Ý Tam Kiếm cũng tu luyện thành công sao?"
+
+Vô luận là "Thiên Tượng Tam Kiếm", hay là "Thiên Ý Tam Kiếm", kỳ thật đều là kiếm pháp trong « Thiên Đạo Kiếm Quyết », ở đây phía trên, còn có "Thiên Đạo Tam Kiếm" .
+
+Hết thảy chín chiêu kiếm pháp, đã có thể đơn độc thi triển, cũng có thể hòa làm một thể.
+
+Nếu là có người có thể đem « Thiên Đạo Kiếm Quyết » tu luyện tới chín kiếm hợp nhất, bạo phát đi ra uy lực, đủ để cùng đại viên mãn Kiếm Cửu, đánh đồng.
+
+"Thiên Ý Nan Vi."
+
+"Thiên Ý Nan Trắc."
+
+"Thiên Ý Dĩ Quyết."
+
+Liên tiếp ba chiêu kiếm pháp, dọc theo mấy vạn đạo kiếm khí cùng kiếm ảnh, phô thiên cái địa hướng Trương Nhược Trần mạnh vọt qua, tựa như là Kiếm Thần xuất thế một dạng, muốn đem Trương Nhược Trần đánh cho tan thành mây khói.
+
+"Cửu Cửu Quy Nhất."
+
+Trương Nhược Trần cũng không có lui lại cùng né tránh, mà là, điều động ra Kiếm Thất kiếm ý, thi triển ra Chân Nhất Lôi Hỏa kiếm pháp một chiêu mạnh nhất.
+
+Trong khoảnh khắc, Trương Nhược Trần thân thể chia ra làm chín, sau đó, lại chia làm 81.
+
+81 đạo thân ảnh dựa theo một loại kỳ dị quy tắc sắp xếp, lập tức, trên bầu trời phong vân biến ảo, hạ xuống hơn ngàn đạo lôi điện, cùng lúc đó, trên mặt đất toát ra cuồn cuộn hỏa diễm, tựa như là một mảnh hỏa vân bao vây lấy 81 cái Trương Nhược Trần.
+
+81 đạo thân ảnh đồng thời xuất thủ, huy kiếm chém ra ngoài, cùng Thiên Ý Tam Kiếm đối công.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1393
+
+Chương 1390: Vô địch chiến xa
+
+Chân Nhất Lôi Hỏa kiếm pháp cùng Lăng Phi Vũ tu luyện "Cửu Sinh Cửu Tử Cửu Chuyển Luân Hồi kiếm pháp" chính là cùng một cấp bậc, tuyệt đối không thua bởi « Thiên Đạo Kiếm Quyết ».
+
+Bất quá, tu vi của hai người, lại có rất lớn chênh lệch.
+
+Trương Nhược Trần thi triển ra Cửu Cửu Quy Nhất không thể ngăn trở Thiên Ý Tam Kiếm, mắt thấy hắn liền bị đầy trời kiếm khí đánh xuyên.
+
+"Không gian vặn vẹo." Trương Nhược Trần hét lớn một tiếng.
+
+Chư Hoàng Từ Đường bên ngoài không gian kết cấu tương đương vững chắc, Trương Nhược Trần dốc hết toàn lực, cũng chỉ là để không gian phát sinh một chút xíu vặn vẹo. Những kiếm khí hướng hắn bay đi kia, thay đổi phương hướng, quay chung quanh thân thể của hắn lựa chọn đứng lên.
+
+"Lại còn có thể động dụng lực lượng không gian."
+
+Trì Độc Phượng con mắt co rụt lại, một tay cầm kiếm, một cái tay khác ngón trỏ cùng ngón giữa kết hợp cùng một chỗ, tại trên thân kiếm vạch một cái, trong khoảnh khắc, tiến vào Nhân Kiếm Hợp Nhất cảnh giới.
+
+"Hoa —— "
+
+Trì Độc Phượng hóa thành một đạo kiếm khí lưu quang, va chạm hướng Trương Nhược Trần.
+
+Kiếm Thất!
+
+Một kiếm này mang theo cực hạn xuyên thấu chi lực, đủ để đối với không gian tạo thành nhất định ảnh hưởng.
+
+Trương Nhược Trần ánh mắt run lên, chỉ bằng hắn hiện tại đối với không gian khống chế, chỉ sợ là không cách nào hóa giải Trì Độc Phượng thi triển ra Kiếm Thất. Người này tu vi quá cường đại, chỉ sợ đã đạt tới Chân Thánh cảnh giới.
+
+Người khác nhau, tiến vào Chân Thánh cảnh giới, chiến lực có thể nói là khác nhau một trời một vực.
+
+Tỉ như, Thanh Tiêu tiến vào Chân Thánh cảnh giới, dù là chỉ là Chân Thánh sơ kỳ, cũng có thể lấy lực lượng một người, đối kháng một đám Chân Thánh.
+
+Năm người trên « Anh Hùng Phú », Bùi Vũ Điền, Vạn Triệu Ức, Trần Vô Thiên, Tâm Thuật phật sư, bọn hắn một khi bước vào Chân Thánh cảnh giới, so Thanh Tiêu liền muốn càng thêm cường đại một bậc.
+
+Trì Độc Phượng thiên tư cùng thể chế, cùng Thanh Tiêu so sánh yếu lược yếu ớt một chút, thế nhưng là, trên Kiếm Đạo lại là thiên phú kinh người, đạt đến Kiếm Thánh cảnh giới, lực công kích vô song, cho nên, lực chiến đấu của hắn cùng Thanh Tiêu nhưng thật ra là không kém bao nhiêu.
+
+Người như vậy, đạt tới Chân Thánh cảnh giới, để Chí Thánh đều sẽ có chút đau đầu.
+
+Tựa như Bùi Vũ Điền, chỉ là tu luyện tới "Nửa thật nửa hư" cảnh giới, khoảng cách Chân Thánh cũng còn chênh lệch một bước nhỏ, thế nhưng là, hắn tại dưới Chí Thánh đã vô địch, có thể quét ngang Chân Thánh.
+
+"Khai Nguyên Lộc Đỉnh."
+
+Trương Nhược Trần lấy ra Thánh Minh Trung Ương đế quốc Trấn quốc Tổ Khí, bàn tay hướng về phía trước nhấn một cái, đánh vào trên thanh đồng cổ đỉnh, trong khí hải, thánh khí điên cuồng tuôn ra đi.
+
+Trên chiếc đỉnh cổ, từng cái cổ văn màu vàng, tản mát ra hào quang chói mắt.
+
+"Bành."
+
+Trì Độc Phượng trong tay Thánh Kiếm, cùng thanh đồng cổ đỉnh đụng vào nhau, phát ra một đạo âm vang âm thanh lớn.
+
+Từ trong cơ thể hắn tuôn ra Kiếm Đạo lực lượng, chấn động đến Khai Nguyên Lộc Đỉnh cùng Trương Nhược Trần một đường hướng về sau lùi lại, một mực thối lui hơn mười dặm khoảng cách.
+
+Trương Nhược Trần phát giác được Trì Độc Phượng Kiếm Đạo lực lượng ngay tại nhanh chóng yếu bớt, thế là, nắm lấy thời cơ, toàn lực ứng phó bộc phát, song chưởng đồng thời theo ở trên Khai Nguyên Lộc Đỉnh, kích phát ra một tia bản nguyên lực lượng.
+— QUẢNG CÁO —
+
+Lập tức, trên thanh đồng cổ đỉnh to lớn, ngưng tụ ra một tôn Bất Động Minh Vương hư ảnh.
+
+Cái bóng mờ kia, một chưởng đánh về phía Trì Độc Phượng.
+
+"Thời cơ ngược lại là nắm chắc rất chuẩn."
+
+Giờ phút này, Trì Độc Phượng chính là kiếm thế yếu bớt thời điểm, bị bất đắc dĩ, đành phải điều động ra tàn lực, lần nữa thi triển ra Thiên Tượng Tam Kiếm, lấy công làm thủ, hướng đạo chưởng ấn màu vàng kia vung chém tới.
+
+"Phanh phanh phanh."
+
+Bất Động Minh Vương thủ ấn, đánh nát Thiên Tượng Tam Kiếm, đánh vào ngực Trì Độc Phượng, đánh cho hắn miệng phun máu tươi, giống như diều bị đứt dây đồng dạng, hướng về sau ném đi ra ngoài.
+
+Thần Di Cổ Khí lực lượng, không phải hắn có thể ngăn cản.
+
+Trương Nhược Trần thừa thắng xông lên, cũng là tiến vào Nhân Kiếm Hợp Nhất cảnh giới, thi triển ra đại viên mãn Kiếm Thất, một kiếm đâm tới.
+
+Trì Độc Phượng cắn chặt răng răng, cưỡng ép thay đổi thân thể, ngừng bay ngược chi thế, một kiếm công ra ngoài, cùng Trương Nhược Trần đụng nhau một kích.
+
+"Ầm ầm."
+
+Hai người nhanh chóng tách ra, lần nữa kéo ra hơn mười dặm khoảng cách.
+
+Hai người đều bị thương, khóe môi nhếch lên vết máu.
+
+"Khó trách có thể lấy lực lượng một người đánh bại chín đại Giới Tử, mới vừa vặn tiến vào Triệt Địa cảnh, vậy mà liền có thể kích thương bản vương, thiếu niên Thần Linh cũng chưa chắc có ngươi cường đại như vậy."
+
+Trì Độc Phượng lau khô máu trên khóe miệng ngấn, song đồng toát ra hỏa diễm, trên người chiến ý trở nên càng thêm thịnh vượng.
+
+Trương Nhược Trần một câu cũng không có nói, chỉ là lần nữa điều động Càn Khôn giới thế giới chi lực, chỉ muốn mau chóng tiêu diệt Trì Độc Phượng.
+
+"Ngươi có Trấn quốc Tổ Khí, bản vương lại có Minh Đế Kim Bộ Long Liễn. Kim Bộ Long Liễn uy lực, ngươi hẳn là so bất luận kẻ nào đều rõ ràng a?"
+
+Trì Độc Phượng nhìn ra Trương Nhược Trần lại phải vận dụng lực lượng thần bí kia, thế là, cấp tốc lùi lại, bay đến Kim Bộ Long Liễn nội bộ, sau đó, thể nội thánh khí trào ra ngoài, rót vào tiến Long Liễn.
+
+Trong Kim Bộ Long Liễn, xông ra chín đầu to lớn long ảnh màu vàng, chỉnh tề sắp xếp tại phía trước, tản mát ra chói mắt kim quang. Chín đạo long ảnh bạo phát đi ra khí thế, so chín đầu Thánh cấp Giao Long còn kinh khủng hơn.
+
+Đây mới là Kim Bộ Long Liễn chân chính hình thái!
+
+Đương nhiên, lấy Trì Độc Phượng tu vi, còn chưa đủ lấy lâu dài chèo chống Cửu Long hư ảnh, cho nên nhất định phải tốc chiến tốc thắng, lấy thời gian ngắn nhất trấn sát Trương Nhược Trần.
+
+"Ầm ầm."
+
+Trì Độc Phượng khống chế lấy Kim Bộ Long Liễn, điên cuồng xông về trước đụng tới, đem một tòa linh sơn đều đâm đến sụp đổ, trong ngọn núi đất đá không ngừng rơi xuống dưới.
+
+Trương Nhược Trần không thể điều động ra Càn Khôn giới thế giới chi lực, thế là, nắm lên Khai Nguyên Lộc Đỉnh, không để ý thánh khí tiêu hao, toàn lực ứng phó kích phát trong đỉnh bản nguyên lực lượng.
+
+Một tôn mấy trăm trượng cao Bất Động Minh Vương hư ảnh hiển hóa ra ngoài, cùng Trương Nhược Trần thân thể trùng điệp cùng một chỗ, sau đó, hắn nhanh chân hướng Kim Bộ Long Liễn va chạm tới.
+
+Trì Độc Phượng đứng tại trên Kim Bộ Long Liễn, nhìn thấy va chạm tới Trương Nhược Trần, lộ ra một đạo nhe răng cười: "Muốn chết."
+
+Bất Động Minh Vương hư ảnh cùng Cửu Long hư ảnh đụng vào nhau, đồng thời, Trương Nhược Trần cũng đem Khai Nguyên Lộc Đỉnh đập ra ngoài, cùng Kim Bộ Long Liễn cứng đối cứng.
+
+Từng đạo chấn thiên động địa thanh âm bạo phát ra.
+
+Trương Nhược Trần ưu thế lớn nhất, chính là có được nhục thân cường hãn, không sợ cứng đối cứng.
+
+Nắm lấy Khai Nguyên Lộc Đỉnh, giống như nắm lấy một tòa thanh đồng núi nhỏ, không ngừng oanh kích Kim Bộ Long Liễn, có từng vòng từng vòng màu vàng thánh quang, hướng về nơi xa phun trào ra ngoài.
+
+"Tiểu tử này, làm sao cường hãn như vậy, chẳng lẽ là có dùng không hết lực lượng?"
+
+Giờ phút này, Trì Độc Phượng chèo chống Kim Bộ Long Liễn đều có chút cố hết sức, thế nhưng là, Trương Nhược Trần nhưng như cũ tinh lực thịnh vượng.
+
+Trương Nhược Trần nửa người trên áo bào đều đã bị chấn nát thành tro bụi, lộ ra một thân tràn ngập mỹ cảm cơ bắp, trên đầu tóc đen bay lên, bàn chân tại mặt đất đạp một cái, nhảy vọt lên, lại là một kích oanh kích xuống dưới, nện ở trên Kim Bộ Long Liễn.
+
+Cùng lúc đó, Thực Thánh Hoa từ Trương Nhược Trần phần lưng xông ra, hóa thành một cây dây leo, quấn chặt lấy Kim Bộ Long Liễn bốn cái xa luân.
+
+"Ầm ầm."
+
+Gặp trên dưới lưỡng trọng công kích, lập tức, Kim Bộ Long Liễn trọng tâm bất ổn, hất bay ra ngoài.
+
+Trì Độc Phượng từ trong Long Liễn rớt xuống, ngã xuống đến trên mặt đất, có vẻ hơi chật vật, không còn như lúc trước như vậy anh tuấn thoải mái.
+
+Trương Nhược Trần thả ra trong tay Khai Nguyên Lộc Đỉnh, cũng có một chút khó mà chống đỡ được, trong miệng miệng lớn thở dốc, toàn thân đều đang đổ mồ hôi châu, thế nhưng là, vẫn như cũ chiến ý sôi trào, tinh thần sung mãn.
+
+"Nguyên lai Khai Nguyên Lộc Đỉnh lại là một kiện Thần Di Cổ Khí, trước kia tất cả mọi người nhìn sai rồi." Trì Độc Phượng hừ lạnh một tiếng.
+
+Trương Nhược Trần nói: "Ngươi là cho rằng Kim Bộ Long Liễn không bằng Khai Nguyên Lộc Đỉnh, cho nên mới sẽ bại?"
+
+"Bại? Bản vương sao lại thua với ngươi? Tiếp đó, chính là tử kỳ của ngươi."
+
+Trì Độc Phượng chắp tay trước ngực, thể nội thánh khí mãnh liệt vận chuyển, tại lồng ngực của hắn vị trí, hiện ra từng đạo màu xanh phù văn, phóng xuất ra càng ngày càng cường đại lực lượng.
+
+"Thánh Tướng Phù." Trương Nhược Trần nói.
+
+"Không sai, chính là Lăng Tiêu Thiên Vương ban cho bản vương Thánh Tướng Phù, ngươi có thể làm cho bản vương vận dụng ra chiêu át chủ bài này, cho dù chết ở chỗ này, cũng đủ để tự ngạo." Trì Độc Phượng cười nói.
+
+Trì Độc Phượng trên đỉnh đầu, xuất hiện một mảnh thanh vân, Lăng Tiêu Thiên Vương Thánh Tướng thân ảnh hiển hoá ra ngoài, đầu đội trời, chân đạp đất, cho người ta một loại ngưỡng mộ núi cao cảm giác.
+
+Trương Nhược Trần tự nhiên là tương đối rõ ràng Thánh Tướng Phù lợi hại, bất quá, cũng không có thất kinh, mà là nhằm vào nhập vào Kim Bộ Long Liễn nội bộ, trầm giọng nói: "Hôm nay, liền để bản thái tử để cho ngươi mở mang kiến thức một chút Kim Bộ Long Liễn chân chính lực lượng."
+
+Ngay tại Trương Nhược Trần ngồi vào tiến Kim Bộ Long Liễn trong nháy mắt, cũng cảm giác được Minh Đế lưu lại khí tức. Cỗ khí tức kia, cùng Trương Nhược Trần công pháp « Cửu Thiên Minh Đế Kinh » mười phần phù hợp, thể nội thánh khí vận chuyển tốc độ, tăng nhanh gấp đôi.
+
+Giờ phút này, Trương Nhược Trần giống như là cùng Kim Bộ Long Liễn hòa làm một thể.
+
+"Long Liễn khí linh, do bản thái tử đến giải khai các ngươi phong ấn, tiếp tục vì Thánh Minh Trung Ương đế quốc chinh chiến."
+
+Trương Nhược Trần bàn tay , theo tại Kim Bộ Long Liễn bên trái đằng trước trên một cái đầu rồng vàng óng, đánh ra Tịnh Diệt Thần Hỏa. Thần Hỏa tuôn ra đi, trước hết nhất trùng kích tại trên đầu rồng vàng óng, ngay sau đó bao trùm toàn bộ Long Liễn.
+— QUẢNG CÁO —
+
+
+Kim Bộ Long Liễn nội bộ, hết thảy liền chín đạo khí linh, chính là chín đầu long hồn.
+
+Chín đầu long hồn chỉ nghe mệnh lịch đại Minh Đế, bởi vậy, người Trì gia căn bản là không có cách khống chế khí linh, chỉ có thể đem khí linh phong ấn. Kể từ đó, Trì Độc Phượng cũng liền không cách nào phát huy ra Kim Bộ Long Liễn chân chính uy lực.
+
+"Xoẹt xoẹt."
+
+Thần Hỏa lực lượng, thiêu hủy phong ấn.
+
+Lập tức, trong Long Liễn, vang lên từng đạo kinh thiên động địa long ngâm, chín đầu long hồn trở nên sinh động, phóng xuất ra rung động lòng người long uy.
+
+"Thái tử trở về, cho hắn chinh chiến."
+
+"800 năm, bị phong ấn 800 năm, hôm nay rốt cục thoát khốn."
+
+"Chiến, cùng thái tử cùng một chỗ chinh chiến thiên hạ, lại sáng tạo Thánh Minh huy hoàng. Ta muốn ngày đi chín triệu dặm, những nơi đi qua, chúng sinh đều muốn quỳ sát tại dưới khung xe."
+
+. . .
+
+Chín đạo long hồn đang gào thét, từng tiếng gào thét, chấn động Cửu Tiêu.
+
+"Lần này, nhất định phải thành công."
+
+Trương Nhược Trần lần nữa điều động Càn Khôn giới thế giới chi lực, liên tiếp điều động mười bảy lần, đột nhiên, cuồn cuộn vô biên lực lượng từ trong Càn Khôn giới bừng lên, thông qua Trương Nhược Trần hai tay, xông vào tiến Kim Bộ Long Liễn.
+
+"Rống!"
+
+Chín đầu long hồn hiển hiện ra, xuất hiện tại Kim Bộ Long Liễn phía trước. Mỗi một đầu long hồn thân thể đều mười phần ngưng thực, cùng chân chính Kim Long không hề khác gì nhau.
+
+"Ầm ầm."
+
+Tại chín đầu long hồn kéo dẫn phía dưới, Kim Bộ Long Liễn liền xông ra ngoài, giống như là một khung vô địch chiến xa.
+
+Trì Độc Phượng vô cùng kinh ngạc, không ngờ rằng, Kim Bộ Long Liễn lại có thể bộc phát ra mạnh mẽ như vậy lực lượng khí tức, tựa như là chín đầu Thần Long cùng một cỗ thần xa hướng hắn va chạm tới.
+
+Trì Độc Phượng điều động Thánh Tướng Phù lực lượng, huy động Thánh Kiếm, công kích đi qua.
+
+Kim Bộ Long Liễn nghiền ép lên đi, nghiền nát Lăng Tiêu Thiên Vương Thánh Tướng, cũng đem Trì Độc Phượng thánh khu nghiền nát thành một đám huyết vụ, xương cốt đều hóa thành bột mịn. Một vị thiên tư tuyệt đỉnh Kiếm Thánh, chính là chết tại tại chỗ, hài cốt không còn.
+
+Chỉ còn lại có một thanh đẫm máu Thánh Kiếm, cắm ngược ở Kim Bộ Long Liễn bên cạnh.
+
+Lại một cái truyền kỳ, bị Trương Nhược Trần kết thúc.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1394
+
+Chương 1391: Chư Hoàng Từ Đường
+
+Trương Nhược Trần thu hồi Khai Nguyên Lộc Đỉnh cùng Kim Bộ Long Liễn, nuốt xuống một viên Phùng Xuân Đan, một bên chữa thương, một bên bước vào Chư Hoàng Từ Đường.
+
+Càng là hướng phía trước đi, không gian cùng thời gian kết cấu, càng là vững chắc.
+
+Trương gia trong lịch sử những Đại Thánh lão tổ kia khắc lục Minh Văn, càng ngày càng nhiều, có khắc vào lòng đất, có khắc vào trong không khí.
+
+Một bước đạp sai, liền có thể tan thành mây khói.
+
+Trương Nhược Trần không chỉ một lần tiến vào Chư Hoàng Từ Đường tế bái tiên tổ, biết đi vào con đường.
+
+Hắn mỗi lần đi về phía trước ra khoảng cách một dặm, đi vào một khối vô danh trước tấm bia đá, liền sẽ khom mình hành lễ, rất cung kính nói: "Trương gia thứ 774 đời con cháu Trương Nhược Trần, đến đây tế bái liệt tổ liệt tông."
+
+Mỗi khi Trương Nhược Trần nói xong một câu nói kia, liền có thể cảm giác được có từng đạo cùng loại với tinh thần lực huyền bí lực lượng, từ trên người hắn lược qua.
+
+Lần thứ nhất đến Chư Hoàng Từ Đường thời điểm, Trương Nhược Trần còn có chút sợ hãi, tưởng rằng có quỷ hồn xuyên qua thân thể.
+
+Hiện tại, lại là không có chút nào ý sợ hãi.
+
+Minh Đế nói cho Trương Nhược Trần, những cái được gọi là tinh thần lực, kỳ thật chính là lịch đại tổ sư một sợi bất diệt thánh niệm.
+
+Tu vi đạt tới Đại Thánh cảnh giới, có thể đản sinh ra vô tận huyền diệu, cho dù là chết đi, cũng sẽ có thánh niệm lưu lại, nếu là đem thánh niệm cất giữ trong một chút chỗ đặc thù, có thể trường tồn bất diệt.
+
+Chư Hoàng Từ Đường, tạo dựng lên, chính là dùng để cất giữ lịch đại tiên tổ thánh niệm.
+
+Thời gian dần trôi qua, phía trước xuất hiện một tòa nguy nga Thánh Sơn.
+
+Trong Thánh Sơn, sử dụng Thánh Ngọc tạo hình ra từng tôn Đế Hoàng thân ảnh, mỗi một vị đều đại biểu một vị Trương gia tổ tiên Đại Thánh, liếc nhìn lại, chỉ sợ đến có vài chục tôn chi nhiều.
+
+Phải biết, một cái gia tộc, chỉ cần có thể đản sinh ra một vị Đại Thánh, cũng có thể trở thành gia tộc siêu lớn, thậm chí thành lập một cái đế quốc. Đại Thánh lưu lại nội tình, tài nguyên, thủ đoạn, đủ để cho gia tộc kia cường thịnh vài vạn năm mà bất diệt.
+
+Giống Trương gia loại này, do Thần Linh thành lập gia tộc, từ xưa đến nay đã đản sinh ra hơn mười vị Đại Thánh, để lại nội tình, căn bản không phải những Trung Cổ thế gia cùng Cổ tộc kia có thể so sánh với.
+
+Hộ Long các, chính là Trương gia nội tình một trong.
+
+Khững Trung Cổ thế gia cùng Cổ tộc khác kia, không có khả năng bồi dưỡng được Hộ Long các dạng này gia thần, hoặc là nói là thủ hộ gia tộc trưởng tồn bất diệt tổ chức thần bí.
+
+Chỉ có đạt tới Đại Thánh cảnh giới tiên tổ, mới có tư cách tại Thánh Sơn lưu lại Thánh Ngọc tượng đá cùng linh vị.
+
+Trương Nhược Trần từ dưới từng tôn Đế Hoàng thân ảnh đi qua, đi vào Thánh Sơn chỗ sâu.
+
+Tại trước mắt của hắn, chính là nồng đậm thánh vụ, có từng đạo thánh quang truyền tới, xông thẳng lên trời.
+
+Lịch đại tiên tổ linh vị, chính là bày ra tại trên một tòa đàn tế.
+
+"Căn cứ phụ hoàng nói, Hoàng tộc mộ lâm chủ âm, Chư Hoàng Từ Đường chủ dương. Một là chết, một là sinh. Cả hai ở vào trên Thánh Minh thành hai cái kỳ điểm, hỗ trợ lẫn nhau, cộng đồng gánh chịu lên Trương gia khí vận. Có lịch đại tiên tổ phù hộ, Trương gia liền có thể trường thịnh không suy. Thế nhưng là, 800 năm trước, Trương gia lại đi hướng suy vong. Đến cùng là vì cái gì đâu?"
+
+Trương Nhược Trần nhẹ nhàng thở dài, sau đó, chắp tay trước ngực, khom người hướng lên phía trên linh vị cúi đầu.
+— QUẢNG CÁO —
+
+
+Ngay tại hắn khom người xuống trong nháy mắt, nhìn thấy dưới tế đàn, bị thánh quang bao phủ khu vực, vậy mà lơ lửng một bộ quan tài.
+
+"Tại sao có thể như vậy? Trương gia con cháu quan tài đều sẽ bị mai táng đến Hoàng tộc mộ lâm, trong Chư Hoàng Từ Đường, tại sao có thể có một bộ quan tài. Đến cùng là ai quan tài?"
+
+Trương Nhược Trần nhắm mắt lại, vận dụng ra Thiên Nhãn, lần nữa nhìn sang.
+
+Lần này nhìn càng thêm thêm rõ ràng, đích thật là có một bộ quan tài lơ lửng ở nơi đó, mà lại, quan tài trên đầu, còn ấn có một cái chữ "Trần".
+
+Nhìn thấy chữ "Trần" này, Trương Nhược Trần trong đầu, vang lên một tiếng oanh minh, sinh ra một cái để tâm hắn tự khó yên suy đoán.
+
+Chẳng lẽ. . .
+
+Trương Nhược Trần lập tức vứt bỏ tạp niệm trong lòng, không dám tiếp tục suy nghĩ, cũng không có lập tức đi ngay mở ra quan tài, mà là, chuẩn bị trước dẫn động Đại Thánh Minh Văn, ngăn cản được hộ cung cổ trận trong Lăng Tiêu Thiên Vương Phủ.
+
+Kết thúc trận đại chiến này, mới là hàng đầu đại sự.
+
+"Bất Động Minh Vương Thánh Tướng."
+
+Trương Nhược Trần nhanh chóng vận chuyển công pháp, từ trong Thánh Nguyên ở khí hải, điều động ra một tôn Thánh Tướng, đó là một tôn cùng Trương Nhược Trần giống nhau như đúc thánh ảnh màu trắng.
+
+Thánh ảnh màu trắng xông vào tiến tế đàn, chỉ một thoáng, tất cả linh vị đều tản mát ra vạn trượng thánh quang.
+
+Ngay sau đó, lấy tế đàn làm trung tâm, lít nha lít nhít Đại Thánh Minh Văn nổi lên, giống như trong cơ thể con người mạch máu, trải rộng giữa thiên địa.
+
+Đại Thánh Minh Văn triệt để bị kích hoạt, một mực kéo dài đến toàn bộ Lăng Tiêu Thiên Vương Phủ.
+
+Vô luận là Thánh Minh quân đội, hay là triều đình đại quân, đều là nhìn về phía Chư Hoàng Từ Đường phương hướng, có thể nhìn thấy ngọn Thánh sơn kia hình dáng, có thể nhìn thấy từng tôn Đại Thánh ngọc thạch pho tượng đứng vững tại trên Thánh sơn, tản mát ra thần thánh, nguy nga khí tức.
+
+"Thánh Minh chư vị Đế Hoàng thức tỉnh, đế quốc sẽ lần nữa nghênh đón huy hoàng, Trì gia thống trị sẽ bị lật đổ."
+
+"Hộ cung cổ trận bị Đại Thánh Minh Văn ngăn chặn, mọi người toàn lực ứng phó công sát."
+
+"Tiêu diệt Lăng Tiêu Thiên Vương Phủ."
+
+"Thái tử điện hạ vạn tuế!"
+
+. . .
+
+Không có hộ cung cổ trận áp chế, Thánh Minh một phương nhân mã, rốt cục không cần một bên ngăn cản trận pháp, một bên cùng cường địch giao thủ.
+
+A Nhạc lộ ra lãnh khốc vô tình, thiết kiếm trong tay, thì là giản dị tự nhiên.
+
+"Hoa —— "
+
+Kiếm quang bay ra ngoài, lấy một loại cực hạn tốc độ, xuyên thấu Tứ Thập Lục vương gia mi tâm, đem hắn đánh chết.
+
+Đây chính là A Nhạc Kiếm Đạo, Tử Vong Kiếm Đạo.
+
+Tử Vong Kiếm Đạo, cũng không phải là chính thống trong kiếm pháp, không cần cơ sở vững chắc, cũng không cần các loại Kiếm Đạo huyền ảo, chính là kiếm tẩu thiên phong một loại Kiếm Đạo.
+
+Có thể lấy yếu chống mạnh, lạ thường trí thắng.
+
+Tử Vong Kiếm Đạo, chỉ có một kiếm, không phải địch chết, chính là ta vong.
+
+Liền xem như đi kiếm pháp chính đạo Trương Nhược Trần, cũng không dám cam đoan, nhất định có thể tiếp được A Nhạc một kiếm.
+
+Một khi không tiếp nổi, chính là chết.
+
+Việc quan hệ sinh tử, Trương Nhược Trần tự nhiên là sẽ không đi nếm thử.
+
+Một đầu khác, mất đi hộ cung cổ trận áp chế, vị kia Nho Đạo Thánh Vương Hạo Nhiên chính khí trở nên càng thêm bàng bạc, một vòng nhật nguyệt ấn ký bay ra ngoài, đúng là đem Hổ Bí Thiên Vương đều đánh cho miệng phun thánh huyết.
+
+Hổ Bí Thiên Vương ngực máu thịt be bét, một cỗ nóng bỏng lực lượng, tại trong vết thương lưu động, khiến cho hắn Thánh Vương thân thể đều bốc cháy lên.
+
+Hổ Bí Thiên Vương che ngực, vận dụng thánh lực áp chế vết thương, trợn mắt nói: "Ngươi đến cùng là ai? Trong Nho Đạo, có ngươi dạng này thực lực nhân vật, tuyệt không vượt qua năm cái."
+
+"Chỉ có thể nói, kiến thức của ngươi quá nông cạn. Nho Đạo là ba đạo một trong, nội tình thâm hậu, không phải ngươi có thể tưởng tượng."
+
+Vị kia Nho Đạo Thánh Vương, lần nữa đọc lên « Chính Khí Vân Trung Ca » nửa đoạn sau, có một thiên thánh văn, tại thiên không hiển hiện ra, rơi xuống dưới.
+
+Hổ Bí Thiên Vương thì là phát ra một tiếng hổ khiếu, từ trong cơ thể của hắn, xông ra một đạo Bạch Hổ thánh hồn, duỗi ra hổ trảo, đem từng cái thánh văn đánh cho sụp đổ.
+
+Đó là trong Man Hoang bí cảnh một vị Đại Thánh Man Hoàng thú hồn, chính là Nữ Hoàng ban thưởng cho hắn, mà hắn, thì là đem thú hồn luyện vào tiến vào thân thể, hóa thành chiến hồn.
+
+Kích phát ra Bạch Hổ thánh hồn về sau, Hổ Bí Thiên Vương đúng là cùng vị kia Nho Đạo Thánh Vương đánh cho tương xứng.
+
+Thế nhưng là, Thanh Nguyệt Lạc Tổ nhưng không có Hổ Bí Thiên Vương mạnh mẽ như vậy tu vi, cùng huyết khí thịnh vượng.
+
+Nàng vốn là tương đương già nua, tiếp cận tử vong, đã tại đi xuống dốc, không cách nào kéo dài tác chiến, đối phó Thái gia lão tổ liền đã tương đương miễn cưỡng, bây giờ Minh Giang Vương gia nhập vào vòng chiến, lập tức để nàng lâm vào hiểm cảnh.
+
+"Thanh Nguyệt Lạc Tổ coi như ngươi trong lòng đất hấp thu ta Trương gia liệt tổ liệt tông thánh lực, còn không phải chỉ có ngần ấy thực lực, hôm nay, bản vương tiễn ngươi lên đường."
+
+Minh Giang Vương huy động Thập Long Đao, phách trảm xuống dưới.
+
+"Bành."
+
+Thanh Nguyệt Lạc Tổ một nửa thánh khu bị đao khí đánh cho sụp đổ, chỉ còn nửa khúc trên thân thể còn bay ở giữa không trung. Nàng một gương mặt mo vô cùng dữ tợn, rống to một tiếng: "Coi như ta chết, cũng muốn kéo các ngươi hai cái chôn cùng."
+
+Thanh Nguyệt Lạc Tổ thánh khu bắt đầu cháy rừng rực, ầm vang bạo liệt mà ra.
+— QUẢNG CÁO —
+
+Một cỗ kinh khủng lực hủy diệt, hướng Minh Giang Vương cùng Thái gia lão tổ mạnh vọt qua.
+
+Đúng lúc này, Thánh Sơn phương hướng, có từng cây Đại Thánh Minh Văn bừng lên, tách ra Thanh Nguyệt Lạc Tổ tự bạo đằng sau sinh ra lực lượng hủy diệt.
+
+Dù vậy, Minh Giang Vương cùng Thái gia lão tổ hay là bị thương nặng, hai người đều tại ho ra máu.
+
+Một vị Thánh Vương tự bạo, bọn hắn còn có thể sống sót, đã là một cái kỳ tích.
+
+"Lạc Tổ. . . Chết trận. . ."
+
+"Trời ạ! Liền ngay cả Thanh Nguyệt Lạc Tổ đều bị giết chết, Hoàng tộc muốn phát sinh động đất, Nữ Hoàng trở về nhất định sẽ đem Thánh Minh nghịch tặc giết đến sạch sẽ."
+
+. . .
+
+Một tôn Thánh Vương lão tổ vẫn lạc, dẫn phát oanh động cực lớn, trong Lăng Tiêu Thiên Vương Phủ Hoàng tộc tử đệ toàn bộ đều đang gào khóc, rốt cục cảm giác được nguy cơ, cảm giác được tai nạn giáng lâm đến trên người của bọn hắn.
+
+Sớm biết Trương Nhược Trần đáng sợ như thế, trước mấy ngày, bọn hắn liền không nên đi khiêu khích, càng thêm không nên chế giễu Trương Nhược Trần là rùa đen rút đầu.
+
+Bây giờ, lại là hối hận không kịp, tất cả mọi người là khóc không ra nước mắt.
+
+Bọn hắn dọa đến run như cầy sấy, nhao nhao hướng về Lăng Tiêu Thiên Vương bế quan toà kia Thánh Điện tiến đến, hy vọng có thể đạt được Lăng Tiêu Thiên Vương che chở.
+
+Chờ đến bọn hắn đến toà kia Thánh Điện thời điểm, lại phát hiện Thánh Điện đã biến thành phế tích, hóa thành mảnh gỗ vụn cùng gạch ngói vụn. Giữa không trung, vậy mà xuất hiện một hòn đảo treo trên bầu trời, giờ phút này, Lăng Tiêu Thiên Vương liền đứng tại trên hòn đảo treo trên bầu trời.
+
+"Làm sao lại trống rỗng xuất hiện một tòa hòn đảo treo trên bầu trời ?"
+
+"Loại hòn đảo treo trên bầu trời kia, hẳn là hộ cung cổ trận đầu mối then chốt, giấu ở trận pháp nội bộ. Chỉ sợ chỉ có hộ cung cổ trận hoàn toàn vận chuyển, nó mới có thể hiển hiện ra."
+
+. . .
+
+Hộ Long các phó các chủ đứng tại cùng hòn đảo treo trên bầu trời một dạng cao vị trí, dưới chân giẫm lên một mảnh thánh vân, thanh âm mênh mông mà nói: "Bằng vào hộ cung cổ trận, ngươi cũng chỉ có thể cùng ta đánh hòa nhau. Bây giờ, thái tử điện hạ khởi động Đại Thánh Minh Văn, ngăn chặn hộ cung cổ trận, ưu thế của ngươi, đã không còn sót lại chút gì."
+
+Lăng Tiêu Thiên Vương là một vị chừng 50 tuổi nam tử trung niên, thái dương chỗ đã mọc ra tóc trắng, khí thế mười phần, cả người vô cùng uy nghiêm , nói: "Bản vương đã đại khái đoán được ngươi là ai."
+
+"Chiến lâu như vậy, nếu là ngươi còn đoán không được ta là ai, mới là một kiện sự tình kỳ quái." Hộ Long các phó các chủ nói ra.
+
+Lăng Tiêu Thiên Vương hừ lạnh một tiếng: "Bản vương hoàn toàn chính xác không phải là đối thủ của ngươi, nhưng là, trong triều đình, người mạnh mẽ hơn ngươi, hay là có như vậy mấy vị. Dám can đảm tạo phản, ngươi liền không sợ diệt tông, diệt tộc sao?"
+
+Phó các chủ nhàn nhạt nói ra: "Ngươi ta đều biết, chân chính tồn tại đáng sợ, cũng không có tại trên triều đình, đã sớm lui khỏi vị trí phía sau màn. Đương nhiên, Thánh Minh cũng không có trong tưởng tượng của ngươi yếu như vậy, ngươi thấy Hộ Long các, chỉ là một góc của băng sơn."
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1395
+
+Chương 1392: Chí Tôn chi uy, hủy thiên diệt địa
+
+Lăng Tiêu Thiên Vương cúi nhìn phía dưới chiến hỏa, chỉ gặp, triều đình một phương Thánh cảnh cường giả không ngừng vẫn lạc, lộ ra một đạo nụ cười khổ sở , nói: "Trận chiến này, các ngươi thắng! Nhưng là, nếu Nữ Hoàng đã thành thần, như vậy vô luận các ngươi như thế nào phản loạn, cuối cùng đều tất nhiên là tử vong cùng hủy diệt hạ tràng."
+
+"Hoa —— "
+
+Lăng Tiêu Thiên Vương trên người thánh giáp, tách ra chói mắt thánh quang, một cỗ khiếp người Thánh Đạo lực lượng phun ra đến, sau đó, hắn chính là hóa thành một đạo lưu quang màu xanh, hướng Lăng Tiêu Thiên Vương Phủ bên ngoài liền xông ra ngoài.
+
+Cùng lúc đó, Hổ Bí Thiên Vương cũng biết đại thế đã mất, khống chế lấy Bạch Hổ thú hồn, cùng Lăng Tiêu Thiên Vương cùng một chỗ, xông ra Lăng Tiêu Thiên Vương Phủ.
+
+Hai vị uy chấn thiên hạ Thiên Vương, vậy mà tại bỏ chạy.
+
+Trong Chư Hoàng Từ Đường, Trương Nhược Trần điều động Đại Thánh Minh Văn, hóa thành một đầu Minh Văn Thiên Hà, thành thánh trong núi xông ra, đồng thời chém về phía Lăng Tiêu Thiên Vương cùng Hổ Bí Thiên Vương.
+
+"Ngươi trước mang quân đội của triều đình rời đi, có thể lui bao xa liền lui bao xa."
+
+Lăng Tiêu Thiên Vương ánh mắt trầm lãnh, hai tay kết thành một đạo ấn pháp, đánh về phía bay tới Minh Văn Thiên Hà, vậy mà muốn muốn bằng mượn sức một mình, đối kháng Đại Thánh Minh Văn.
+
+Hổ Bí Thiên Vương trong lòng biết Lăng Tiêu Thiên Vương cũng không phải là thật muốn chạy trốn, mà là trước tiên lui đến Đại Thánh Minh Văn khu vực trung tâm bên ngoài, lại đại khai sát giới.
+
+Rất hiển nhiên, Lăng Tiêu Thiên Vương sắp vận dụng một loại nào đó thủ đoạn lợi hại, thậm chí có khả năng muốn hủy diệt vùng thiên địa này, cho nên, mới khiến cho hắn trước mang quân đội của triều đình rời đi.
+
+"Tất cả triều đình quân đội nghe lệnh, lập tức rút lui."
+
+Hổ Bí Thiên Vương tương đương quả quyết, thể nội thánh khí liên tục không ngừng thả ra ngoài, bao trùm vượt qua trăm vạn triều đình đại quân, sau đó, mang theo bọn hắn, cấp tốc hướng về Thánh Minh thành bên ngoài bay đi.
+
+Lấy Thánh Vương thực lực cường đại, muốn dời lên trăm tòa đại sơn đều là chuyện dễ như trở bàn tay, mang đi trăm vạn đại quân, tự nhiên cũng liền càng thêm không nói chơi.
+
+"Phốc phốc."
+
+Trong Chư Hoàng Từ Đường Đại Thánh Minh Văn, kinh khủng bực nào, coi như Lăng Tiêu Thiên Vương thối lui đến khu vực trung tâm bên ngoài, vẫn như cũ ngăn cản không nổi.
+
+Minh Văn Thiên Hà vung chém ra đi, đánh nát Lăng Tiêu Thiên Vương đánh ra ấn pháp, đánh ở trên người hắn.
+
+"Đùng đùng."
+
+Lăng Tiêu Thiên Vương trên người thánh giáp không ngừng bạo hưởng, xuất hiện lít nha lít nhít vết rách, khôi ngô thánh khu, thì là từ giữa không trung rơi xuống, ở trong thành, ném ra một cái trực tiếp vài trăm mét hố to.
+
+Trong Thánh Minh thành, tất cả tu sĩ đều sắc mặt tái nhợt, dọa đến trái tim đều muốn nổ tung.
+
+"Triều đình đại quân lại bị đánh cho tan tác, liền ngay cả Thiên Vương cấp bậc nhân vật đều đang chạy trốn. Trương Nhược Trần lực hiệu triệu cũng quá mạnh, đến cùng là từ đâu tìm đến nhiều cường giả như vậy?"
+
+"Lăng Tiêu Thiên Vương danh xưng Hoàng tộc đệ nhị cường giả, tọa trấn Thánh Minh thành 800 năm, hôm nay, lại bị đánh cho từ không trung rơi vào trên mặt đất."
+
+. . .
+
+Hộ Long các phó các chủ lại cũng không lạc quan như vậy, ngăn lại muốn đi truy sát Hổ Bí Thiên Vương vị kia Nho Đạo Thiên Vương , nói: "Lập tức để Hộ Long các thành viên mang theo Thánh Minh đại quân rút lui đến nơi xa, hoặc là tiến vào Đại Thánh Minh Văn khu vực trung tâm."
+
+Vị kia Nho Đạo Thiên Vương ngừng lại , dựa theo phó các chủ chỉ thị, tiến đến an bài cùng bố trí, bởi vì, hắn cũng ẩn ẩn phát giác được có chút không ổn.
+
+Phó các chủ hóa thành một đạo bạch quang, đến cái rãnh to kia trên không, ngón tay hướng phía dưới một chút, đánh ra một đạo chỉ kình.
+— QUẢNG CÁO —
+
+
+Lăng Tiêu Thiên Vương cũng không có bị Đại Thánh Minh Văn giết chết, đứng tại hố to dưới đáy, thét dài một tiếng, hai tay chậm rãi nâng lên, chống lên một cái đường kính ngàn trượng lồng phòng ngự, lập tức, mấy trăm đầu Thanh Long từ lòng đất vọt lên đến, bao trùm thân thể của hắn.
+
+"Ầm ầm."
+
+Chỉ kình lấy dễ như trở bàn tay chi thế, đem mấy trăm đầu Thanh Long đánh nát, hóa thành một mảnh màu xanh thánh vụ.
+
+Thổi phù một tiếng, Lăng Tiêu Thiên Vương thánh khu bị chỉ kình đánh xuyên, xuất hiện một cái lỗ máu cái bát khổng lồ như vậy, ngũ tạng lục phủ đều bị xé nứt thành máu thịt vụn, không nói ra được thê thảm.
+
+Rất hiển nhiên, phó các chủ tu vi, xa xa tại trên Lăng Tiêu Thiên Vương, tuyệt đối không chỉ Thánh Vương đỉnh phong đơn giản như vậy.
+
+Phó các chủ hướng phía dưới bay đi, duỗi ra một bàn tay , theo hướng Lăng Tiêu Thiên Vương đỉnh đầu, có từng cây Thánh Đạo quy tắc hiển hiện ra, xen lẫn thành một mảnh Quy Tắc Thiên Võng, hướng phía dưới bao phủ.
+
+"Thanh Thiên Phù Đồ Tháp."
+
+Lăng Tiêu Thiên Vương lấy ra một tôn cao chín tấc thanh ngọc tháp, nâng ở tay phải lòng bàn tay.
+
+Đó là Hoàng tộc đệ nhất chí bảo, Thanh Thiên Phù Đồ Tháp, đạt đến Chí Tôn Thánh Khí cấp bậc, lộ ra khéo léo đẹp đẽ, vô cùng đẹp đẽ.
+
+Theo Minh Văn không ngừng nổi lên, Thanh Thiên Phù Đồ Tháp sức mạnh bùng lên ba động, ngày càng mạnh mẽ.
+
+"Hoa" một tiếng, một tầng màu xanh vầng sáng dũng xuất ra ngoài, cùng từ trên trời giáng xuống Quy Tắc Thiên Võng đụng vào nhau, đường kính đem hắn xé nát, va chạm tại phó các chủ trên thân.
+
+"Ầm ầm."
+
+Màu xanh vầng sáng ẩn chứa một tia Chí Tôn chi lực, đem phó các chủ đánh bay ra ngoài. Phó các chủ trong Thánh Y, có ửng đỏ thánh huyết chảy ra đến, hiển nhiên là bị thương không nhẹ.
+
+Chí Tôn chi lực bạo phát đi ra một khắc này, lấy Thanh Thiên Phù Đồ Tháp làm trung tâm, trong nháy mắt, trong vòng phương viên trăm dặm sinh linh, toàn bộ đều sụp đổ thành một đám huyết vụ, ngoại trừ phó các chủ bên ngoài, không một có thể may mắn thoát khỏi.
+
+Trên đại địa, tất cả kiến trúc toàn bộ đều hóa thành kiếp tro.
+
+Trong Lăng Tiêu Thiên Vương Phủ, Minh Giang Vương sắc mặt mãnh liệt biến đổi, tràn ngập vẻ kiêng dè , nói: "Nguy rồi, đó là Hoàng tộc trấn tộc Chí Tôn Thánh Khí Thanh Thiên Phù Đồ Tháp."
+
+Phàm là hiểu rõ Chí Tôn Thánh Khí tu sĩ, sắc mặt toàn bộ đều trở nên tái nhợt, không có một tia huyết sắc.
+
+Chí Tôn Thánh Khí vừa ra, vạn vật chúng sinh toàn bộ đều muốn tan thành mây khói.
+
+Tại Côn Lôn giới, cường đại nhất chiến binh, khẳng định là thập đại Thần Khí.
+
+Nhưng là, thập đại Thần Khí đều là trong truyền thuyết thần thoại binh khí, chỉ là ngẫu nhiên mới có thể xuất hiện một chút, sau đó, lại sẽ biến mất giữa thiên địa.
+
+Đến vô ảnh, đi vô tung, phảng phất không có người nào có thể chân chính khống chế một kiện Thần khí.
+
+Ngoại trừ thập đại Thần Khí, lợi hại nhất chiến binh, khẳng định chính là Chí Tôn Thánh Khí.
+
+Chí Tôn Thánh Khí số lượng, tuyệt đối sẽ không vượt qua trăm cái.
+
+Chí Tôn Thánh Khí cùng Thần khí một dạng, cũng là tuyệt đại đa số đều đã mất tích, chỉ có số lượng không nhiều mười mấy món, còn biết bảo tồn ở nơi nào, biết bọn chúng xác thực thuộc về.
+
+Có thể nói, mười mấy món Chí Tôn Thánh Khí này, chính là Côn Lôn giới đại sát khí kinh khủng nhất , bất luận một kiện nào bị kích hoạt, đều sẽ tạo thành hủy thiên diệt địa cảnh tượng.
+
+Tỉ như, Hoàng tộc Trì gia nắm giữ "Thanh Thiên Phù Đồ Tháp", Bái Nguyệt ma giáo "Sinh Tử Đồng Lô", Hắc Thị "Cửu Phượng Đỉnh", Huyết Thần giáo "Huyết Thần Giản", Thiên Cổ Nữ Đế lưu lại "Hư Không Kiếm" . . .
+
+Về phần Lưỡng Nghi tông dạng này siêu cấp đại tông, kỳ thật, cũng là không có Chí Tôn Thánh Khí.
+
+Chí Tôn Thánh Khí rất khó luyện chế, cơ hồ toàn bộ đều là từ mười vạn năm trước còn sót lại, chính là do Thần Linh rèn đúc đi ra. Trung Cổ đằng sau, hết thảy 10 vạn năm, cũng chỉ có Nữ Hoàng mới lấy thủ đoạn nghịch thiên, tế luyện ra Tích Huyết Kiếm, đạt đến Chí Tôn Thánh Khí cấp bậc.
+
+"Thanh Thiên Phù Đồ Tháp bị kích hoạt, mọi người mau trốn, trốn được càng xa càng tốt."
+
+Trong Thánh Minh thành những tu sĩ kia, lúc đầu đều đã thối lui đến nơi xa, thế nhưng là, theo Thanh Thiên Phù Đồ Tháp Chí Tôn chi lực bạo phát đi ra, bọn hắn hướng về càng xa khu vực bỏ chạy.
+
+Còn sống Thánh Minh bộ hạ cũ, cũng đều xông vào tiến Lăng Tiêu Thiên Vương Phủ, tiến vào Đại Thánh Minh Văn khu vực hạch tâm.
+
+Có lẽ, cũng chỉ có Đại Thánh Minh Văn, mới có thể ngăn cản được Chí Tôn Thánh Khí.
+
+Lăng Tiêu Thiên Vương một tay nâng Thanh Thiên Phù Đồ Tháp, từng bước một từ trong hố lớn đi ra, đi hướng Lăng Tiêu Thiên Vương Phủ, âm thanh lạnh lùng nói: "Lấy bản vương lực lượng một người, đủ để diệt toàn bộ Thánh Minh."
+
+Tại trên hắn, toàn bộ bầu trời đều biến thành màu xanh, một cỗ khí thế ngập trời, tự nhiên mà vậy bạo phát đi ra.
+
+"Hoa —— "
+
+Một đạo lưu quang màu xanh, từ trong Thanh Thiên Phù Đồ Tháp bay ra, chặt đứt hai vị Hộ Long các thành viên thân thể, hóa thành hai cỗ Huyết Thi ngã trên mặt đất.
+
+Trương Nhược Trần toàn lực ứng phó điều động Đại Thánh Minh Văn, ngăn cản Lăng Tiêu Thiên Vương bước chân.
+
+Từng cây sáng tỏ Minh Văn chùm sáng, từ lòng đất nổi lên, hóa thành một đạo cao mấy chục trượng Minh Văn sóng lớn, hướng về Lăng Tiêu Thiên Vương nghiền ép tới.
+
+"Tiểu bối, ngươi là đang tìm cái chết."
+
+Lăng Tiêu Thiên Vương đem Thanh Thiên Phù Đồ Tháp đánh ra ngoài, cao chín tấc tiểu tháp, nhanh chóng xoay tròn, trở nên càng ngày càng to lớn, thả ra Chí Tôn chi lực càng thêm cường đại.
+
+Trong thành ức vạn tu sĩ, bị Thanh Thiên Phù Đồ Tháp phát ra khí tức, trấn áp đến nằm rạp trên mặt đất, có càng là thất khiếu chảy máu ngất đi.
+
+"Ầm ầm."
+
+Cao mấy chục trượng Minh Văn sóng lớn, bị Chí Tôn chi lực xé toạc ra.
+
+Cùng lúc đó, Lăng Tiêu Thiên Vương Phủ một đoạn mấy chục dặm dài tường thành, cũng là ầm vang sụp đổ, nhấc lên nồng đậm bụi đất, xông thẳng lên trời.
+
+"Phốc phốc."
+
+Trong Chư Hoàng Từ Đường, Trương Nhược Trần trong miệng phun ra một ngụm máu tươi, toàn thân mềm nhũn, ngã trên mặt đất.
+
+Cũng không phải là Đại Thánh Minh Văn không đủ mạnh, mà là, Trương Nhược Trần tu vi cùng Lăng Tiêu Thiên Vương so ra, chênh lệch thực sự quá lớn, tự nhiên là không có thể ngăn ở Thanh Thiên Phù Đồ Tháp.
+— QUẢNG CÁO —
+
+"Nhất Khí Hóa Tam Thanh."
+
+Phó các chủ đứng tại Lăng Tiêu Thiên Vương Phủ đại môn vị trí, hai tay giơ lên, lập tức, ở phía sau hắn, ngưng tụ ra ba tôn mấy trăm trượng cao to lớn thần ảnh.
+
+Giống như ba tôn Thần Linh xuất thế một dạng, vô cùng uy nghiêm, tràn ngập thần thánh vận vị.
+
+Đây là phó các chủ thủ đoạn mạnh nhất, tựa như là xuất hiện ba cái hắn, mỗi một đạo thần ảnh thực lực, đều cùng hắn bản tôn mạnh mẽ như nhau.
+
+Ba tôn thần ảnh riêng phần mình kết xuất một đạo thủ ấn, hướng Lăng Tiêu Thiên Vương oanh kích tới.
+
+Cùng lúc đó, Hộ Long các thành viên, cũng đều đánh ra mấy chục kiện Vạn Văn Thánh Khí cùng Thiên Văn Thánh Khí, cùng phó các chủ cùng một chỗ phát động công kích.
+
+Minh Giang Vương cùng Thái gia lão tổ cũng đều xuất thủ, đánh ra sức tấn công mạnh nhất số lượng.
+
+"Ta có Chí Tôn Thánh Khí nơi tay, vô địch thiên hạ, ai dám cản ta?"
+
+Lăng Tiêu Thiên Vương trên thân khí thế bàng bạc, thánh huyết từ trong vết thương tuôn ra, chảy vào Thanh Thiên Phù Đồ Tháp, toàn lực ứng phó kích phát ra cường đại nhất Chí Tôn chi lực.
+
+Thanh Thiên Phù Đồ Tháp trở nên giống như một tòa màu xanh sơn phong, bạo phát đi ra Chí Tôn chi lực, để phương viên mấy vạn dặm Thánh Minh thành đều tại lay động, phảng phất mảnh đại địa này muốn chìm vào tiến lòng đất.
+
+"Ầm ầm."
+
+Mấy chục kiện Thiên Văn Thánh Khí toàn bộ vỡ vụn, biến thành sắt vụn.
+
+Phó các chủ đứng tại phía trước nhất, chịu đựng lấy cường đại nhất Chí Tôn chi lực, trong miệng phun ra máu tươi, thánh khu trở nên rách tung toé, bay ngược ra ngoài, rơi vào trong phế tích.
+
+Vô luận là Hộ Long các thành viên, hay là Minh Giang Vương cùng Thái gia lão tổ đều không ngoại lệ, bị từng đạo Chí Tôn chi lực đánh trúng, trên thân xuất hiện từng cái lỗ máu.
+
+Lại có một vị Hộ Long các thành viên, ngã vào trong vũng máu, nhục thân bị đánh đến vỡ nát.
+
+Trừ phi là còn có một kiện khác Chí Tôn Thánh Khí, nếu không, không có bất kỳ cái gì lực lượng, chống đỡ được Chí Tôn chi lực.
+
+Vừa rồi một kích kia đụng nhau, Lăng Tiêu Thiên Vương cũng bị thương cực kỳ nghiêm trọng, thân thể tựa như là phá toái gốm sứ một dạng, tất cả đều là lít nha lít nhít vết rạn.
+
+Thế nhưng là, cầm trong tay Thanh Thiên Phù Đồ Tháp, trên người hắn khí thế cường đại như trước vô cùng, một lần nữa bước vào Lăng Tiêu Thiên Vương Phủ, bá đạo nói: "Thánh Minh Trung Ương đế quốc có thể bị hủy diệt một lần, liền có thể lại bị hủy diệt lần thứ hai, chỉ cần bản vương vẫn còn, toàn bộ các ngươi đều phải chết."
+
+"Nhất định phải ngăn cản Lăng Tiêu Thiên Vương, nếu không Thánh Minh bộ hạ cũ thật là muốn toàn quân bị diệt."
+
+Trong Chư Hoàng Từ Đường, Trương Nhược Trần bằng vào cường đại ý chí, gian nan đứng lên, sau đó, khống chế Kim Bộ Long Liễn, hướng về trong Lăng Tiêu Thiên Vương Phủ phóng đi, hét lớn một tiếng: "Thập Nhị hoàng thúc, mượn ngươi thánh huyết dùng một lát, cùng một chỗ trấn sát Lăng Tiêu Thiên Vương."
+
+. . .
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1396
+
+Chương 1393: Thánh Minh lại trở về!
+
+Lăng Tiêu Thiên Vương trong lòng lửa giận ngập trời, tối nay, triều đình cùng Hoàng tộc có thể nói là tổn thất nặng nề, mấy chục vị Thánh Giả vẫn lạc, càng là có Hoàng tộc Thánh Vương lão tổ bị giết chết.
+
+Nếu là không đem Thánh Minh nghịch tặc hết thảy trấn sát, hắn còn có mặt mũi nào tiếp tục làm Lăng Tiêu Thiên Vương Phủ chủ nhân?
+
+Hiện tại, chỉ có thể vận dụng Chí Tôn Thánh Khí, san bằng vùng thiên địa này.
+
+"Đáng tiếc, Trương gia Chí Tôn Thánh Khí Bách Long Minh Hoàng Giáp tại hoàng huynh mất tích thời điểm cũng cùng một chỗ biến mất không thấy gì nữa, nếu không khẳng định có thể đối kháng Thanh Thiên Phù Đồ Tháp."
+
+Minh Giang Vương nhìn xem đi vào Lăng Tiêu Thiên Vương Phủ Lăng Tiêu Thiên Vương, trong lòng vô cùng đắng chát, trước mắt một màn này, cùng 800 năm trước hoàng cung bị công phá một màn kia là bực nào tương tự.
+
+Chỉ có thể trơ mắt nhìn quân địch tràn vào tiến hoàng cung, cướp bóc đốt giết, lại vô lực hồi thiên.
+
+Giờ phút này, Minh Giang Vương nghe được Trương Nhược Trần thanh âm, xoay người, hướng Thánh Sơn phương hướng nhìn lại, trông thấy Trương Nhược Trần ngồi ở trên Kim Bộ Long Liễn từ trong Chư Hoàng Từ Đường lao ra, trừng lớn một đôi mắt hổ, quát: "Đừng đi ra, tránh trong Chư Hoàng Từ Đường, Lăng Tiêu Thiên Vương nắm giữ Chí Tôn Thánh Khí, không có cái gì lực lượng chống đỡ được hắn."
+
+"Ầm ầm."
+
+Kim Bộ Long Liễn không có dừng lại, tiếp tục hướng phía trước chạy, trong khoảnh khắc, xông vào trong Thánh Minh Chư Thánh.
+
+Trương Nhược Trần nhảy xuống Long Liễn, từ trong nhẫn không gian lấy ra Khai Nguyên Lộc Đỉnh, ầm vang một tiếng, đưa nó đứng ở trong núi thây biển máu, nói: "Vốn là dự định đi Vô Đỉnh sơn, tái sử dụng Trấn quốc Tổ Khí này tế tự thiên địa. Nếu, Lăng Tiêu Thiên Vương trong tay nắm giữ Chí Tôn Thánh Khí, hôm nay, trước hết tế tự một lần, tế điện hôm nay chiến tử quân sĩ, cũng tế điện 800 năm trước chiến tử thần dân."
+
+Trương Nhược Trần sử dụng Tịnh Diệt Thần Hỏa đốt dung bên ngoài Khai Nguyên Lộc Đỉnh tầng da đồng kia đằng sau, thân đỉnh phát sinh biến hóa cực lớn, Minh Giang Vương cũng là trải qua cẩn thận phân biệt, mới đưa nó nhận ra.
+
+"Khai Nguyên. . . Lộc Đỉnh. . . Đây quả thật là năm đó món kia Trấn quốc Tổ Khí?"
+
+Minh Giang Vương thần sắc có chút phức tạp, dùng bàn tay vuốt ve thân đỉnh, có thể cảm nhận được từ trong đỉnh truyền ra lực lượng cường đại ba động, tuyệt đối không phải một kiện Phàm khí.
+
+800 năm trước, Khai Nguyên Lộc Đỉnh chỉ là dùng để tế tự hương đỉnh, cùng phổ thông đỉnh đồng thau không hề khác gì nhau.
+
+Biến hóa quá lớn!
+
+"Đây là tiên tổ lưu cho chúng ta Tổ Khí, sử dụng Hoàng tộc trực hệ tử đệ huyết dịch, cùng « Cửu Thiên Minh Đế Kinh » công pháp, có lẽ, có thể cho nó phát huy ra lực lượng phi phàm." Trương Nhược Trần nói.
+
+Minh Giang Vương minh bạch Trương Nhược Trần ý tứ, ánh mắt ngưng tụ , nói: "Bản vương tuyệt sẽ không để 800 năm trước bi kịch lần nữa trình diễn."
+
+Hắn nơi cổ tay cắt một đạo vết máu, thể nội thánh huyết, liên tục không ngừng chảy đến Khai Nguyên Lộc Đỉnh.
+
+Cùng lúc đó, Trương Nhược Trần song chưởng đặt tại trên thân đỉnh, điều động còn sót lại không nhiều thánh khí, liên tục không ngừng đánh vào tiến trong đỉnh, hét lớn một tiếng: "Thánh Minh thần dân, cùng bản thái tử cùng một chỗ tế tự đã chết Vong Linh, tế tự những tướng sĩ đã từng chiến tử kia."
+
+Thánh Minh đại quân quay chung quanh tại Trương Nhược Trần tứ phương, toàn bộ đều quỳ rạp dưới đất.
+
+Liền ngay cả Thánh Giả đều là một gối quỳ xuống, một tay đè xuống đất, một tay bóp thành nắm đấm đặt ở ngực, ánh mắt vô cùng nghiêm túc, tràn đầy đối với người chết ai điếu, nhớ lại, cùng kính ý.
+
+Lăng Tiêu Thiên Vương hừ lạnh một tiếng: "Vô dụng, tại trước mặt Chí Tôn Thánh Khí, hết thảy đều sẽ tan thành mây khói. . . Đó là. . ."
+— QUẢNG CÁO —
+
+"Hoa —— "
+
+Khai Nguyên Lộc Đỉnh phía trên, từng cái cổ văn màu vàng, lóe lên một cái, quang mang màu vàng truyền khắp Thánh Minh thành, đâm vào Lăng Tiêu Thiên Vương đều là mắt mở không ra.
+
+Khai Nguyên Lộc Đỉnh cách mặt đất bay lên, lơ lửng đến cao trăm trượng giữa không trung.
+
+Sau một khắc, trên chiến trường huyết khí, trở nên sôi trào lên.
+
+Từng sợi huyết khí, từ mặt đất, một mực phóng tới giữa không trung, hóa thành một mảnh ửng đỏ huyết vân, đem Khai Nguyên Lộc Đỉnh bao khỏa. Giữa thiên địa, vang lên từng đạo nhạc buồn, phảng phất là ức vạn Vong Linh đang khóc.
+
+Trên mặt đất, Thánh Minh bộ hạ cũ, toàn bộ đều lộ ra đại hỉ thần sắc, nhao nhao đánh ra thánh khí chùm sáng, rót vào tiến Khai Nguyên Lộc Đỉnh.
+
+Lăng Tiêu Thiên Vương phát giác được không ổn, vội vàng đánh ra Thanh Thiên Phù Đồ Tháp, điều động thể nội thánh khí, điên cuồng đánh vào đi vào.
+
+Một cỗ cuồn cuộn Chí Tôn chi lực, lần nữa bạo phát đi ra.
+
+"Cái gì Trấn quốc Tổ Khí, đối mặt Thanh Thiên Phù Đồ Tháp lập tức liền sẽ biến thành một đống sắt vụn, cho bản vương trấn áp."
+
+Sơn phong khổng lồ như vậy Thanh Thiên Phù Đồ Tháp, xoay tròn cấp tốc, hướng về Khai Nguyên Lộc Đỉnh oanh kích tới.
+
+Cùng lúc đó, Khai Nguyên Lộc Đỉnh cũng là mãnh liệt lắc lư một cái, hướng phía dưới đè ép, cùng Thanh Thiên Phù Đồ Tháp đụng vào nhau, đúng là ngăn chặn Chí Tôn chi lực, đánh cho Thanh Thiên Phù Đồ Tháp bay ngược trở về.
+
+"Làm sao có thể. . ."
+
+Lăng Tiêu Thiên Vương nhìn xem bay ngược trở về Thanh Thiên Phù Đồ Tháp, lộ ra khó có thể tin thần sắc, cứng ngắc đứng ở nguyên địa, không cách nào di động thân thể.
+
+Khai Nguyên Lộc Đỉnh cùng Thanh Thiên Phù Đồ Tháp đồng thời đánh vào Lăng Tiêu Thiên Vương trên thân, trực tiếp đem hắn đánh cho chìm vào tiến lòng đất.
+
+Trên đại địa, xuất hiện lít nha lít nhít vết rách, hộ cung cổ trận trận văn cùng Đại Thánh Minh Văn đều là vỡ nát một mảng lớn, Lăng Tiêu Thiên Vương Phủ có gần một nửa đều chìm vào tiến lòng đất.
+
+Tại thời khắc này, toàn bộ thế giới trở nên vô cùng an tĩnh, vô số ánh mắt nhìn chằm chằm bị Khai Nguyên Lộc Đỉnh cùng Thanh Thiên Phù Đồ Tháp đụng nát vùng thế giới kia.
+
+Hộ Long các phó các chủ, trên thân tất cả đều là thánh huyết, nhưng như cũ đứng nghiêm , nói: "Lăng Tiêu Thiên Vương sinh mệnh khí tức đã hoàn toàn biến mất, một đời ngàn năm bá chủ, chung quy là cát bụi trở về với cát bụi."
+
+Trương Nhược Trần cắn chặt răng răng cố gắng kiên trì, ngăn chặn thương thế cùng cảm giác suy yếu, để cho mình đứng nghiêm lập.
+
+Tại trước mặt Thánh Minh bộ hạ cũ, chỉ có đứng đấy thái tử, mới càng có thể chinh phục nội tâm của bọn hắn.
+
+Lăng Tiêu Thiên Vương nhục thân, bị đánh đến vỡ nát.
+
+Lấy Khai Nguyên Lộc Đỉnh cùng Thanh Thiên Phù Đồ Tháp lực lượng, cho dù là Lăng Tiêu Thiên Vương tu vi cũng không chịu nổi, chết tại Trương Nhược Trần dưới chân.
+
+"Hoa —— "
+
+Thanh Thiên Phù Đồ Tháp không có chủ nhân, vẫn còn có khí linh, tự động từ dưới đất bay lên, hướng về Thánh Minh thành bên ngoài bay đi.
+
+Phó các chủ dẫn đầu Hộ Long các thành viên, liên thủ đưa nó chặn lại, sử dụng từng tầng từng tầng thánh lực, mới miễn cưỡng đưa nó phong ấn đứng lên.
+
+Thanh Thiên Phù Đồ Tháp khí linh khá cường đại, mà lại, cũng sớm đã hiệu trung với Trì gia, ngoại nhân căn bản là không có cách sử dụng nó. Trừ phi là có được Đại Thánh cấp bậc tu vi, mới có thể từng bước một thuần hóa khí linh, khống chế Chí Tôn Thánh Khí này.
+
+"Trời xanh có mắt, rốt cục giết chết Lăng Tiêu Thiên Vương, gia gia, ngươi ở dưới cửu tuyền có thể nhắm mắt!"
+
+"Những năm này, Lăng Tiêu Thiên Vương Phủ mượn thanh lý Thánh Minh bộ hạ cũ danh nghĩa, lạm sát kẻ vô tội, việc ác bất tận, hôm nay, rốt cục lọt vào báo ứng."
+
+"Thánh Minh hoàng cung, chúng ta lại trở về!"
+
+"Cha, ngươi suốt đời nguyện vọng rốt cục thực hiện, chúng ta dẹp xong Lăng Tiêu Thiên Vương Phủ, diệt Lăng Tiêu Thiên Vương, Thánh Minh Trung Ương đế quốc đại kỳ sẽ lần nữa cắm đầy mảnh sơn hà này."
+
+. . .
+
+Thánh Minh bộ hạ cũ toàn bộ đều kích động đến lệ nóng doanh tròng, lên tiếng rống to, phóng thích những năm gần đây kiềm chế cảm xúc.
+
+Một mực đều tại ẩn nhẫn, vẫn luôn tại giấu tài, vẫn luôn đang bị động tiếp nhận triều đình áp bách, hôm nay, bọn hắn cảm giác mình mới xem như chân chính đứng lên, chân chính làm một lần nam nhi nhiệt huyết.
+
+Coi như ngày mai sẽ chết ở chỗ này, cũng đều đã đáng giá!
+
+Thái gia lão tổ mặt đỏ lên, mừng rỡ như điên, từ Ma Viên trong tay, cướp đi Thánh Minh chiến kỳ, từng bước một leo lên tàn phá tường thành, đưa nó cắm ở trên tường, hét lớn một tiếng: "Thánh Minh lại trở về!"
+
+Thanh âm, truyền khắp Thánh Minh thành.
+
+Minh Giang Vương tọa hạ mấy vị Thánh Giả, vốn là đối với Trương Nhược Trần có rất lớn ý kiến, giờ phút này, mấy người liếc nhau một cái, sau đó, đi đến Trương Nhược Trần trước người, một chân quỳ xuống, hô to một tiếng: "Bái kiến thái tử điện hạ."
+
+Những Thánh Minh bộ hạ cũ khác kia, cũng đều nhao nhao quỳ xuống, cao giọng rống to: "Bái kiến thái tử điện hạ, Thánh Minh Trung Ương đế quốc trường tồn bất hủ, vạn kiếp bất diệt."
+
+"Bái kiến thái tử điện hạ, Thánh Minh Trung Ương đế quốc trường tồn bất hủ, vạn kiếp bất diệt."
+
+. . .
+
+Vượt qua trăm vạn tu sĩ đồng thời quỳ xuống, người đông nghìn nghịt, tràng diện vô cùng hùng vĩ, từng đạo sóng âm truyền đi, chấn động thiên địa.
+
+"Toàn bộ đều đứng lên đi, mọi người đi trước thu liễm chiến tử thân nhân cùng bằng hữu thi hài, chờ một lúc, bản thái tử còn có chuyện trọng yếu hơn muốn an bài." Trương Nhược Trần nói.
+
+Minh Giang Vương cao giọng cười to, đi đến Khai Nguyên Lộc Đỉnh bên cạnh, lần nữa vuốt ve thân đỉnh , nói: "Không hổ là Trương gia Trấn quốc Tổ Khí, lại có thể trấn áp Chí Tôn Thánh Khí, chẳng lẽ cũng là một kiện Chí Tôn Thánh Khí?"
+
+Tra xét rõ ràng đằng sau, Minh Giang Vương nhưng lại lắc đầu , nói: "Chí Tôn Thánh Khí nội bộ khắc lục có Chí Tôn Minh Văn, Khai Nguyên Lộc Đỉnh nội bộ, lại không biện pháp dò xét, thật sự là kỳ dị."
+— QUẢNG CÁO —
+
+"Chẳng lẽ là một kiện Thần khí?"
+
+Oa Oa hai mắt vô cùng lửa nóng, đối với Khai Nguyên Lộc Đỉnh cảm thấy rất hứng thú, xông tới, duỗi ra hai cái móng vuốt muốn vuốt ve.
+
+Đứng sau lưng Minh Giang Vương Yến Khải Toàn, vô cùng phẫn nộ, hét lớn một tiếng: "Từ đâu tới con thỏ, cách Trấn quốc Tổ Khí xa một chút, đó há lại đồ vật ngươi có thể đụng."
+
+Yến Khải Toàn đã đem Khai Nguyên Lộc Đỉnh xem như là thủ hộ đế quốc thần thánh đồ vật, cảm thấy một cái con thỏ đụng vào thân đỉnh, đều là đối với Khai Nguyên Lộc Đỉnh làm bẩn.
+
+Thế là, hắn lập tức xông đi lên, một phát bắt được Oa Oa lỗ tai thỏ, đem nó nhấc lên, ném bay ra ngoài.
+
+Những Thánh Giả khác kia, cũng tương đương giật mình, toàn bộ đều đang đánh giá Khai Nguyên Lộc Đỉnh, trong lòng vô cùng hiếu kỳ.
+
+"Có thể trấn áp Chí Tôn Thánh Khí, tuyệt đối là không thể coi thường, thật chẳng lẽ chính là một kiện Thần khí, trong truyền thuyết, một trong thập đại Thần Khí Ngọc Hoàng Đỉnh, chính là một cái đỉnh."
+
+"Thần khí đều là trong truyền thuyết thần thoại đồ vật, ai thấy tận mắt? Nói không chắc, một chút Thần khí kỳ thật chính là Chí Tôn Thánh Khí, chỉ là nghe nhầm đồn bậy, cuối cùng quá mức khoa trương, thoát ly hiện thực, mới bị người xem như là Thần khí."
+
+"Khai Nguyên Lộc Đỉnh hẳn là Bất Động Minh Vương Đại Tôn để lại Thần Di Cổ Khí, đủ để cùng Chí Tôn Thánh Khí giao phong. Nắm giữ nó, mùng bảy tháng sau, chúng ta cùng thái tử điện hạ cùng một chỗ tiến về Vô Đỉnh sơn, cướp đi Ma giáo Thánh Nữ làm thái tử phi, ngược lại muốn xem xem ai dám chặn đường? Ha ha!"
+
+. . .
+
+Tất cả mọi người rất vui vẻ, đang hưởng thụ sau thắng lợi vui sướng, thế nhưng là, Trương Nhược Trần nhìn qua trước mắt vô số thi thể, nhưng trong lòng thì có chút ủ dột.
+
+Đi đến ba vị Hộ Long các thành viên bên cạnh thi thể, Trương Nhược Trần tâm tình rất nặng nề, thật sâu hướng bọn hắn cúi đầu.
+
+Ba vị cái thế cường giả, vẫn luôn yên lặng thủ hộ lấy Trương gia, cho dù là chết đi, ngoại trừ số ít mấy người bên ngoài, căn bản không có người biết bọn họ là ai, cũng không biết bọn hắn đã từng đối với Trương gia bỏ ra.
+
+Nhân vật như vậy, đáng giá Trương Nhược Trần đối bọn hắn cúi đầu.
+
+Phó các chủ đi vào Trương Nhược Trần sau lưng , nói: "Trên chiến trường, không có khả năng chỉ có giết chóc, mà không có tử vong. Cường đại tới đâu tu vi, cũng có khả năng sẽ vẫn lạc. Thế nhưng là, chỉ có không ngớt không chỉ chiến đấu, mới có thể ma luyện ra cường giả ý chí, chỉ có trải qua từng tràng máu tươi tẩy lễ, cường giả chân chính mới có thể đản sinh ra."
+
+"Chiến tử ba người, ta sẽ thích đáng an trí cùng bảo vệ bọn hắn hậu nhân. Nhưng là, có một việc, lại nhất định phải do điện hạ tự mình đi làm."
+
+"Chuyện gì?" Trương Nhược Trần hỏi.
+
+Phó các chủ nói: "Thiên Cương các vẫn luôn là do 36 người tạo thành, mặc dù, mỗi một vị thành viên đều sẽ chọn lựa ra một vị đệ tử, chính mình chết già đằng sau, đệ tử liền sẽ kế thừa thân phận của hắn cùng sứ mệnh. Nhưng, ba người bọn họ là chiến tử, còn chưa kịp chọn lựa cùng bồi dưỡng đệ tử. Cho nên, điện hạ phải đi tìm ba người, đền bù ba cái trống chỗ này. Điện hạ có thể có nhân tuyển thích hợp?"
+
+Trương Nhược Trần ánh mắt, hướng về bốn phía liếc nhìn đi qua, cuối cùng, ánh mắt dừng lại ở trên người A Nhạc.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1397
+
+Chương 1394: Thế giới mới tinh
+
+Rất hiển nhiên, hiện tại cũng không phải là lập tức chọn lựa ba vị Hộ Long các thành viên thời điểm, việc này trước hết hoãn một chút, Trương Nhược Trần còn có càng trọng yếu hơn sự tình muốn làm.
+
+Tần Vũ Đồng giẫm qua bị huyết thủy nhuộm đỏ đại địa, đi vào Trương Nhược Trần trước người, khom mình hành lễ , nói: "Bái kiến điện hạ, triều đình cùng Thánh Minh tình huống thương vong, sơ bộ thống kê đi ra."
+
+Tần Vũ Đồng cùng thường ngày khác biệt, không có tiên diễm khêu gợi vũ y, mà là mặc đẫm máu áo giáp, mặc dù bị thương rất nặng, lại vô cùng hưng phấn cùng kích động, dùng đến một loại ánh mắt sùng bái cùng kính úy nhìn chằm chằm Trương Nhược Trần.
+
+Trận chiến này xuống tới, Tần Vũ Đồng tâm thái phát sinh biến hóa rất lớn, có thể nói, nếu là Trương Nhược Trần có dùng đến nàng địa phương, nàng nguyện ý vì Trương Nhược Trần đi chết.
+
+Đánh hạ Lăng Tiêu Thiên Vương Phủ, trấn sát Lăng Tiêu Thiên Vương, trọng thương triều đình đại quân, vì Thánh Minh bộ hạ cũ bậc cha chú cùng tổ tông báo thù rửa hận, đây đều là trước kia bọn hắn không dám làm, cũng làm không được sự tình.
+
+Chỉ có thái tử điện hạ mới có dạng này lực ngưng tụ cùng lực hiệu triệu, không chỉ có là bởi vì hắn thân phận, càng bởi vì hắn có thể xông lên phía trước nhất, không sợ bất luận cái gì hung hiểm, cũng chính bởi vì dạng này, mới có thể để cho người nhát gan một lần nữa trở nên anh dũng, mới có thể để cho người bị triều đình lâu dài chèn ép có can đảm phấn khởi phản kháng.
+
+Đây chính là quyết đoán, đây chính là đảm lượng!
+
+Tại tất cả mọi người sắp chết lặng, đều nhanh muốn bị Nữ Hoàng thành thần sợ mất mật thời điểm, cần phải có một người như vậy đứng ra.
+
+Cho nên, Trương Nhược Trần có thể một trận chiến định càn khôn, để Thánh Minh bộ hạ cũ trở nên càng thêm có lực ngưng tụ, Minh Giang Vương lại không thể làm được.
+
+Cũng không phải là Minh Giang Vương thân phận không đủ chính thống, mà là bởi vì, hắn đã già, đã bị triều đình thực lực dọa sợ, trong lòng có khiếp đảm, cũng liền nhất định không dám buông tay đánh cược một lần.
+
+Trương Nhược Trần hướng về Tần Vũ Đồng nhìn chằm chằm một chút , nói: "Giảng."
+
+Tần Vũ Đồng nói: "Bởi vì rất nhiều tu sĩ đều đã hài cốt không còn, chỉ có thể thống kê ra một thứ đại khái. Triều đình một phương, đã chết đi hai vị Thánh Vương, 50~60 vị Thánh Giả, hơn 700 vị Bán Thánh. Còn lại những quân sĩ dưới Bán Thánh kia, chết đi có 240 vạn tả hữu."
+
+"Thánh Minh một phương, có 14 vị Thánh Giả, hơn 150 vị Bán Thánh, vượt qua trăm vạn quân sĩ, vĩnh viễn lưu tại trên mảnh đại địa này."
+
+Trương Nhược Trần nghe số lượng liên tiếp nhìn thấy mà giật mình này, lại là con mắt đều không có nháy một chút, ngẩng đầu lên, nhìn lên bầu trời, tự lẩm bẩm: "Vẫn lạc nhiều như vậy Thánh Giả cùng Bán Thánh, Thiên Địa Kỳ Cục hẳn là có phát giác mới đúng, vị kia Thái Tế đại nhân cùng Đại Địa Thần Điện điện chủ làm sao còn không có phát động công kích?"
+
+"Điện hạ, cái gì là Thiên Địa Kỳ Cục?" Tần Vũ Đồng hỏi.
+
+"Không có gì."
+
+Trương Nhược Trần khe khẽ lắc đầu, nhìn chằm chằm Tần Vũ Đồng cặp con mắt kia, tiếp theo lại nói: "Ngươi cảm thấy, trận chiến này chúng ta đến cùng là vì cái gì?"
+
+Tần Vũ Đồng nói: "Thái tử điện hạ đương nhiên là vì cho chúng ta báo thù rửa hận, sau ngày hôm nay, Vũ Đồng nguyện ý vì điện hạ quên mình phục vụ mệnh."
+
+Trương Nhược Trần hai mắt co rụt lại, chăm chú nhìn chằm chằm nàng.
+
+Tần Vũ Đồng hai mắt có chút đỏ lên, cắn chặt môi, lại nói: "Điện hạ có lẽ là không biết, 800 năm trước, Thánh Minh Trung Ương đế quốc hủy diệt đằng sau, chúng ta tiên tổ gặp phải là vô cùng thê thảm, rất nhiều gia tộc đều bị giết đến sắp diệt tộc. Người sống, thì là biến thành đê tiện nhất nô lệ, bị bán nhập vào thanh lâu lọt vào dâm nhục, bị đưa vào tiến đường hầm tươi sống mệt chết, bị xem như chăn nuôi Man thú tọa kỵ lương thực. Tại thời đại hắc ám kia, từ nô lệ thị trường mua được một người quần áo lam lũ nữ nô, cũng có thể là đã từng một cái thế gia thiên chi kiêu nữ."
+— QUẢNG CÁO —
+
+
+"Chúng ta muốn phản kháng, không cần làm nô lệ, không nên bị chà đạp. Mà mỗi một lần phản kháng đều là cuối cùng đều là thất bại, lại có càng nhiều người chết đi. Cừu hận của chúng ta, chính là tại trong phản kháng, một đời một đời tích luỹ xuống."
+
+"Chỉ cần là có thể tiêu diệt Lăng Tiêu Thiên Vương Phủ, coi như ngày mai hừng đông thời điểm, chúng ta liền sẽ bị triều đình đại quân vây quét mà chết, cũng là một kiện đáng giá sự tình."
+
+Trương Nhược Trần than nhẹ một tiếng, vỗ vỗ bờ vai của nàng , nói: "Có cừu báo cừu, có oán báo oán, cũng không sai. Nhưng là, chúng ta không thể lấy cái này xem như là mục tiêu cuộc sống, còn sống là vì nghênh đón càng tốt đẹp hơn thế giới, mà không phải để cho mình từng bước một đi vào vực sâu tử vong, vĩnh viễn sinh hoạt tại trong bóng tối. Hiểu chưa?"
+
+Tần Vũ Đồng đang tự hỏi Trương Nhược Trần một câu nói kia ý tứ, cái gì là nghênh đón càng tốt đẹp hơn thế giới?
+
+Dưới cái nhìn của nàng, đánh hạ Lăng Tiêu Thiên Vương Phủ, nhất định là sẽ gặp phải triều đình điên cuồng trả thù, những ngày tiếp theo sẽ càng thêm gian nan, huyết chiến sẽ liên tiếp không ngừng đến, cuối cùng, nàng cũng có khả năng sẽ chết trận ở chỗ này.
+
+Đương nhiên, thì tính sao đâu?
+
+Đang chuẩn bị cùng thái tử điện hạ cùng một chỗ tiến đánh Lăng Tiêu Thiên Vương Phủ thời điểm, Tần Vũ Đồng trong lòng, đã ôm quyết tâm quyết tử.
+
+"Truyền lệnh xuống, Thánh Minh bộ hạ cũ Thánh Giả cùng Bán Thánh, toàn bộ đến bên ngoài Hiên Viên điện tập hợp, trừ cái đó ra, các đại gia tộc cùng tổ chức cũng sai phái ra một vị đại biểu. Bản thái tử có chuyện trọng yếu tuyên bố." Trương Nhược Trần nói.
+
+Tần Vũ Đồng đem tin tức truyền xuống dưới, phàm là phù hợp thân phận tu sĩ, nhao nhao chạy đến Hiên Viên điện, đúng là vượt qua ngàn người.
+
+Không chỉ có Nhân tộc, càng có Bán Nhân tộc.
+
+800 năm trước, thế nhưng là có 300 cái Bán Nhân tộc phụ thuộc vào Thánh Minh Trung Ương đế quốc, đến hiện nay, vẫn như cũ có rất nhiều Bán Nhân tộc đối với Thánh Minh trung thành tuyệt đối.
+
+Thái Tử Chiếu tuyên bố đằng sau, bọn hắn lập tức chen chúc mà tới.
+
+"Thái tử điện hạ vạn tuế!"
+
+"Thái tử điện hạ vạn tuế!"
+
+. . .
+
+Không thể không nói, Lăng Tiêu Thiên Vương Phủ một trận chiến, Trương Nhược Trần triệt để lập uy, coi như còn không đạt được ngày xưa Minh Đế như thế uy vọng, nhưng cũng đủ để chấn nhiếp phía dưới những kiêu hùng kia.
+
+Trương Nhược Trần đứng tại bên ngoài cung điện rách rưới cửa chính, quan sát đám người, con mắt từ từng cái thân ảnh phía trên lướt qua, đột nhiên, thấy được một cái bóng người quen thuộc.
+
+Đó là một nữ tử, đứng tại trong một đoàn thánh vụ màu đen, dáng người cao gầy tinh tế, nhưng lại mười phần mông lung, nhìn không rõ ràng nàng chân thân.
+
+Dù vậy, Trương Nhược Trần hay là một chút đưa nàng nhận ra, chính là Hàn Tưu.
+
+Hàn Tưu một bộ mỹ lệ dung nhan, từ trong thánh vụ màu đen hiển lộ ra, đối với Trương Nhược Trần tà dị cười một tiếng.
+
+Trương Nhược Trần sắc mặt không thay đổi, cất giọng nói: "Lăng Tiêu Thiên Vương Phủ đã bị công xuống tới, Lăng Tiêu Thiên Vương cũng bị giết chết. Mọi người cảm thấy, chúng ta tiếp xuống nên đi nơi nào?"
+
+Những Thánh cảnh nhân vật kia biết Trương Nhược Trần khẳng định là có sắp xếp, cho nên, toàn bộ giữ yên lặng.
+
+Nhân vật dưới Thánh cảnh, lại là vàng thau lẫn lộn, có người nói ra: "Thái tử điện hạ hẳn là lập tức xưng đế, ngay tại Thánh Minh thành, trùng kiến Thánh Minh Trung Ương đế quốc, cùng Đệ Nhất Trung Ương đế quốc đối kháng đến cùng, thuộc hạ nguyện ý thề chết cũng đi theo thái tử."
+
+"Chúng ta tiếp xuống hẳn là giết tới Vô Đỉnh sơn, diệt Ma giáo, giúp thái tử điện hạ đoạt lại Ma giáo Thánh Nữ."
+
+"Không sai, không sai, chúng ta Thánh Minh thái tử phi, tại sao có thể gả cho một cái cây. Diệt Ma giáo, diệt Hỏa tộc, chém Ngô Đồng."
+
+. . .
+
+Chờ đến huyên náo đi qua đằng sau, Trương Nhược Trần mới nói ra: "Lấy Thánh Minh thực lực bây giờ, có thể đối kháng Đệ Nhất Trung Ương đế quốc sao?"
+
+Phía dưới, lập tức yên tĩnh trở lại.
+
+800 năm, ròng rã 800 năm, Thánh Minh bộ hạ cũ lần thứ nhất có thể đứng thẳng sống lưng nói chuyện, mỗi người cũng còn ở vào trong hưng phấn, lại bị Trương Nhược Trần tạt một chậu nước lạnh.
+
+Kỳ thật, tất cả mọi người hết sức rõ ràng, hiện tại bọn hắn cùng Đệ Nhất Trung Ương đế quốc khiêu chiến, không thể nghi ngờ là lấy trứng chọi đá. Nhưng là, bây giờ chính là sĩ khí dâng cao thời điểm, làm sao có thể nói ra lời nói "Tăng người khác chí khí, diệt uy phong mình" ?
+
+Trương Nhược Trần lại nói: "Bản thái tử tuyên bố Thái Tử Chiếu, mục đích quan trọng nhất, nhưng thật ra là muốn đem tất cả mọi người tụ tập lại, không nguyện ý nhìn thấy mọi người lại tiếp tục trốn đông trốn tây, hoặc là bị người nô dịch, càng thêm không nguyện ý mang theo mọi người đi chịu chết."
+
+"Muốn sống, liền muốn sống thật khỏe, có tôn nghiêm còn sống."
+
+"Thánh Minh Trung Ương đế quốc hủy diệt, là ta Trương gia sai lầm, là ta Trương gia làm liên lụy các ngươi. Nhưng là, hôm nay ta Trương Nhược Trần trở về, liền muốn một lần nữa thành lập Thánh Minh Trung Ương đế quốc, lần nữa triển khai ô dù, cho mọi người chống lên một mảnh có tôn nghiêm thiên địa."
+
+"Nhưng là mới Thánh Minh Trung Ương đế quốc, lại không phải tại Thánh Minh thành, mà là tại một địa phương khác."
+
+Trương Nhược Trần điều động lực lượng không gian, hai tay hướng về phía trước đẩy, mở ra Càn Khôn giới thế giới chi môn, lập tức, một đạo cao tới trăm trượng quang môn, hiện ra tại bên ngoài Hiên Viên điện.
+
+Ở đây Thánh Giả, Bán Thánh, gia chủ, tổ chức thủ lĩnh, nhao nhao đi vào quang môn, bước vào Càn Khôn giới.
+
+"Trời ạ, lại là một thế giới khác, thiên địa linh khí nồng độ vượt qua Côn Lôn giới, cũng không phải cằn cỗi Khư Giới có thể so sánh với."
+
+"Ta không có nhìn lầm đi! Là Tiếp Thiên Thần Mộc. Cây này trong truyền thuyết Thiên Địa Linh Căn, không phải đã bị chém đứt sao? Làm sao lại sinh trưởng tại tòa thế giới này?"
+— QUẢNG CÁO —
+
+
+"Sinh Mệnh Chi Tuyền, Sinh Mệnh Chi Tuyền, nếu là có thể một mực tại toà thế giới này tu luyện, mỗi người tuổi thọ đều khẳng định sẽ gia tăng."
+
+"Thánh Minh Trung Ương đế quốc chính là muốn trong này thành lập? Quá tốt rồi! Ta Thái gia muốn thành lập một tòa Thánh Thành."
+
+"Thế giới này rộng lớn như vậy, tài nguyên phong phú, chẳng lẽ đều thuộc về chúng ta Thánh Minh Trung Ương đế quốc?"
+
+"Trong này tu luyện, bản gia chủ khẳng định có thể đột phá đến Thánh cảnh, ta dù sao là không đi, đánh chết ta cũng không rời đi. Nếu là có thể đem tộc nhân, toàn bộ dời đến toà thế giới này, thì tốt hơn!"
+
+. . .
+
+Trong Càn Khôn giới, tất cả tu sĩ, bao quát Thánh cảnh nhân vật đều nhanh muốn kích động đến nổi điên, rất nhiều người trực tiếp xếp bằng ở dưới Tiếp Thiên Thần Mộc, tu luyện.
+
+Ngoài Hiên Viên điện.
+
+"Hoa —— "
+
+Một hạt điểm sáng màu đen, đột nhiên hiện ra đi ra.
+
+Cái điểm đen kia nhanh chóng xoay tròn, trở nên càng lúc càng lớn, cuối cùng, hóa thành một cái đường kính ba trượng lỗ đen.
+
+Hàn Tưu đứng tại lỗ đen trung tâm, ở trên người nàng phát ra Hắc Ám chi lực, phảng phất có thể thôn phệ hết chung quanh tất cả ánh sáng tuyến , nói: "Ngươi cũng dám đem bọn hắn toàn bộ tiếp nhập vào Càn Khôn giới, chẳng lẽ liền không sợ trong bọn họ có triều đình nội ứng, đem tin tức truyền đi?"
+
+Trương Nhược Trần lộ ra rất lạnh nhạt , nói: "Ngươi cho rằng triều đình nội ứng, sẽ ôm quyết tâm quyết tử cùng ta cùng một chỗ tiến đánh Lăng Tiêu Thiên Vương Phủ? Lại nói, Càn Khôn giới cùng Tiếp Thiên Thần Mộc cũng không phải bí mật gì, triều đình vị cao nhất người cầm quyền kia, không phải đã sớm biết? Coi như truyền về triều đình, thì như thế nào?"
+
+Nghe nói như thế, Hàn Tưu trong đôi mắt toát ra một đạo cười lạnh, "Ta đã sớm nói, Hoàng Yên Trần chính là một cái tiện nhân, nàng căn bản không xứng với ngươi. Lần sau gặp mặt, ta nhất định thay ngươi giết nàng."
+
+Trương Nhược Trần trên mặt, không có một tia tâm tình chập chờn, bình tĩnh như nước.
+
+Hàn Tưu thu hồi trên người hàn ý cùng tà khí, từ trong lỗ đen đi tới, một cái mảnh khảnh ngọc thủ nắm Trương Nhược Trần cổ tay, thuận thế chính là đổ vào tiến Trương Nhược Trần trong ngực, mềm mại mà nói: "Lúc trước, ta hết thảy giết chết năm vị triều đình Thánh Giả, thái tử điện hạ chuẩn bị cho ta dạng gì ban thưởng?"
+
+Mỹ nhân vào lòng, Trương Nhược Trần cũng không có giống như kiểu trước đây đẩy ra nàng , nói: "Ngươi hẳn phải biết, ta xưa nay không là một người keo kiệt, vì ta làm việc, chỉ có làm ra thành tích, khẳng định có thể đạt được tốt nhất tài nguyên tu luyện. Đã ngươi lựa chọn trở về, cũng đừng có lại đi, đi Hộ Long các đưa tin đi!"
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1398
+
+Chương 1395: Hàn Tưu mưu đồ
+
+Hàn Tưu ánh mắt trầm xuống, có một cỗ lực lượng hắc ám, từ trong thân thể mềm mại tuôn ra , nói: "Trong mắt ngươi, ta cũng chỉ có thể làm thuộc hạ của ngươi, hoặc là thần tử? Ngươi hẳn là minh bạch, ta muốn là cái gì. Chỉ cần ngươi đáp ứng ta, sau này, ta có thể vì ngươi làm bất cứ chuyện gì."
+
+Trương Nhược Trần không nhanh không chậm mà nói: "Hộ Long các thành viên, có rất lớn quyền tự chủ. Trên nguyên tắc tới nói, cũng không tính là thuộc hạ của ta, mà là ta cùng ta hậu đại thủ hộ giả, có thể cự tuyệt ta một chút mệnh lệnh, chỉ cần ngươi nguyện ý, thậm chí không cần hướng ta hành lễ. Không có triệu hoán các ngươi thời điểm, các ngươi chính là người tự do. Chỉ cần ngươi có thể trở thành Hộ Long các các chủ, ngươi cùng ta chính là bình đẳng thân phận. Đương nhiên, ta cùng ta hậu đại cần các ngươi thời điểm, các ngươi lại nhất định phải ngay đầu tiên xuất hiện."
+
+"Thì tính sao? Ta muốn là. . ."
+
+Hàn Tưu dừng một chút, ánh mắt dần dần trở nên nhu hòa, lập tức hé miệng cười một tiếng: "Thủ hộ giả đúng không? Tốt, ta vẫn là có thể đáp ứng ngươi."
+
+Hàn Tưu sở dĩ lập tức đổi giọng, đó là bởi vì, Hoàng Yên Trần đã đoạn tuyệt với Trương Nhược Trần, hiện tại, chính là nàng cơ hội tốt nhất.
+
+Nếu là, hiện tại không đợi tại Trương Nhược Trần bên người , chờ đến nữ tử khác xuất hiện, nói không chừng chính là nữ tử khác thay thế Hoàng Yên Trần vị trí.
+
+Tỉ như, vị kia Ma giáo Tiểu Thánh Nữ.
+
+Chỉ có để Trương Nhược Trần nhận thức đến giá trị của nàng, rốt cuộc không thể rời bỏ nàng, như vậy, thái tử phi vị trí sẽ còn xa sao?
+
+Cái gì Mộc Linh Hi, cái gì Ma giáo Tiểu Thánh Nữ, há có thể tranh đến qua nàng?
+
+Hàn Tưu đôi mắt nháy , nói: "Nghe nói, mùng bảy tháng sau, ngươi muốn leo lên Vô Đỉnh sơn, đi đón Mộc Linh Hi, là vì còn thiếu nàng một cái hứa hẹn?"
+
+"Không sai." Trương Nhược Trần nói.
+
+Hàn Tưu nói: "Muốn để cho ta gia nhập Hộ Long các, trở thành Hoàng tộc thủ hộ giả, ngươi cũng nhất định phải cho ta một cái hứa hẹn."
+
+"Cam kết gì?" Trương Nhược Trần hỏi.
+
+Hàn Tưu trước ngực đôi kia sung mãn mà tràn ngập co dãn hai ngọn núi, đặt ở ngực Trương Nhược Trần, nâng lên một đôi mắt đẹp, khoảng cách gần nhìn chằm chằm Trương Nhược Trần mặt , nói: "Nếu là, năng lực của ta, vượt qua Hộ Long các các chủ. Lúc kia, ta không chỉ có muốn làm các chủ, càng phải làm Hoàng tộc một thành viên. Ngươi hẳn là hiểu ý của ta không?"
+
+"Ngươi nếu thật có thể đi đến một bước kia, tự nhiên là có tư cách trở thành Hoàng tộc một thành viên. Ta đáp ứng ngươi." Trương Nhược Trần nói.
+
+Hàn Tưu trong đôi mắt, lộ ra một đạo thần sắc mừng rỡ , nói: "Tốt, có ngươi câu nói này, sau này ngươi làm bất cứ chuyện gì, ta đều có thể toàn lực ứng phó đi giúp ngươi. Ngươi phải hiểu được, người yêu ngươi nhất, tuyệt đối là ta. Chỉ cần ngươi tốt với ta, ta nhất định sẽ không giống Hoàng Yên Trần như thế phản bội ngươi. Cho nên, Thánh Minh Trung Ương đế quốc hoàng cung, sau này nhất định phải có ta một chỗ vị trí. Mùng bảy tháng sau, ngươi muốn đối phó Hỏa tộc cùng Ma giáo, là một trận trận đánh ác liệt. Nhưng là, ta có biện pháp, để Hỏa tộc trước đó, chết trước một nửa."
+
+Trương Nhược Trần trong mắt, hiện lên một đạo lạnh buốt quang mang , nói: "Biện pháp gì?"
+
+Hàn Tưu nói: "Nửa năm trước, Phong Đô Quỷ Thành bị Hỏa tộc công phá, tất cả Âm Binh Quỷ Sát cơ hồ đều bị trấn sát, liền ngay cả Quỷ thành chi chủ Thần Sơ Quỷ Vương cũng bị trấn áp. Lúc ấy, ta cũng ở trong Phong Đô Quỷ Thành, tận mắt nhìn thấy Thần Sơ Quỷ Vương bị bắt đi."
+— QUẢNG CÁO —
+
+
+Trương Nhược Trần nói: "Tại Âm gian thời điểm, Thần Sơ Quỷ Vương liền đã đạt tới lục kiếp Quỷ Vương đỉnh phong, chuẩn bị độ lần thứ bảy quỷ kiếp. Có thể nói, nó chính là dưới Đại Thánh lợi hại nhất một nhóm cường giả. Hỏa tộc lại có thể đưa nó trấn áp, thực lực thật đúng là làm cho người sinh ra sợ hãi."
+
+"Vì trấn áp Thần Sơ Quỷ Vương, Hỏa tộc vận dụng một kiện Chí Tôn Thánh Khí, Luyện Thánh Lô." Hàn Tưu nói ra.
+
+Trương Nhược Trần nói: "Hỏa tộc vậy mà cũng nắm giữ một kiện Chí Tôn Thánh Khí, thật sự là khó lường, khó trách như thế cao điệu."
+
+Hàn Tưu tiếp tục nói ra: "Theo ta được biết, Thần Sơ Quỷ Vương liền bị giam giữ tại Hỏa tộc lãnh địa, Hỏa Cảnh. Chỉ cần đưa nó phóng xuất, toàn bộ Hỏa Cảnh, nhất định phát sinh náo động lớn. Hỏa tộc cho dù chết một nửa, cũng là chuyện rất bình thường, không phải sao?"
+
+Trương Nhược Trần có chút hiếu kỳ , nói: "Nếu Hỏa tộc nắm giữ lấy Luyện Thánh Lô, vì sao không có đem Thần Sơ Quỷ Vương luyện hóa?"
+
+"Ta trong nội bộ Hỏa tộc dò xét đến tin tức, nghe nói, Thần Sơ Quỷ Vương là thần một sợi tàn hồn, tu luyện thành hiện tại lục kiếp Quỷ Vương. Đúng là như thế, nó so với bình thường lục kiếp Quỷ Vương đều cường đại hơn nhiều, đủ để cùng Đại Thánh tiến hành ngắn ngủi đối kháng. Hỏa tộc cầm tù mục đích của nó, chính là muốn theo nó trên thân, nghiên cứu ra thành thần bí mật." Hàn Tưu có chút đắc ý nói.
+
+Tới gặp Trương Nhược Trần, Hàn Tưu tự nhiên là làm đầy đủ chuẩn bị, đưa lên Thần Sơ Quỷ Vương phần đại lễ này, chính là muốn để Trương Nhược Trần biết, nàng Hàn Tưu cùng khác những cô gái kia không giống với, chính là người chân chính có thể giúp được hắn.
+
+Trương Nhược Trần cẩn thận suy nghĩ , nói: "Thần Sơ Quỷ Vương loại tồn tại này, Hỏa tộc khẳng định sẽ chặt chẽ trông giữ. Ngươi có thể đưa nó phóng xuất?"
+
+"Vì ngươi, coi như lại nguy hiểm, ta cũng nhất định làm được. Lại nói, ta Hắc Ám Chi Thể cùng Hắc Ám chi đạo, có thể mở ra Âm Gian Chi Môn, hành tẩu tại Âm Dương nhị giới. Bằng vào năng lực của ta, chí ít có ba thành cơ hội, thành công đem Thần Sơ Quỷ Vương thả ra." Hàn Tưu nói ra.
+
+"Chỉ có ba thành cơ hội, ngươi cũng dám đi mạo hiểm? Có biết hay không, một khi thất bại, sẽ là kết cục gì?"
+
+Trương Nhược Trần làm việc vẫn luôn là trong ổn cầu thắng, xưa nay không đánh không có nắm chắc cầm.
+
+Ba thành cơ hội, hay là quá thấp.
+
+Hàn Tưu tà mị cười một tiếng: "Cơ hội không ở chỗ bao nhiêu, mà ở chỗ có thể nắm chặt cơ hội. Dù là chỉ có một thành cơ hội, một khi nắm chặt, không giống với có thể thành công?"
+
+"Đợi thêm một chút , chờ người kia sau khi đến, để hắn ta đi cùng với ngươi xử lý, có lẽ cơ hội thành công có thể đạt tới sáu bảy thành." Trương Nhược Trần nhìn trời một bên, lộ ra một đạo thần sắc mong đợi.
+
+Hàn Tưu cũng không biết Trương Nhược Trần nói tới "Người kia" là ai, nhưng là, khẳng định là một đại nhân vật.
+
+Mùng bảy tháng sau, đồng thời đối kháng Ma giáo cùng Hỏa tộc, thậm chí còn có triều đình số lớn cường giả, đích thật là một kiện cật lực sự tình.
+
+Nếu là ở này trước đó, có thể trọng thương Hỏa tộc, Trương Nhược Trần áp lực hoàn toàn chính xác sẽ trở nên nhỏ một chút.
+
+Mà lại, cũng có thể mượn cơ hội này, thăm dò một chút Hỏa tộc rốt cuộc mạnh cỡ nào? Nội tình đến cùng sâu bao nhiêu? Có phải hay không có Đại Thánh cấp bậc nhân vật?
+
+Sau đó, Trương Nhược Trần đem những Thánh Minh bộ hạ cũ kia, toàn bộ đều từ trong Càn Khôn giới hoán đi ra, đám người lần nữa tập kết tại Hiên Viên điện bên ngoài.
+
+Trương Nhược Trần nói: "Toà thế giới kia, tên là Càn Khôn giới. Ngày mai, Thánh Minh thành tất nhiên sẽ lọt vào Đệ Nhất Trung Ương đế quốc điên cuồng phản kích, cho nên, mọi người tốt nhất mang theo tộc nhân của mình, dời vào tiến Càn Khôn giới. Ở trong Càn Khôn giới, mọi người có thể một lần nữa thành lập gia tộc, thành lập tông môn, thành lập thành trì, tất cả linh sơn, bảo địa, toàn bộ đều hướng mọi người mở ra."
+
+Có người lộ ra khó có thể tin thần sắc, hỏi: "Thật sao? Tất cả tộc nhân đều có thể dời vào tiến Càn Khôn giới?"
+
+"Không sai." Trương Nhược Trần nói.
+
+Thái gia gia chủ có chút nóng nảy , nói: "Thế nhưng là chúng ta Thái gia gia đại nghiệp đại, trực hệ cùng chi thứ tộc nhân cộng lại, đâu chỉ 100 triệu, bọn hắn trải rộng tại Thiên Thai châu các đại phủ quận, chỉ sợ không phải trong thời gian ngắn liền có thể đem bọn hắn tụ họp lại."
+
+"Không sai, chúng ta Yến gia tộc nhân, cũng là trải rộng các nơi."
+
+. . .
+
+Trương Nhược Trần nói: "Không cần vội vã như thế, tiếp xuống nửa tháng, mọi người nhanh đi về tổ chức cùng an bài, đem tất cả tộc nhân toàn bộ đều tụ họp lại. Bản thái tử sẽ tiến về các nơi, đem bọn hắn toàn bộ đều tiếp nhập vào Càn Khôn giới. Đương nhiên, mọi người tốc độ phải nhanh, nếu là trong vòng nửa tháng không có tập kết hoàn thành, chúng ta chỉ có thể mùng bảy tháng sau, Vô Đỉnh sơn gặp lại."
+
+Các đại gia chủ cùng tổ chức thủ lĩnh, lập tức liền xông ra ngoài, bắt đầu an bài tộc nhân tiến vào Càn Khôn giới. Đồng thời, bọn hắn cũng đem từng đạo Truyền Tin Quang Phù đánh ra ngoài, bay về phía các đại châu phủ.
+
+Càn Khôn giới thế giới chi môn, đứng ở Hiên Viên điện bên ngoài, lít nha lít nhít tu sĩ kẻ trước ngã xuống, kẻ sau tiến lên tiến vào trong môn, bước vào vùng thế giới hoàn toàn mới kia.
+
+Trương Nhược Trần an bài Bạch Lê công chúa phụ trách trong Càn Khôn giới trật tự, sau đó, mới là cùng Minh Giang Vương cùng một chỗ, hướng về trong Chư Hoàng Từ Đường bước đi.
+
+"Ngươi dĩ nhiên như thế tín nhiệm bản vương, liền không sợ bản vương ở trong Chư Hoàng Từ Đường giết ngươi?" Minh Giang Vương hai tay chắp sau lưng, ánh mắt lộ ra một đạo lạnh lẽo thần sắc.
+
+Trương Nhược Trần lộ ra rất lạnh nhạt nói: "Thập Nhị hoàng thúc giết ta, chư vị tiên tổ thánh niệm sẽ tha ngươi? Bên ngoài những Thánh Minh bộ hạ cũ kia, chỉ sợ cũng không phải Thập Nhị hoàng thúc liền có thể trấn áp được."
+
+Minh Giang Vương trong mắt vẻ lạnh lùng biến mất, lộ ra một đạo nhu hòa ý cười: "Ha ha! Tốt a, doạ không được ngươi. Trưởng thành! Ngươi đúng là lớn rồi! Có thể chống lên một phiến thiên địa! Bằng vào Lăng Tiêu Thiên Vương Phủ trận chiến này, ngươi tại Thánh Minh bộ hạ cũ trong lòng địa vị, thế nhưng là so ta người hoàng thúc này còn cao hơn được nhiều. Ngay tại vừa rồi, Minh Đường đường chủ thế mà chủ động tới gặp ta."
+
+"Bọn hắn là có ý gì?" Trương Nhược Trần hỏi.
+
+Minh Giang Vương cười nói: "Rất hiển nhiên, bọn hắn cũng bị trận chiến này cho chấn nhiếp, vậy mà muốn muốn thông qua ta dẫn tiến, sau đó tự mình bái kiến ngươi."
+— QUẢNG CÁO —
+
+
+"Sau đó, ngươi cự tuyệt bọn hắn?" Trương Nhược Trần nói.
+
+Minh Giang Vương nhẹ gật đầu, cười lạnh một tiếng: "Tiến đánh Lăng Tiêu Thiên Vương Phủ thời điểm, bọn hắn một mực trốn ở trong tối không có xuất thủ. Người như vậy, tự nhiên không thể để cho bọn hắn tiến vào Càn Khôn giới, càng không thể để bọn hắn một lần nữa trở lại Thánh Minh Trung Ương đế quốc."
+
+Trương Nhược Trần nói ra: "Mùng bảy tháng sau, còn có một cơ hội, liền xem bọn hắn có thể hay không nắm chắc."
+
+Vô luận nói như thế nào, xem ở Khổng Lan Du về mặt tình cảm, chỉ cần Minh Đường nguyện ý cùng Trương Nhược Trần sánh vai kinh lịch một trận sinh tử đại chiến, Trương Nhược Trần hoàn toàn có thể tiếp nhận bọn hắn.
+
+Ngày mai, Càn Khôn giới cùng Tiếp Thiên Thần Mộc cũng sẽ không lại là bí mật, tất nhiên sẽ truyền khắp Côn Lôn giới.
+
+Sau đó, liền xem bọn hắn lựa chọn như thế nào?
+
+Trương Nhược Trần cùng Minh Giang Vương đi vào Thánh Sơn, đứng tại dưới liệt tổ liệt tông linh vị, đều là ánh mắt thành kính, khom mình hành lễ.
+
+Sau đó, Trương Nhược Trần ánh mắt, mới là khóa chặt tại bên dưới tế đàn trên bộ quan tài kia, nhãn thần trở nên càng ngày càng trầm ngưng.
+
+Minh Giang Vương cũng phát hiện cỗ kia quan tài, lộ ra một đạo thần sắc khác thường: "Ai quan tài, làm sao lại đặt ở Chư Hoàng Từ Đường? Ai bỏ vào đến?"
+
+"Có lẽ cũng chỉ có đưa nó mở ra, mới có thể biết chân chính đáp án."
+
+Trương Nhược Trần đưa tay đưa tay về phía trước, một cỗ thánh khí dũng xuất ra ngoài, quấn chặt lấy quan tài, đưa nó thành thánh ánh sáng chỗ sâu, chậm rãi kéo đi ra.
+
+Nhìn thấy quan tài trên đầu một cái chữ "Trần", Minh Giang Vương hai mắt, đột nhiên co rụt lại: "Hoàng huynh chữ viết, lại là hoàng huynh chữ viết."
+
+"Phụ hoàng."
+
+Trương Nhược Trần tâm tư ba động, trở nên càng lúc càng lớn, có nghi hoặc, có chờ mong, có kích động, cũng có một chút sợ hãi.
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
+
+Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
+Phong Lưu Chân Tiên Vô địch lưu đã full.
+---------------------------------------------------------
+https://metruyenchu.com/truyen/van-co-than-de/chuong-1399
+
+Chương 1396: Thiên Địa Linh Căn mới
+
+Minh Giang Vương hiển nhiên cũng là đoán được cái gì, lộ ra khó có thể tin thần sắc , nói: "Chẳng lẽ trong quan tài là thi thể ngươi?"
+
+Trương Nhược Trần rõ ràng liền đứng đối diện với hắn, nói ra lời như vậy, tự nhiên là có chút quái dị.
+
+Trương Nhược Trần năm ngón tay, nắm thật chặt nắp quan tài, lại hồi tưởng lại năm đó Trì Dao giết hắn một màn, trái tim đúng là có chút đau đau nhức.
+
+"Thập Nhị hoàng thúc, năm đó ta chết đi đằng sau, thi thể mai táng ở nơi nào?" Trương Nhược Trần hỏi.
+
+Minh Giang Vương hít một tiếng , nói: "Nhắc tới cũng là hổ thẹn, sau khi ngươi chết, triều đình trên dưới vì cướp đoạt Đế vị, bạo phát tiếp tục không ngừng tranh đấu, có thể nói là gió tanh mưa máu, người người cảm thấy bất an. Sau ba ngày , chờ ta lại đi điều tra ngươi thi thể thời điểm. . . Thi thể đã không biết tung tích."
+
+Trương Nhược Trần ánh mắt run lên, lần nữa nhìn chăm chú về phía trước mắt bộ quan tài này, ra sức đẩy, lập tức, nắp quan tài bay ra ngoài, bịch một tiếng, rơi xuống đất.
+
+Hai người đồng thời hướng trong quan tài chằm chằm đi.
+
+Trống không.
+
+"Làm sao có thể?"
+
+Trương Nhược Trần duỗi ra một tay, thăm dò vào trong quan tài, không có phát hiện bất luận cái gì huyễn thuật cùng trận pháp, trong quan tài đích thật là không có vật gì.
+
+Minh Giang Vương cũng là lộ ra khó có thể lý giải được thần sắc , nói: "Một bộ quan tài xuất hiện tại Chư Hoàng Từ Đường, nay đã khá quỷ dị. Trên quan tài xuất hiện hoàng huynh lưu lại chữ, cũng liền càng quỷ dị hơn. Quan tài lại là trống không, lại là vì cái gì?"
+
+Điểm đáng ngờ quá nhiều.
+
+Mỗi một điểm đều để người khó có thể lý giải được.
+
+Đầu tiên, một bộ quan tài, không có khả năng xuất hiện tại Chư Hoàng Từ Đường.
+
+Thứ hai, Minh Đế viết xuống chữ, không có khả năng xuất hiện tại trên quan tài.
+
+Thứ ba, nếu là, Minh Đế tốn công tốn sức đem quan tài để vào Chư Hoàng Từ Đường, quan tài liền không khả năng là trống không.
+
+Ba loại không có khả năng chuyện phát sinh, lại vẫn cứ đều phát sinh.
+
+"Có vết máu."
+
+Trương Nhược Trần tại quan tài dưới đáy, phát hiện một chỗ vết máu điểm lấm tấm, bởi vậy có thể thấy được, trong quan tài đã từng khẳng định là để đó một bộ thi thể, chỉ bất quá, thi thể về sau lại bị dời đi.
+
+Trương Nhược Trần cùng Minh Giang Vương đều là lâm vào trầm mặc, cẩn thận suy nghĩ.
+— QUẢNG CÁO —
+
+Minh Giang Vương nói: "Chuyện năm đó, thật là càng ngày càng khó bề phân biệt, để cho người ta hoàn toàn đoán không ra."
+
+"Được rồi, trước làm chính sự đi!"
+
+Trương Nhược Trần đem hai mắt nhắm lại, lại một lần nữa mở ra thời điểm, lại trở nên vô cùng sắc bén , nói: "Nhất định phải đem Chư Hoàng Từ Đường cùng Hoàng tộc mộ lâm cùng một chỗ dời vào tiến Càn Khôn giới, không thể lại đem bọn chúng đặt ở Thánh Minh thành. Thập Nhị hoàng thúc, việc này liền giao cho ngươi đến xử lý, ta sẽ để cho Hộ Long các giúp ngươi một tay."
+
+Một trận trùng trùng điệp điệp đại thiên di, khua chiêng gõ trống triển khai, có đến ngàn vạn đến tu sĩ, từ Thánh Minh thành bốn phương tám hướng chạy đến, liên tục không ngừng tiến vào chiếm giữ đến Càn Khôn giới.
+
+Đối với một tòa thế giới tới nói, cái gì trọng yếu nhất?
+
+Không hề nghi ngờ, bình dân bách tính trọng yếu nhất.
+
+Vô luận là võ giả, hay là Thánh Giả, hoặc là thần, đều không phải là trống rỗng sinh ra, mà là từ trong hàng trăm triệu bình dân bách tính đản sinh ra.
+
+Bình dân bách tính chính là thổ nhưỡng, không có bọn hắn, Càn Khôn giới mãi mãi cũng không có khả năng trở thành một tòa thế giới cường đại, một tòa có thể đối kháng Côn Lôn giới thế giới.
+
+Hiện tại, Trương Nhược Trần thiếu nhất, chính là người.
+
+Chờ đến sáng sớm ngày thứ hai tiến đến, lơ lửng tại Thánh Minh thành tứ phương 12 khỏa Phật châu biến mất không thấy gì nữa, cùng lúc đó, Thánh Minh bộ hạ cũ toàn bộ đều biến mất đến sạch sẽ, giống như bốc hơi khỏi nhân gian đồng dạng.
+
+Lăng Tiêu Thiên Vương Phủ bị công phá, Lăng Tiêu Thiên Vương bị trấn sát tin tức, lập tức, bằng tốc độ nhanh nhất truyền ra ngoài, thiên hạ sợ kinh.
+
+"Tin tức giả đi! Làm sao có thể có loại sự tình này?"
+
+"Lăng Tiêu Thiên Vương bị trấn sát? Ha ha, chết cười ta, ai truyền lời đồn?"
+
+"Lấy Lăng Tiêu Thiên Vương Phủ thực lực, tăng thêm triều đình đại quân, đủ để quét ngang toàn bộ Trung Vực Đông Nam đại địa, ai có thể cùng bọn hắn khiêu chiến?"
+
+Ban đầu, căn bản không có người tin tưởng tin tức này, thế nhưng là theo tin tức càng ngày càng nhiều, tối hôm qua trận kia kinh thế đại chiến chi tiết cũng đều bị lộ ra, tất cả thế lực toàn bộ đều lâm vào như chết trầm mặc.
+
+Bọn hắn không thể không thừa nhận một sự thật, ngay tại tối hôm qua, Trương Nhược Trần dẫn đầu Thánh Minh bộ hạ cũ, dẹp xong Thánh Minh thành, diệt Lăng Tiêu Thiên Vương Phủ, cường thế đến rối tinh rối mù.
+
+Ma giáo tổng đàn.
+
+Mộc gia Chư Thánh, thu đến Ma giáo tại Thánh Minh thành phân đà tin tức, toàn bộ đều dọa đến sắc mặt tái nhợt.
+
+Mộc gia Thánh Chủ hít vào một ngụm khí lạnh , nói: "Lăng Tiêu Thiên Vương cùng Thanh Nguyệt Lạc Tổ vậy mà vẫn lạc. . . Trong Thánh Minh bộ hạ cũ, ai có thể giết được bọn hắn?"
+
+"Nghe nói là trong truyền thuyết Hộ Long các."
+
+Phụ thân của Mộc Linh Hi, Vân Tranh, sắc mặt có chút tái nhợt , nói: "Trương Nhược Trần làm việc hoàn toàn chính là không kiêng nể gì cả, không để ý hậu quả, bây giờ, hắn nắm giữ cường đại như thế một cỗ lực lượng, mùng bảy tháng sau, Vô Đỉnh sơn sợ rằng sẽ bộc phát ra một trận sinh tử ác chiến."
+
+"Cần gì phải sợ hắn? Nếu là, Trương Nhược Trần thực có can đảm đến Vô Đỉnh sơn, căn bản không cần chúng ta xuất thủ, Hỏa tộc tự nhiên sẽ đối phó hắn. Hỏa tộc thực lực, chưa hẳn liền ép không được Thánh Minh bộ hạ cũ."
+
+. . .
+
+Trong Thánh Nữ cung, Tề Phi Vũ cũng đem tin tức này, nói cho Lâm Tố Tiên.
+
+Lâm Tố Tiên hai con ngươi khẽ híp một cái, cười to lên: "Lợi hại a, không hổ là Thánh Minh hoàng thái tử, có quyết đoán, có gan lớn, ha ha, kể từ đó, mùng bảy tháng sau, Thạch Thiên Tuyệt nhất định là phải bỏ ra giá cao thảm trọng. Rất tốt, rất tốt."
+
+"Trương Nhược Trần thật dám đến Vô Đỉnh sơn?" Tề Phi Vũ nói.
+
+Lâm Tố Tiên âm thanh lạnh lùng nói: "Trương Nhược Trần ngay cả Lăng Tiêu Thiên Vương Phủ cũng dám diệt, trong thiên hạ, còn có chuyện gì, hắn không dám làm? Bằng vào trận chiến này, hắn Thánh Minh hoàng thái tử vị trí, xem như ngồi vững vàng!"
+
+"Mà lại, một trận chiến lập uy đằng sau, mùng bảy tháng sau, tất nhiên sẽ có càng nhiều Thánh Minh bộ hạ cũ hội tụ tới."
+
+"Ta hiện tại rất ngạc nhiên, Thạch Thiên Tuyệt biết tin tức đằng sau, đến cùng sẽ là biểu tình gì? Sẽ hối hận hay không đem Mộc Linh Hi ban cho Thu Vũ? Trương Nhược Trần cũng không phải năm đó Lạc Hư, chỉ có thể một thân một mình giết tới Vô Đỉnh sơn, làm lấy tự tìm đường chết việc ngốc. Trương Nhược Trần thế nhưng là nắm giữ lấy thiên quân vạn mã, ra lệnh một tiếng, sóng gió ngập trời, trong giáo những người kia, hiện tại hẳn là áp lực rất lớn đi!"
+
+. . .
+
+Trung Ương Hoàng Thành tu sĩ cũng bị kinh sợ, triều đình Lục bộ quan viên đều giật mình.
+
+Một vị Hoàng tộc thân vương, vô cùng phẫn nộ , nói: "Đến cùng chuyện gì xảy ra, phát sinh chuyện lớn như vậy, vì cái gì chúng ta không hề có một chút tin tức nào thu đến? Là có người hay không trong bóng tối trợ giúp vị kia Thánh Minh hoàng thái tử, đè lại tin tức, muốn diệt chúng ta Trì gia?"
+
+Có người âm dương quái khí nói ra: "Bây giờ, tọa trấn Nguyên Sơ Thánh Điện vị kia, thế nhưng là Thánh Minh hoàng thái tử vợ trước. Coi như ám trợ Thánh Minh hoàng thái tử, cũng là chuyện rất bình thường."
+
+"Chỉ là một cái Thánh Giả, vậy mà nắm giữ lấy toàn bộ Côn Lôn giới quyền lực, nếu không phải Nữ Hoàng thần dụ muốn chúng ta nghe lệnh cùng nàng, bản Thiên Vương đã sớm một đao bổ nàng."
+
+. . .
+
+Trong Nguyên Sơ Thánh Điện, Hoàng Yên Trần nhìn thấy Thánh Thư Tài Nữ đưa cho nàng Truyền Tin Quang Phù, lại nghe được thanh âm ngoài điện của những Hoàng tộc thân vương cùng Binh bộ Thiên Vương kia, không khỏi cắn chặt bờ môi , nói: "Hắn. . . Hắn đây là muốn chọc thủng trời sao? Chẳng lẽ hắn không biết, cùng triều đình đối nghịch, sẽ chỉ là một con đường chết?"
+
+Thánh Thư Tài Nữ rất có thể hiểu được Hoàng Yên Trần tâm tình vào giờ khắc này, kỳ thật, nàng vừa mới biết được tin tức thời điểm, cũng là giật nảy mình.
+
+Diệt Lăng Tiêu Thiên Vương Phủ, không thể nghi ngờ là triệt để chọc giận triều đình, lấy triều đình mấy trăm năm nay để dành tới thực lực cùng nội tình, coi như Thánh Minh cao thủ lại nhiều, cũng không có khả năng chống đỡ được.
+
+Lại nói, giết nhiều như vậy Hoàng tộc lão tổ và thân vương, Nữ Hoàng sau khi trở về, há lại sẽ lại buông tha hắn?
+— QUẢNG CÁO —
+
+
+Thánh Thư Tài Nữ nói: "Ta nhận được tin tức, Trương Nhược Trần cũng không có tại Thánh Minh thành phục quốc, mà là mang theo tất cả bộ hạ cũ, tiến vào một cái tên là Càn Khôn giới địa phương. Thậm chí còn có truyền ngôn, Tiếp Thiên Thần Mộc cũng tại Càn Khôn giới. Đương nhiên, hiện tại còn không cách nào chứng thực tin tức độ chuẩn xác."
+
+Hoàng Yên Trần cố gắng đứng thẳng lên sống lưng, không có bị tin tức này đánh, nghiêm nghị nói: "Phát sinh chuyện lớn như vậy, Thiên Địa Kỳ Cục vậy mà không có nói trước cảnh báo. Nếu là, chúng ta có thể sớm phát hiện, nói không chắc có thể ngăn cản hắn, hắn cũng không trở thành triệt để đi đến chúng ta mặt đối lập, thậm chí là toàn bộ Côn Lôn giới mặt đối lập."
+
+Thánh Thư Tài Nữ nói: "Có người lấy vô thượng thần thông, che đậy thiên cơ, bởi vậy, Thiên Địa Kỳ Cục không có bất kỳ cái gì phát giác. Tinh thần của người này lực cường đại, thậm chí vượt qua Bất Tử Thần Điện vị điện chủ kia. Cho dù là ta, cũng đoán không ra, Côn Lôn giới tại sao có thể có đáng sợ như vậy nhân vật."
+
+Hoàng Yên Trần nói: "Như vậy hiện tại làm sao bây giờ? Coi như Trương Nhược Trần ẩn giấu đi đứng lên, mùng bảy tháng sau, cũng nhất định sẽ còn xuất hiện. Trong triều đình, những Hoàng tộc thành viên kia, những Binh bộ Thiên Vương kia, những Nho Đạo đại thần kia, sao lại buông tha hắn? Thật chẳng lẽ muốn ta dẫn đầu triều đình đại quân, tự mình đi tiêu diệt hắn?"
+
+Thánh Thư Tài Nữ thật sâu thở dài , nói: "Nữ Hoàng trước khi rời đi, hạ đạt điều thứ nhất thần dụ, chính là làm cho cả triều đình đều nghe lệnh của ngươi. Còn lại thần dụ, đều là xếp tại thần dụ này phía sau. Cho nên, lựa chọn quyền ở trong tay ngươi. Có lẽ, Nữ Hoàng đã sớm nhìn thấu một số việc, đã sớm đoán được sẽ có một ngày như vậy, cố ý tại luyện tâm của ngươi."
+
+Thánh Thư Tài Nữ rời đi Nguyên Sơ Thánh Điện, chỉ để lại Hoàng Yên Trần một người, ngồi một mình ở trong đại điện trống trải.
+
+Đi ra Tử Vi cung, Thánh Thư Tài Nữ mặc một thân nho bào, giống như một vị phong độ nhẹ nhàng tuấn mỹ thư sinh, hướng về Thanh Hồng các bước đi.
+
+Một năm trước, Thánh Thư Tài Nữ từng trong này định ngày hẹn Trương Nhược Trần.
+
+Hoàn cảnh nơi này thanh u, trồng lấy từng cây từng cây xanh biếc Thanh Trúc, cùng ngoại giới huyên náo so sánh, giống như là một thế giới khác.
+
+Một mực đi đến Thanh Hồng các chỗ sâu, đi vào dưới một gốc cây đào, Thánh Thư Tài Nữ mới là có chút dừng bước lại.
+
+"Hoa —— "
+
+Thánh Thư Tài Nữ lần nữa phóng ra một bước, tại mũi chân của nàng chỗ, xuất hiện từng vòng từng vòng gợn nước gợn sóng, sau đó, cả người liền là từ trong gợn nước xuyên qua, tiến vào một mảnh quỷ dị thiên địa.
+
+Giờ phút này, ở trước mặt nàng, cũng là một gốc cây đào.
+
+Bất quá, cây đào lại là vô cùng to lớn, thân cây đường kính chừng hơn mười dặm, một mực sinh trưởng đến trong tầng mây, căn bản không biết đến cùng cao bao nhiêu, nói không chắc, đã sinh trưởng đến vũ ngoại.
+
+"Gia gia, bên ngoài cũng đã long trời lở đất, Nữ Hoàng không tại, chẳng lẽ ngươi liền không đi ra quản một chút?" Thánh Thư Tài Nữ chắp tay trước ngực, đối với trước mắt cây đào, thật sâu cúi đầu.
+
+Một tiếng nói già nua vang lên, truyền khắp vùng thiên địa này , nói: "Đều là một đám tiểu bối tại tiểu đả tiểu nháo, gia gia đều là sống mấy ngàn tuổi người, đi quản việc nhỏ như vậy, há không làm cho người ta trò cười? Lại nói, gia gia chức trách, chính là thủ hộ Côn Lôn giới Thiên Địa Linh Căn mới, Bàn Đào Thụ, còn lại sự tình, liền do chính các ngươi đi ứng đối. 800 năm, ròng rã 800 năm, trong các ngươi bọn tiểu bối này, hẳn là muốn đản sinh ra vài cái nhân vật, có thể một mình chống lên một phiến thiên địa mới được."
+
+Đánh giá điểm 9-10 là sự ủng lớn nhất đối với Converter
 
 Nhất Kiếp Chân Tiên, Bách Thế Phong Lưu.
 Phong Lưu Chân Tiên Vô địch lưu đã full.
